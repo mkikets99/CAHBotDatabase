@@ -18,7 +18,7 @@ body:
         - English
         - Ukrainian (Українська)
         - Polish (Polska)
-  - type: text
+  - type: textarea
     id: QA
     attributes:
       label: "Write them down:"
