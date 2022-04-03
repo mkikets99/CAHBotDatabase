@@ -21,6 +21,6 @@ body:
   - type: text
     id: QA
     attributes:
-      label: Write them down\:
+      label: "Write them down:"
       description: Write them separately! One per line! If those are a long one: use numbers at start.
       placeholder: "1. ... \n2. ...\n3. ...\n..."
