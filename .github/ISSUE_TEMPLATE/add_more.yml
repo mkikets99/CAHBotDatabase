@@ -1,0 +1,26 @@
+name: Add More Q&A
+description: Add more Questions and Answers to the database
+title: "[AddMore]: "
+labels: ["Add More"]
+body:
+  - type: dropdown
+    id: what
+    attributes:
+      label: What would you like to add?
+      options:
+        - Questions
+        - Answers
+  - type: dropdown
+    id: lang
+    attributes:
+      label: For what language you want to add it?
+      options:
+        - English
+        - Ukrainian (Українська)
+        - Polish (Polska)
+  - type: text
+    id: QA
+    attributes:
+      label: Write them down:
+      description: Write them separately! One per line! If those are a long one: use numbers at start.
+      placeholder: "1. ... \n2. ...\n3. ...\n..."
