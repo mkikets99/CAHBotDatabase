@@ -7,6 +7,13 @@ Database For Card Against Humanity Bot in Telegram\n\
 Packs used on english language\n\
 ### Packs\n";
 
+/**
+ * 
+ * @param {any} header 
+ * @param {Array<any>} data 
+ * @param {Array<string>} order 
+ * @returns 
+ */
 function tableBuilder(header,data,order) {
     let out = "";
     order.forEach((v)=>{
@@ -23,6 +30,8 @@ function tableBuilder(header,data,order) {
         })
         out += "|\n";
     })
+    out+=`\n|Total pack amount: ${data.length}|Total questions amount: ${data.reduce((out,now)=>out+now.qcount,0)}|Total answer amount: ${data.reduce((out,now)=>out+now.acount,0)}|\n|---|---|---|\n`
+
     return out
 }
 let enPack = JSON.parse(fs.readFileSync(path.join(__dirname,"database","en","packs.json")))

@@ -100,3 +100,6 @@
 | Voter's Choice | fun-based | 46 | 84 |
 | WTF Did You Say?!? | fun-based | 100 | 476 |
 | Words Against Morality | fun-based | 120 | 320 |
+
+|Total pack amount: 99|Total questions amount: 6772|Total answer amount: 24539|
+|---|---|---|
