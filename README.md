@@ -102,8 +102,7 @@ Packs used on english language
 | The Catholic Card Game | fun-based | 143 | 661 |
 | The Game Without Decency | fun-based | 150 | 359 |
 | The Worst Card Game | fun-based | 54 | 161 |
-| Trumped Up Cards | fun-based | 33 | 121 |
-| Trumped UpCards: The World's Biggest Deck* | fun-based | 90 | 459 |
+| Trumped Up Cards | fun-based | 123 | 580 |
 | Voter's Choice | fun-based | 46 | 84 |
 | WTF Did You Say?!? | fun-based | 100 | 476 |
 | Words Against Morality | fun-based | 120 | 320 |
