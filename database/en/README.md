@@ -84,8 +84,7 @@
 | Kinder Perfect | fun-based | 74 | 225 |
 | KinderPerfect (Commercial Set) | fun-based | 70 | 324 |
 | KinderPerfect: A Timeout For Parents (Kickstarter Set) | fun-based | 22 | 172 |
-| Kiwis Against Morality | fun-based | 50 | 298 |
-| Kiwis Versus Morality | fun-based | 95 | 393 |
+| Kiwis Versus Morality | fun-based | 145 | 691 |
 | Knitters Against Swatches | fun-based | 14 | 58 |
 | Not Parent Approved | fun-based | 140 | 460 |
 | Personally Incorrect | fun-based | 64 | 186 |
