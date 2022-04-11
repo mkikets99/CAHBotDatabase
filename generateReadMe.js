@@ -20,7 +20,7 @@ function tableBuilder(header,data,order) {
         out += "|\n---------\n";
     })
 }
-let enPack = JSON.parse(fs.readFileSync(path.join(__dirname,"en","packs.json")))
+let enPack = JSON.parse(fs.readFileSync(path.join(__dirname,"database","en","packs.json")))
 
 head += "\n"+tableBuilder({
     "name": "Name of pack",
