@@ -3,6 +3,11 @@ description: Add more Questions and Answers to the database
 title: "[AddMore]: "
 labels: ["Add More"]
 body:
+  - type: input
+    id: name
+    attributes:
+      label: "How to name a pack?"
+      description: "If you want to edit existing pack, please paste full name or a `pack key` located in `pack.json` file inside of pack folder"
   - type: dropdown
     id: what
     attributes:
