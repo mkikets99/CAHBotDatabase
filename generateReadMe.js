@@ -19,6 +19,7 @@ function tableBuilder(header,data,order) {
         })
         out += "|\n---------\n";
     })
+    return out
 }
 let enPack = JSON.parse(fs.readFileSync(path.join(__dirname,"database","en","packs.json")))
 
