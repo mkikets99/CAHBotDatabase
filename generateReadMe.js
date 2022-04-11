@@ -42,5 +42,14 @@ head += "\n"+tableBuilder({
     "name","type","qcount","acount"
 ]);
 
+fs.writeFileSync(path.join(__dirname,"database","en","README.md"),"### Packs\n"+tableBuilder({
+    "name": "Name of pack",
+    "type": "Type of pack",
+    "qcount": "Questions count",
+    "acount": "Answers count",
+},enPack,[
+    "name","type","qcount","acount"
+]));
+
 fs.writeFileSync("README.md",head);
 
