@@ -131,448 +131,448 @@ Answers amount: 440
 |---|
 
 ### Answers
-| Question |
+| Answers |
 |---|
-| A 28 week abortion. |
+| A 28 week abo tio . |
 | A big black dildo. |
-| A dirty protest. |
-| A downward spiral into suicidal self-destruction. |
+| A di ty p otest. |
+| A dow wa d spi al i to suicidal self-dest uctio . |
 | A full load. |
-| A generation of obese kids. |
-| A lying sack of shit. |
-| A moist, creamy vaginal secretion. |
-| A tub of Vaseline. |
-| Accidental Mexican pointy boot sodomy. |
-| An erection so hard that it hurts. |
-| An unexpected donkey punch. |
-| An unpleasant taste in my mouth. |
-| Analingus. |
-| Batting for both sides. |
-| Because you touch yourself at night. |
-| Beer goggles. |
-| Being fingered by the Card Czar. |
-| Being frigid. |
-| Being hung like a horse. |
-| Being sodomized. |
+| A ge e atio  of obese kids. |
+| A lyi g sack of shit. |
+| A moist, c eamy vagi al sec etio . |
+| A tub of Vaseli e. |
+| Accide tal Mexica  poi ty boot sodomy. |
+| A  e ectio  so ha d that it hu ts. |
+| A  u expected do key pu ch. |
+| A  u pleasa t taste i  my mouth. |
+| A ali gus. |
+| Batti g fo  both sides. |
+| Because you touch you self at  ight. |
+| Bee  goggles. |
+| Bei g fi ge ed by the Ca d Cza . |
+| Bei g f igid. |
+| Bei g hu g like a ho se. |
+| Bei g sodomized. |
 | Bow-Chicka-Bow-Wow. |
 | Camel toe. |
-| Chemical dependency |
-| Chief's expansive collection of 80's pornography. |
-| Clown porn. |
-| Cock blocking your best friend. |
-| Crying during sex. |
-| Dead hookers. |
-| Extremely sloppy seconds. |
+| Chemical depe de cy |
+| Chief's expa sive collectio  of 80's po og aphy. |
+| Clow  po . |
+| Cock blocki g you  best f ie d. |
+| C yi g du i g sex. |
+| Dead hooke s. |
+| Ext emely sloppy seco ds. |
 | Fellatio. |
-| Forced sterilization of the mentally retarded. |
-| Forgetting the words to the Apostle's Creed. |
-| Freezing to death on a park bench. |
-| Fucking a girl so hard her nose bleeds. |
-| Fucking people over to get ahead in life. |
-| Gagging on your girlfriend's pubic floss. |
-| Getting caught staring at your sister's rack. |
-| Giving your girlfriend a Dutch oven. |
-| God Damn Mother-Fucking Shitty Fucking Shit Fuckers. |
-| God's wrath. |
-| Going all the way |
-| Going full retard. |
-| Heather Mills McCartney. |
-| Imagining terrible, terrible things in order to sustain your erection. |
-| Josef Fritzl. |
-| Manning the fuck up. |
-| My cold, dead hands. |
-| My purple headed womb broom. |
-| My sister's high school yearbook picture. |
-| Never being able to look your dog in the eye again. |
-| Never being able to un-see "Two Girls One Cup". |
-| No strings attached casual sex. |
-| Not taking a dump for 10 whole days. |
-| Paying a hooker to knock your junk around. |
-| Popping your cherry. |
-| Premature foreclosure. |
-| Rigor mortis. |
-| Rinsing your cock in the bathroom sink to increase the chances of getting a blow job. |
-| Sentimental bullshit. |
-| Sharks with frickin' laser beams attached to their heads. |
-| Sienna Miller. |
-| Six million Jews. |
+| Fo ced ste ilizatio  of the me tally  eta ded. |
+| Fo getti g the wo ds to the Apostle's C eed. |
+| F eezi g to death o  a pa k be ch. |
+| Fucki g a gi l so ha d he   ose bleeds. |
+| Fucki g people ove  to get ahead i  life. |
+| Gaggi g o  you  gi lf ie d's pubic floss. |
+| Getti g caught sta i g at you  siste 's  ack. |
+| Givi g you  gi lf ie d a Dutch ove . |
+| God Dam  Mothe -Fucki g Shitty Fucki g Shit Fucke s. |
+| God's w ath. |
+| Goi g all the way |
+| Goi g full  eta d. |
+| Heathe  Mills McCa t ey. |
+| Imagi i g te ible, te ible thi gs i  o de  to sustai  you  e ectio . |
+| Josef F itzl. |
+| Ma i g the fuck up. |
+| My cold, dead ha ds. |
+| My pu ple headed womb b oom. |
+| My siste 's high school yea book pictu e. |
+| Neve  bei g able to look you  dog i  the eye agai . |
+| Neve  bei g able to u -see "Two Gi ls O e Cup". |
+| No st i gs attached casual sex. |
+| Not taki g a dump fo  10 whole days. |
+| Payi g a hooke  to k ock you  ju k a ou d. |
+| Poppi g you  che y. |
+| P ematu e fo eclosu e. |
+| Rigo  mo tis. |
+| Ri si g you  cock i  the bath oom si k to i c ease the cha ces of getti g a blow job. |
+| Se time tal bullshit. |
+| Sha ks with f icki ' lase  beams attached to thei  heads. |
+| Sie a Mille . |
+| Six millio  Jews. |
 | Society. |
-| Some serious soul-searching. |
-| Spermicidal lube. |
-| Tentatively slipping a finger into your partner's asshole. |
-| That not-so-fresh feeling. |
-| The ability to suck a golf ball through 40 feet of garden hose. |
-| The voices inside my head. |
+| Some se ious soul-sea chi g. |
+| Spe micidal lube. |
+| Te tatively slippi g a fi ge  i to you  pa t e 's asshole. |
+| That  ot-so-f esh feeli g. |
+| The ability to suck a golf ball th ough 40 feet of ga de  hose. |
+| The voices i side my head. |
 | The walk of shame. |
-| Touching cloth. |
-| Touching myself while listening to my parents having sex. |
-| Twinkies®. |
-| Two in the pink and one in the stink. |
-| Unwanted sexual penetration. |
-| Using the poophole loophole to keep your virginity. |
-| Vulnerable women with low self-esteem. |
-| Walking around with an undeserved sense of accomplishment. |
-| When the bullshit that comes out of a person's mouth reaches a point of absolute nonsense. |
-| A complete lack of respect for the law. |
-| A distinct lack of morals. |
-| A fistathon. |
-| A harem full o' bitches. |
-| A heated debate on whether ginger people have souls. |
-| A lumpy period. |
-| A monkey blowjob. |
-| A total clusterfuck. |
+| Touchi g cloth. |
+| Touchi g myself while liste i g to my pa e ts havi g sex. |
+| Twi kies®. |
+| Two i  the pi k a d o e i  the sti k. |
+| U wa ted sexual pe et atio . |
+| Usi g the poophole loophole to keep you  vi gi ity. |
+| Vul e able wome  with low self-esteem. |
+| Walki g a ou d with a  u dese ved se se of accomplishme t. |
+| Whe  the bullshit that comes out of a pe so 's mouth  eaches a poi t of absolute  o se se. |
+| A complete lack of  espect fo  the law. |
+| A disti ct lack of mo als. |
+| A fistatho . |
+| A ha em full o' bitches. |
+| A heated debate o  whethe  gi ge  people have souls. |
+| A lumpy pe iod. |
+| A mo key blowjob. |
+| A total cluste fuck. |
 | A well placed thumb. |
-| Accidental Discharge. |
-| Actually drowning in cum. |
-| Adopting orphaned children with the sole intention of recreating The Hunger Games. |
-| Anal discomfort. |
-| Anusol™ cream. |
-| Astroglide™. |
-| Being tied spread-eagle on a four-poster bed. |
+| Accide tal Discha ge. |
+| Actually d ow i g i  cum. |
+| Adopti g o pha ed child e  with the sole i te tio  of  ec eati g The Hu ge  Games. |
+| A al discomfo t. |
+| A usol™ c eam. |
+| Ast oglide™. |
+| Bei g tied sp ead-eagle o  a fou -poste  bed. |
 | Bodily fluids. |
-| Bruising the back of the throat. |
-| Buggery. |
-| Burying your dog. |
-| Capital punishment. |
-| Choir boys. |
-| Coating your mouth with Ronald McDonald's special sauce. |
-| Compassion for the handicapped. |
-| Damn dirty apes. |
-| Dangerous minorities. |
-| Democracy. |
-| Doing things to Ma, in front of Pa. |
-| Domestic violence |
+| B uisi g the back of the th oat. |
+| Bugge y. |
+| Bu yi g you  dog. |
+| Capital pu ishme t. |
+| Choi  boys. |
+| Coati g you  mouth with Ro ald McDo ald's special sauce. |
+| Compassio  fo  the ha dicapped. |
+| Dam  di ty apes. |
+| Da ge ous mi o ities. |
+| Democ acy. |
+| Doi g thi gs to Ma, i  f o t of Pa. |
+| Domestic viole ce |
 | Dumb luck. |
-| Erogenous zones. |
-| Every last drop. |
-| Evolution. |
-| Fat bitches fighting over a Twinkie. |
+| E oge ous zo es. |
+| Eve y last d op. |
+| Evolutio . |
+| Fat bitches fighti g ove  a Twi kie. |
 | Fecal vomit. |
-| Feeling threatened by change. |
-| Feeling turned on. |
-| Getting caught rifling though your mother's knicker draw. |
-| Hands-free ejaculation. |
-| Having sex on tap, all thanks to your wife's dementia. |
-| Hot Asian girls. |
-| Inappropriate stroking. |
-| Lindsay Lohan. |
+| Feeli g th eate ed by cha ge. |
+| Feeli g tu ed o . |
+| Getti g caught  ifli g though you  mothe 's k icke  d aw. |
+| Ha ds-f ee ejaculatio . |
+| Havi g sex o  tap, all tha ks to you  wife's deme tia. |
+| Hot Asia  gi ls. |
+| I app op iate st oki g. |
+| Li dsay Loha . |
 | Lovely lady lumps. |
-| Masturbating in public. |
-| Mensa poster child. |
-| Mind-altering substances. |
-| Moaning like a whore. |
-| My crispy wank sock. |
+| Mastu bati g i  public. |
+| Me sa poste  child. |
+| Mi d-alte i g substa ces. |
+| Moa i g like a who e. |
+| My c ispy wa k sock. |
 | My cum face. |
-| My first crush. |
-| Neatly trimmed pubes. |
-| Not trusting anything that can bleed for a week and not die. |
-| Noticing that your dad's cock tastes different. |
-| Organized religion. |
-| Pissing blood. |
-| Pointing at a complete stranger and whispering "You did this" the moment before you die. |
-| Putting things right, that once went wrong. |
-| Repressed memories. |
-| Robin Williams. |
+| My fi st c ush. |
+| Neatly t immed pubes. |
+| Not t usti g a ythi g that ca  bleed fo  a week a d  ot die. |
+| Notici g that you  dad's cock tastes diffe e t. |
+| O ga ized  eligio . |
+| Pissi g blood. |
+| Poi ti g at a complete st a ge  a d whispe i g "You did this" the mome t befo e you die. |
+| Putti g thi gs  ight, that o ce we t w o g. |
+| Rep essed memo ies. |
+| Robi  Williams. |
 | Sex dolls that look ashamed. |
-| Skid marks. |
-| Slowly inching Buss Lightyear into your anal canal while shouting "To infinity and beyond". |
-| Snuff movies. |
-| Some girl-on-girl action. |
-| Sticky fingers. |
-| Suppressing the gag reflex. |
-| Swants. |
-| Sweet, sweet revenge. |
-| Tappin' dat ass. |
-| Tearing the mask off nature and staring at the face of God. |
-| The abortion clinic. |
-| The abuse of power. |
-| The Catholic Church. |
-| The familiar taste of semen. |
-| The feeling of impending doom. |
-| The gay gene. |
+| Skid ma ks. |
+| Slowly i chi g Buss Lightyea  i to you  a al ca al while shouti g "To i fi ity a d beyo d". |
+| S uff movies. |
+| Some gi l-o -gi l actio . |
+| Sticky fi ge s. |
+| Supp essi g the gag  eflex. |
+| Swa ts. |
+| Sweet, sweet  eve ge. |
+| Tappi ' dat ass. |
+| Tea i g the mask off  atu e a d sta i g at the face of God. |
+| The abo tio  cli ic. |
+| The abuse of powe . |
+| The Catholic Chu ch. |
+| The familia  taste of seme . |
+| The feeli g of impe di g doom. |
+| The gay ge e. |
 | The Middle East. |
-| The morally bankrupt. |
-| The rhythms of Africa. |
-| The well endowed. |
-| Three working orifices. |
-| Thumbing in a softy. |
-| Using a fat kid as a human shield. |
-| Waxing your back, sack and crack. |
-| When taking a shit feels more like you're bleeding a radiator. |
-| White trash. |
-| Your Mom. |
-| Your touchy-feely uncle who isn't really your uncle. |
-| Your wife's pussy before it was wrecked by childbirth. |
-| A bigger bang for your buck. |
-| A bleeding asshole. |
-| A broken hymen. |
+| The mo ally ba k upt. |
+| The  hythms of Af ica. |
+| The well e dowed. |
+| Th ee wo ki g o ifices. |
+| Thumbi g i  a softy. |
+| Usi g a fat kid as a huma  shield. |
+| Waxi g you  back, sack a d c ack. |
+| Whe  taki g a shit feels mo e like you' e bleedi g a  adiato . |
+| White t ash. |
+| You  Mom. |
+| You  touchy-feely u cle who is 't  eally you  u cle. |
+| You  wife's pussy befo e it was w ecked by childbi th. |
+| A bigge  ba g fo  you  buck. |
+| A bleedi g asshole. |
+| A b oke  hyme . |
 | A filthy hobo. |
-| A group of chronic Masturbators. |
-| A harmless white lie. |
-| A large group of consenting adults. |
-| A midlife crisis. |
-| A one-night stand. |
-| A shit of biblical proportions. |
-| A strained groin. |
-| A taste of your own medicine. |
-| A three-way with the Olsen Twins. |
-| A trophy wife. |
-| A vagina so big there's an echo. |
-| A victimless crime. |
+| A g oup of ch o ic Mastu bato s. |
+| A ha mless white lie. |
+| A la ge g oup of co se ti g adults. |
+| A midlife c isis. |
+| A o e- ight sta d. |
+| A shit of biblical p opo tio s. |
+| A st ai ed g oi . |
+| A taste of you  ow  medici e. |
+| A th ee-way with the Olse  Twi s. |
+| A t ophy wife. |
+| A vagi a so big the e's a  echo. |
+| A victimless c ime. |
 | Absolutely fuck all. |
-| An 80/20 nipple to boob ratio. |
-| An Anne Frank sex doll that doesn't make a sound. |
-| An uncomfortable silence. |
-| Anal prolapse. |
-| Awkward blowjobs. |
-| Being fingered next to the swings. |
-| Being raped in prison. |
-| Being the bigger man. |
-| Bi-curious George. |
-| Biting the pillow. |
-| Bringing shame on your family. |
-| Choosing to be gay. |
-| Cleverly disguising yourself as a responsible adult. |
-| Crotch kicks. |
-| Crotch rot. |
-| Crotchless panties. |
+| A  80/20  ipple to boob  atio. |
+| A  A e F a k sex doll that does 't make a sou d. |
+| A  u comfo table sile ce. |
+| A al p olapse. |
+| Awkwa d blowjobs. |
+| Bei g fi ge ed  ext to the swi gs. |
+| Bei g  aped i  p iso . |
+| Bei g the bigge  ma . |
+| Bi-cu ious Geo ge. |
+| Biti g the pillow. |
+| B i gi g shame o  you  family. |
+| Choosi g to be gay. |
+| Cleve ly disguisi g you self as a  espo sible adult. |
+| C otch kicks. |
+| C otch  ot. |
+| C otchless pa ties. |
 | Doggy style. |
-| Dying a little more each day on the inside |
-| Dying in childbirth. |
-| Euthanasia. |
-| Excessive leg hair. |
-| Feeling emasculated by the words "is it in yet?" |
-| Finding your cousin frustratingly attractive. |
-| Finger stuff. |
-| Getting kinky with your pinky. |
-| Getting laid. |
-| Girls with small hands. |
-| Hand to gland combat. |
-| Human werewolf syndrome. |
-| Incest |
-| Industrial strength laxatives. |
-| Inserting one's finger into the vestibule of the vagina. |
-| Kleenex®. |
-| Masturbatory assistance from your mom. |
-| Mediocrity. |
-| My internet search history. |
-| My rod of justice. |
-| Our little secret. |
-| Paying a dominatrix for 'the cheese grater' experience. |
-| Penis puppetry. |
-| Playing with your bearded clam. |
-| Poontang. |
-| Post-sex funk. |
-| Reaping what you sow. |
+| Dyi g a little mo e each day o  the i side |
+| Dyi g i  childbi th. |
+| Eutha asia. |
+| Excessive leg hai . |
+| Feeli g emasculated by the wo ds "is it i  yet?" |
+| Fi di g you  cousi  f ust ati gly att active. |
+| Fi ge  stuff. |
+| Getti g ki ky with you  pi ky. |
+| Getti g laid. |
+| Gi ls with small ha ds. |
+| Ha d to gla d combat. |
+| Huma  we ewolf sy d ome. |
+| I cest |
+| I dust ial st e gth laxatives. |
+| I se ti g o e's fi ge  i to the vestibule of the vagi a. |
+| Klee ex®. |
+| Mastu bato y assista ce f om you  mom. |
+| Medioc ity. |
+| My i te et sea ch histo y. |
+| My  od of justice. |
+| Ou  little sec et. |
+| Payi g a domi at ix fo  'the cheese g ate ' expe ie ce. |
+| Pe is puppet y. |
+| Playi g with you  bea ded clam. |
+| Poo ta g. |
+| Post-sex fu k. |
+| Reapi g what you sow. |
 | Rimjobs. |
-| Rubbing one out. |
-| Scarlett Johansson. |
+| Rubbi g o e out. |
+| Sca lett Joha sso . |
 | Sexy kids. |
-| Shit happens. |
-| Single mom Barbie. |
-| Smashing the back doors in. |
-| Something fishy. |
-| Space docking. |
-| Tantric yoga. |
-| The acrid smell of a burning child. |
-| The African myth that sex with a virgin can cure AIDS. |
-| The dance without pants. |
-| The fickle finger of fate. |
-| The God particle. |
+| Shit happe s. |
+| Si gle mom Ba bie. |
+| Smashi g the back doo s i . |
+| Somethi g fishy. |
+| Space docki g. |
+| Ta t ic yoga. |
+| The ac id smell of a bu i g child. |
+| The Af ica  myth that sex with a vi gi  ca  cu e AIDS. |
+| The da ce without pa ts. |
+| The fickle fi ge  of fate. |
+| The God pa ticle. |
 | The Holocaust. |
-| The internal moral debate on whether it's OK to sleep with your stepsister. |
-| The money shot. |
-| The old beaver cleaver. |
+| The i te al mo al debate o  whethe  it's OK to sleep with you  stepsiste . |
+| The mo ey shot. |
+| The old beave  cleave . |
 | The Special People's Games. |
-| The superhuman strength of retards. |
-| Titties in my face. |
-| Trying the taste of you own, somewhat cloudy semen. |
-| Unorthodox sexual positions. |
-| Unprotected sex. |
-| Using the scratch and sniff method to identify mysterious stains. |
-| Vaginal flatulence. |
-| Wandering in the desert. |
-| When something turns you off so much that your vagina throws up. |
+| The supe huma  st e gth of  eta ds. |
+| Titties i  my face. |
+| T yi g the taste of you ow , somewhat cloudy seme . |
+| U o thodox sexual positio s. |
+| U p otected sex. |
+| Usi g the sc atch a d s iff method to ide tify myste ious stai s. |
+| Vagi al flatule ce. |
+| Wa de i g i  the dese t. |
+| Whe  somethi g tu s you off so much that you  vagi a th ows up. |
 | 70's bush. |
-| A bulging vein in your asshole. |
-| A courtesy lick. |
-| A curry so hot it leaves your ringpiece looking like a halved blood orange. |
-| A fractured pelvis. |
-| A girl on the brink of womanhood. |
-| A hydraulic dildo machine. |
+| A bulgi g vei  i  you  asshole. |
+| A cou tesy lick. |
+| A cu y so hot it leaves you   i gpiece looki g like a halved blood o a ge. |
+| A f actu ed pelvis. |
+| A gi l o  the b i k of woma hood. |
+| A hyd aulic dildo machi e. |
 | A leaky bottom. |
-| A mouth so sensitive it can feel the sperm wriggling. |
-| A pair of pliers and a blowtorch. |
-| A scabby tampon. |
-| A strap-on. |
-| A training bra. |
-| A waste of fucking time. |
-| A woman's virginity. |
-| Amy Winehouse. |
-| An extra chromosome. |
-| An inferiority complex. |
-| Arranging sleeping children into suggestive positions. |
-| Assuming no means yes and yes means anal. |
-| Because I run faster horny than you do scared. |
-| Being single as fuck. |
-| Bludgeoning the flaps. |
-| Buddha, the fat little cunt. |
-| Butch lesbians. |
-| Carpet burns. |
+| A mouth so se sitive it ca  feel the spe m w iggli g. |
+| A pai  of plie s a d a blowto ch. |
+| A scabby tampo . |
+| A st ap-o . |
+| A t ai i g b a. |
+| A waste of fucki g time. |
+| A woma 's vi gi ity. |
+| Amy Wi ehouse. |
+| A  ext a ch omosome. |
+| A  i fe io ity complex. |
+| A a gi g sleepi g child e  i to suggestive positio s. |
+| Assumi g  o mea s yes a d yes mea s a al. |
+| Because I  u  faste  ho y tha  you do sca ed. |
+| Bei g si gle as fuck. |
+| Bludgeo i g the flaps. |
+| Buddha, the fat little cu t. |
+| Butch lesbia s. |
+| Ca pet bu s. |
 | Chlamydia. |
-| Civil rights. |
+| Civil  ights. |
 | Coitus. |
-| Congenital birth defects. |
-| Corrupting the mind of a child. |
-| Crack hoes that'll do pretty much anything. |
-| Creamy knickers. |
-| Donald Trump's inclusive attitude towards minorities. |
-| Drinking, not because you want to, but because you have to. |
-| Eating out a cum-filled whore. |
-| Falling in love. |
-| Finding a crimson crime scene in your girlfriend's white panties. |
-| Finishing yourself off. |
-| Fresh, dripping cum. |
-| Fucking kids. |
-| Getting fucked in the proverbial ass. |
-| Getting your dick wet. |
+| Co ge ital bi th defects. |
+| Co upti g the mi d of a child. |
+| C ack hoes that'll do p etty much a ythi g. |
+| C eamy k icke s. |
+| Do ald T ump's i clusive attitude towa ds mi o ities. |
+| D i ki g,  ot because you wa t to, but because you have to. |
+| Eati g out a cum-filled who e. |
+| Falli g i  love. |
+| Fi di g a c imso  c ime sce e i  you  gi lf ie d's white pa ties. |
+| Fi ishi g you self off. |
+| F esh, d ippi g cum. |
+| Fucki g kids. |
+| Getti g fucked i  the p ove bial ass. |
+| Getti g you  dick wet. |
 | GILFs. |
-| Gingers. |
-| Going Greek. |
-| Going to the bathroom just to wipe. |
-| Grinding. |
-| Grindr. |
-| Having a baby to save your relationship. |
-| Hemorrhaging cash. |
-| Honkies. |
-| Inappropriate grooming. |
-| Jamming a twig up your pee hole. |
-| Krazy Glue®. |
-| Making bread from a yeast infection. |
+| Gi ge s. |
+| Goi g G eek. |
+| Goi g to the bath oom just to wipe. |
+| G i di g. |
+| G i d . |
+| Havi g a baby to save you   elatio ship. |
+| Hemo hagi g cash. |
+| Ho kies. |
+| I app op iate g oomi g. |
+| Jammi g a twig up you  pee hole. |
+| K azy Glue®. |
+| Maki g b ead f om a yeast i fectio . |
 | Mom's ability to take a cock. |
-| Muff diving. |
-| My angry vagina. |
-| My father's flaccid penis. |
-| My one-eyed monster. |
+| Muff divi g. |
+| My a g y vagi a. |
+| My fathe 's flaccid pe is. |
+| My o e-eyed mo ste . |
 | My shitty life. |
 | My sweaty hole. |
-| North Korea. |
-| Oscar Pistorius. |
-| Paper-cut circumcision. |
-| pity-fucking a fat groomsman |
-| Playing the race card. |
-| Premenstrual tension. |
-| Princess Diana. |
-| Reeva Steenkamp. |
-| Scratchy, uncomfortable sex. |
-| Sexual harassment. |
-| Shaking hands with pig farmers. |
-| Sharon Stone. |
+| No th Ko ea. |
+| Osca  Pisto ius. |
+| Pape -cut ci cumcisio . |
+| pity-fucki g a fat g oomsma  |
+| Playi g the  ace ca d. |
+| P eme st ual te sio . |
+| P i cess Dia a. |
+| Reeva Stee kamp. |
+| Sc atchy, u comfo table sex. |
+| Sexual ha assme t. |
+| Shaki g ha ds with pig fa me s. |
+| Sha o  Sto e. |
 | Slaves. |
-| Smothering a severely disabled child with a pillow as an act of kindness. |
-| Snapping your banjo string. |
-| Stuffin' the muffin like a boss. |
-| Teasing your sister with just the tip. |
-| The cream of Sum Yung Gai. |
-| The Final Solution. |
-| The sexy curves of a pregnant stripper. |
-| The shame and regret of a prostate-triggered orgasm. |
-| The War on Terror. |
-| This lump in my trousers. |
-| Turning a beached whale into a makeshift Slip 'N Slide®. |
-| Underwear off, fanny in the face. |
-| Using your mom's old diaphragm as contraception in a pinch. |
-| Years of rejection and failure. |
-| A banter tampon. |
-| A family-sized bucket of chicken. |
-| A golden shower on a warm summer's day. |
-| A molester mustache. |
-| A rape kit. |
-| A severe beating with the ugly stick. |
-| A shit of a thousand wipes. |
-| A sickening dull thud. |
+| Smothe i g a seve ely disabled child with a pillow as a  act of ki d ess. |
+| S appi g you  ba jo st i g. |
+| Stuffi ' the muffi  like a boss. |
+| Teasi g you  siste  with just the tip. |
+| The c eam of Sum Yu g Gai. |
+| The Fi al Solutio . |
+| The sexy cu ves of a p eg a t st ippe . |
+| The shame a d  eg et of a p ostate-t igge ed o gasm. |
+| The Wa  o  Te o . |
+| This lump i  my t ouse s. |
+| Tu i g a beached whale i to a makeshift Slip 'N Slide®. |
+| U de wea  off, fa y i  the face. |
+| Usi g you  mom's old diaph agm as co t aceptio  i  a pi ch. |
+| Yea s of  ejectio  a d failu e. |
+| A ba te  tampo . |
+| A family-sized bucket of chicke . |
+| A golde  showe  o  a wa m summe 's day. |
+| A moleste  mustache. |
+| A  ape kit. |
+| A seve e beati g with the ugly stick. |
+| A shit of a thousa d wipes. |
+| A sicke i g dull thud. |
 | Acid. |
-| Actiong out rape fantasies with strangers you're never met. |
-| An inability to take a joke. |
-| An unwashed, pre-owned rubber gimp suit. |
-| Antimalarial-induced hallucinations |
+| Actio g out  ape fa tasies with st a ge s you' e  eve  met. |
+| A  i ability to take a joke. |
+| A  u washed, p e-ow ed  ubbe  gimp suit. |
+| A timala ial-i duced halluci atio s |
 | Atheists. |
-| Bad shrimp. |
-| Ballscaping. |
-| Big-titted whores. |
-| Bitch-slapping a homeless person and burning the box they sleep in. |
+| Bad sh imp. |
+| Ballscapi g. |
+| Big-titted who es. |
+| Bitch-slappi g a homeless pe so  a d bu i g the box they sleep i . |
 | Blasphemy. |
-| Bleeding during sex. |
-| Brian Tamaki |
+| Bleedi g du i g sex. |
+| B ia  Tamaki |
 | Bulimia. |
-| Checking that everything's the right tightness. |
-| Christianity. |
-| Concentration camps. |
-| Cramming it all the way in. |
-| Death by a thousand cuts. |
-| Delusions of grandeur. |
-| Ethnic slurs. |
-| Fake showers. |
-| Feeling a little bit rapey. |
-| Female ejaculation |
-| Fingering a baby. |
-| Finishing a story with the words "And then I fucked her up the ass". |
-| Flamboyant gay men. |
-| Formaldehyde. |
-| Getting so drunk you start finding your own wife attractive. |
-| Getting your eyeballs tattooed because other people's attention is worth the risk of going blind. |
-| Haivng sex with strangers for money. |
-| Havng the painters in. |
-| Irreparable damage. |
+| Checki g that eve ythi g's the  ight tight ess. |
+| Ch istia ity. |
+| Co ce t atio  camps. |
+| C ammi g it all the way i . |
+| Death by a thousa d cuts. |
+| Delusio s of g a deu . |
+| Eth ic slu s. |
+| Fake showe s. |
+| Feeli g a little bit  apey. |
+| Female ejaculatio  |
+| Fi ge i g a baby. |
+| Fi ishi g a sto y with the wo ds "A d the  I fucked he  up the ass". |
+| Flamboya t gay me . |
+| Fo maldehyde. |
+| Getti g so d u k you sta t fi di g you  ow  wife att active. |
+| Getti g you  eyeballs tattooed because othe  people's atte tio  is wo th the  isk of goi g bli d. |
+| Haiv g sex with st a ge s fo  mo ey. |
+| Hav g the pai te s i . |
+| I epa able damage. |
 | Jailbait. |
-| Karma. |
-| Lady gardening. |
-| Letting him cum inside you. |
+| Ka ma. |
+| Lady ga de i g. |
+| Letti g him cum i side you. |
 | Leukemia. |
-| Low expectations. |
-| Lying to terminally ill children about their life expectancy. |
-| Megan's Law. |
-| Mother Teresa. |
-| My "friend". |
-| Nipples as hard as bullets. |
-| Not being shown enough attention when you were a child. |
-| Palliative care. |
-| Pearl Harbor. |
-| Pre-cum. |
-| Pricks with small dicks. |
-| Promiscuous women. |
-| Religious intolerance. |
-| Ron Jeremy. |
-| Rosa Parks. |
-| Same sex marriage. |
-| Sandy Hook. |
-| Schlong |
-| Self-harming. |
-| Shit literally everywhere. |
-| Sore lips. |
-| Stalking. |
-| Starving a fat girl until she's attractive enough to fuck. |
-| Sucking her ass so hard, her face caves in. |
-| Sucking her juices off your best mate's cock. |
-| Teaching a woman the meaning of the word respect. |
-| The ability to turn your penis inside out. |
-| The AIDS Bunny. |
-| The American way. |
-| The buckle end of the belt. |
-| The extinction of an entire race of people. |
-| The lingering taste of a night of passion. |
-| The not-so-hot friend. |
-| The reek of desperation. |
-| The right to bear arms. |
-| The stench of death. |
-| The vacant stare of a retarded child. |
-| The weaker sex. |
+| Low expectatio s. |
+| Lyi g to te mi ally ill child e  about thei  life expecta cy. |
+| Mega 's Law. |
+| Mothe  Te esa. |
+| My "f ie d". |
+| Nipples as ha d as bullets. |
+| Not bei g show  e ough atte tio  whe  you we e a child. |
+| Palliative ca e. |
+| Pea l Ha bo . |
+| P e-cum. |
+| P icks with small dicks. |
+| P omiscuous wome . |
+| Religious i tole a ce. |
+| Ro  Je emy. |
+| Rosa Pa ks. |
+| Same sex ma iage. |
+| Sa dy Hook. |
+| Schlo g |
+| Self-ha mi g. |
+| Shit lite ally eve ywhe e. |
+| So e lips. |
+| Stalki g. |
+| Sta vi g a fat gi l u til she's att active e ough to fuck. |
+| Sucki g he  ass so ha d, he  face caves i . |
+| Sucki g he  juices off you  best mate's cock. |
+| Teachi g a woma  the mea i g of the wo d  espect. |
+| The ability to tu  you  pe is i side out. |
+| The AIDS Bu y. |
+| The Ame ica  way. |
+| The buckle e d of the belt. |
+| The exti ctio  of a  e ti e  ace of people. |
+| The li ge i g taste of a  ight of passio . |
+| The  ot-so-hot f ie d. |
+| The  eek of despe atio . |
+| The  ight to bea  a ms. |
+| The ste ch of death. |
+| The vaca t sta e of a  eta ded child. |
+| The weake  sex. |
 | Too much teeth. |
-| Touchin' ya where you pee. |
-| Truly believing Electric Circus was cool |
-| Using the last guy's semen as lube. |
-| Wanking with a hand full of razor blades. |
-| Zyklon B. |
+| Touchi ' ya whe e you pee. |
+| T uly believi g Elect ic Ci cus was cool |
+| Usi g the last guy's seme  as lube. |
+| Wa ki g with a ha d full of  azo  blades. |
+| Zyklo  B. |
 
 |Total amount: 440|
 |---|

@@ -61,205 +61,205 @@ Answers amount: 198
 |---|
 
 ### Answers
-| Question |
+| Answers |
 |---|
-| #BlackLivesMatter. |
-| $15 minimum wage. |
-| A birther lawsuit. |
-| A campaign intern. |
-| A CNN alert. |
-| A coin toss. |
-| A gust of wind to Donald Trump's hair. |
-| A Kenyan Muslim. |
-| A loan from Goldman Sachs. |
-| A low energy guy. |
-| A penchant for sexism. |
-| A vivid sex dream involving the Republican frontrunner. |
-| A Washington outsider. |
-| A Washington whorehouse. |
-| A well-placed "thanks Obama." |
-| Abortion videos. |
-| Actually giving a shit. |
-| Adding ISIS on Snapchat. |
-| Americans without a college degree. |
-| An exception in the case of rape or incest. |
-| An honest politician. |
-| An Iowa do-over. |
-| An unmanned center podium. |
-| Anchor babies. |
-| Anthony Weiner. |
-| Arnold Schwarzenegger. |
-| Baby Hitler. |
-| Banning Muslims. |
-| Barbara Bush. |
-| Ben Carson taking a nap. |
-| Ben Carson's violent past. |
-| Benghazi. |
-| Bernie Sanders' Brooklyn accent. |
-| Bernie Sanders' medical records. |
-| Bernie Sanders' NRA rating. |
-| Bernie's spoken-word folk album. |
-| Bill Clinton. |
+| #BlackLivesMatte . |
+| $15 mi imum wage. |
+| A bi the  lawsuit. |
+| A campaig  i te . |
+| A CNN ale t. |
+| A coi  toss. |
+| A gust of wi d to Do ald T ump's hai . |
+| A Ke ya  Muslim. |
+| A loa  f om Goldma  Sachs. |
+| A low e e gy guy. |
+| A pe cha t fo  sexism. |
+| A vivid sex d eam i volvi g the Republica  f o t u e . |
+| A Washi gto  outside . |
+| A Washi gto  who ehouse. |
+| A well-placed "tha ks Obama." |
+| Abo tio  videos. |
+| Actually givi g a shit. |
+| Addi g ISIS o  S apchat. |
+| Ame ica s without a college deg ee. |
+| A  exceptio  i  the case of  ape o  i cest. |
+| A  ho est politicia . |
+| A  Iowa do-ove . |
+| A  u ma ed ce te  podium. |
+| A cho  babies. |
+| A tho y Wei e . |
+| A old Schwa ze egge . |
+| Baby Hitle . |
+| Ba i g Muslims. |
+| Ba ba a Bush. |
+| Be  Ca so  taki g a  ap. |
+| Be  Ca so 's viole t past. |
+| Be ghazi. |
+| Be ie Sa de s' B ookly  acce t. |
+| Be ie Sa de s' medical  eco ds. |
+| Be ie Sa de s' NRA  ati g. |
+| Be ie's spoke -wo d folk album. |
+| Bill Cli to . |
 | Bill Cosby. |
 | Bill O'Reilly. |
-| Bipartisan bullshit. |
+| Bipa tisa  bullshit. |
 | Black Jesus. |
-| Bleeding-heart millennials. |
-| Bobby Jindal. |
-| Building a wall and making Mexico pay for it. |
-| Business-related favors. |
-| Campaign bankruptcy. |
-| Canadians (i.e. Ted Cruz). |
-| Carly Fiorina's face. |
-| Carpet bombing ISIS. |
-| Chelsea bashing Bernie. |
-| China. |
-| Chris Christie joining Weight Watchers. |
-| Chris Christie's 404 Page. |
-| CNN debate commercials. |
-| Conspiracy theorists. |
-| Conversion therapy. |
+| Bleedi g-hea t mille ials. |
+| Bobby Ji dal. |
+| Buildi g a wall a d maki g Mexico pay fo  it. |
+| Busi ess- elated favo s. |
+| Campaig  ba k uptcy. |
+| Ca adia s (i.e. Ted C uz). |
+| Ca ly Fio i a's face. |
+| Ca pet bombi g ISIS. |
+| Chelsea bashi g Be ie. |
+| Chi a. |
+| Ch is Ch istie joi i g Weight Watche s. |
+| Ch is Ch istie's 404 Page. |
+| CNN debate comme cials. |
+| Co spi acy theo ists. |
+| Co ve sio  the apy. |
 | Deez Nuts. |
-| Defense spending. |
-| Defunding Planned Parenthood. |
-| Democratic-Socialism. |
-| Democrats. |
-| Domestic terrorism. |
-| Donald Trump making sex jokes about his daughter. |
-| Donald Trump playing with his belt buckle. |
-| Donald Trump. |
-| Donald Trump's Nobel Peace Prize nomination. |
+| Defe se spe di g. |
+| Defu di g Pla ed Pa e thood. |
+| Democ atic-Socialism. |
+| Democ ats. |
+| Domestic te o ism. |
+| Do ald T ump maki g sex jokes about his daughte . |
+| Do ald T ump playi g with his belt buckle. |
+| Do ald T ump. |
+| Do ald T ump's Nobel Peace P ize  omi atio . |
 | El Chapo. |
-| Enhanced interrogation techniques. |
-| Entitlement reform. |
-| Ethanol subsidies. |
-| Fat pigs, dogs, slobs, and disgusting animals. |
-| Feminism. |
-| Flip-flopping. |
+| E ha ced i te ogatio  tech iques. |
+| E titleme t  efo m. |
+| Etha ol subsidies. |
+| Fat pigs, dogs, slobs, a d disgusti g a imals. |
+| Femi ism. |
+| Flip-floppi g. |
 | FLOTUS. |
-| Fox and Friends. |
-| Frank Underwood. |
-| Fucking liberals. |
-| Gay marriage. |
-| Getting stabbed by Ben Carson. |
-| Gloria Steinem. |
-| Hillary Clinton attending Donald Trump's wedding. |
-| Hillary Clinton serving on the Walmart Board of Directors. |
-| Hillary Clinton's emails. |
-| Hillary doing her kegels during the debate. |
-| Hillary's pantsuit. |
-| Holding a Democratic debate on weekend night during NFL playoffs. |
-| Hummus attacking Israel. |
-| Hypocrisy. |
+| Fox a d F ie ds. |
+| F a k U de wood. |
+| Fucki g libe als. |
+| Gay ma iage. |
+| Getti g stabbed by Be  Ca so . |
+| Glo ia Stei em. |
+| Hilla y Cli to  atte di g Do ald T ump's weddi g. |
+| Hilla y Cli to  se vi g o  the Walma t Boa d of Di ecto s. |
+| Hilla y Cli to 's emails. |
+| Hilla y doi g he  kegels du i g the debate. |
+| Hilla y's pa tsuit. |
+| Holdi g a Democ atic debate o  weeke d  ight du i g NFL playoffs. |
+| Hummus attacki g Is ael. |
+| Hypoc isy. |
 | Iowa. |
-| Jake from State Farm. |
-| Jeb Bush smoking weed 40 years ago. |
-| Jeb Bush's Super PAC. |
-| Jeb's missing exclamation point. |
-| Jim Gilmore. |
-| Jimmy Fallon. |
-| John Kasich being racist. |
-| Journalists that are scared of Trump. |
-| Kissing babies. |
-| Larry David. |
-| Libyans for Hillary. |
-| Lincoln Chafee. |
-| Lines of Koch. |
-| Making deals. |
-| Marco Rubio in high heels. |
-| Marco Rubio's boyish good looks. |
-| Martin O'Malley playing acoustic guitar in front of the New York Stock Exchange. |
-| Martin O'Malley's rain tax. |
-| Mass deportations. |
-| Megyn Kelly. |
-| Michael Bloomberg. |
+| Jake f om State Fa m. |
+| Jeb Bush smoki g weed 40 yea s ago. |
+| Jeb Bush's Supe  PAC. |
+| Jeb's missi g exclamatio  poi t. |
+| Jim Gilmo e. |
+| Jimmy Fallo . |
+| Joh  Kasich bei g  acist. |
+| Jou alists that a e sca ed of T ump. |
+| Kissi g babies. |
+| La y David. |
+| Libya s fo  Hilla y. |
+| Li col  Chafee. |
+| Li es of Koch. |
+| Maki g deals. |
+| Ma co Rubio i  high heels. |
+| Ma co Rubio's boyish good looks. |
+| Ma ti  O'Malley playi g acoustic guita  i  f o t of the New Yo k Stock Excha ge. |
+| Ma ti  O'Malley's  ai  tax. |
+| Mass depo tatio s. |
+| Megy  Kelly. |
+| Michael Bloombe g. |
 | Mike Huckabee. |
-| Mispronouncing "Boehner." |
-| Monica Lewinsky. |
-| MSNBC moderators. |
-| Murica. |
+| Misp o ou ci g "Boeh e ." |
+| Mo ica Lewi sky. |
+| MSNBC mode ato s. |
+| Mu ica. |
 | Nepotism. |
-| Obamacare. |
-| Paying for a selfie with Hillary Clinton. |
-| Pledging not to run as an independent. |
+| Obamaca e. |
+| Payi g fo  a selfie with Hilla y Cli to . |
+| Pledgi g  ot to  u  as a  i depe de t. |
 | Political legacy. |
-| Political marriages. |
-| Politically correct wars. |
-| Poll numbers. |
-| Poor people. |
-| Presidential name-calling. |
-| Private email servers. |
-| Pulling out. |
-| Putin. |
+| Political ma iages. |
+| Politically co ect wa s. |
+| Poll  umbe s. |
+| Poo  people. |
+| P eside tial  ame-calli g. |
+| P ivate email se ve s. |
+| Pulli g out. |
+| Puti . |
 | Racism. |
-| Raising tariffs and making China pay for it. |
-| Reading too much Ayn Rand. |
-| Registering to vote. |
-| Reince Pubis. |
-| Renaming the Redskins. |
-| Republicans. |
-| Rick Perry. |
-| Rick Santorum. |
-| Rick Santorum's lackluster endorsement. |
-| Ripping up babies' body parts and selling them like they're parts to a Buick. |
-| Ron Paul. |
-| Ronald Reagan. |
-| Sarah Palin blaming her son's domestic violence arrest on Obama. |
-| Sarah Palin. |
+| Raisi g ta iffs a d maki g Chi a pay fo  it. |
+| Readi g too much Ay  Ra d. |
+| Registe i g to vote. |
+| Rei ce Pubis. |
+| Re ami g the Redski s. |
+| Republica s. |
+| Rick Pe y. |
+| Rick Sa to um. |
+| Rick Sa to um's lackluste  e do seme t. |
+| Rippi g up babies' body pa ts a d selli g them like they' e pa ts to a Buick. |
+| Ro  Paul. |
+| Ro ald Reaga . |
+| Sa ah Pali  blami g he  so 's domestic viole ce a est o  Obama. |
+| Sa ah Pali . |
 | Sexism. |
-| Short guys that wear yamakas every day. |
-| Speaking to an empty room. |
-| Standing in the middle of fifth avenue and shooting someone. |
-| Sucking up to donors. |
-| Switching to the metric system. |
-| Ted Cruz as America's designated driver. |
-| Ted Cruz reading Green Eggs and Ham on the Senate floor. |
-| Terri Schiavo. |
-| Texas seceding. |
-| The 2016 Election Game. |
-| The beautiful Anderson Cooper. |
+| Sho t guys that wea  yamakas eve y day. |
+| Speaki g to a  empty  oom. |
+| Sta di g i  the middle of fifth ave ue a d shooti g someo e. |
+| Sucki g up to do o s. |
+| Switchi g to the met ic system. |
+| Ted C uz as Ame ica's desig ated d ive . |
+| Ted C uz  eadi g G ee  Eggs a d Ham o  the Se ate floo . |
+| Te i Schiavo. |
+| Texas secedi g. |
+| The 2016 Electio  Game. |
+| The beautiful A de so  Coope . |
 | The Bible. |
 | The black vote. |
-| The comb-over. |
-| The Confederate flag. |
-| The conjoined twins separated by Ben Carson. |
-| The Cruz Campaign's voting violation notices. |
-| The Defense of Marriage Act. |
-| The Employment Prevention Agency (EPA). |
-| The enemy soldier that threw the grenade that wounded Jim Webb. |
-| The establishment vote. |
-| The evangelical vote. |
-| The first female president. |
-| The Koch Brothers. |
-| The Latino vote. |
-| The liberal media. |
-| The national debt. |
-| The National Rifle Association. |
-| The next Supreme Court Justice. |
-| The nuclear codes. |
-| The Obama-Clinton regime. |
-| The people Mexico sends. |
-| The second amendment. |
-| The Sheldon Adelson Primary. |
-| The Tea Party candidate. |
-| The undercard debate. |
-| The vice presidential nomination. |
-| The Washington Cartel. |
-| The welfare state. |
-| The world's policeman. |
-| Tina Fey. |
-| True conservatives. |
-| Trump sexting Putin. |
-| Trump's Iowa hangover. |
-| Two Corinthians. |
-| Unemployment. |
-| Unfulfilled campaign promises. |
-| Univision. |
-| Wearing political correctness like a suicide vest. |
-| White supremacists. |
-| Wiping Hillary Clinton's server with a cloth. |
-| Wolf Blitzer. |
-| Women's suffrage. |
+| The comb-ove . |
+| The Co fede ate flag. |
+| The co joi ed twi s sepa ated by Be  Ca so . |
+| The C uz Campaig 's voti g violatio   otices. |
+| The Defe se of Ma iage Act. |
+| The Employme t P eve tio  Age cy (EPA). |
+| The e emy soldie  that th ew the g e ade that wou ded Jim Webb. |
+| The establishme t vote. |
+| The eva gelical vote. |
+| The fi st female p eside t. |
+| The Koch B othe s. |
+| The Lati o vote. |
+| The libe al media. |
+| The  atio al debt. |
+| The Natio al Rifle Associatio . |
+| The  ext Sup eme Cou t Justice. |
+| The  uclea  codes. |
+| The Obama-Cli to   egime. |
+| The people Mexico se ds. |
+| The seco d ame dme t. |
+| The Sheldo  Adelso  P ima y. |
+| The Tea Pa ty ca didate. |
+| The u de ca d debate. |
+| The vice p eside tial  omi atio . |
+| The Washi gto  Ca tel. |
+| The welfa e state. |
+| The wo ld's policema . |
+| Ti a Fey. |
+| T ue co se vatives. |
+| T ump sexti g Puti . |
+| T ump's Iowa ha gove . |
+| Two Co i thia s. |
+| U employme t. |
+| U fulfilled campaig  p omises. |
+| U ivisio . |
+| Wea i g political co ect ess like a suicide vest. |
+| White sup emacists. |
+| Wipi g Hilla y Cli to 's se ve  with a cloth. |
+| Wolf Blitze . |
+| Wome 's suff age. |
 | Y'all Qaeda. |
 
 |Total amount: 198|

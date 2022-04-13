@@ -51,267 +51,267 @@ Answers amount: 259
 |---|
 
 ### Answers
-| Question |
+| Answers |
 |---|
-| A 103° fever. |
-| A Baby Bjorn. |
-| A banana and two cherries. |
+| A 103° feve . |
+| A Baby Bjo . |
+| A ba a a a d two che ies. |
 | A boy. |
-| A breath of fresh air |
-| A broken condom. |
-| A bun in the oven. |
-| A changing table at a gas station. |
-| A choking hazard. |
-| A Costco-sized container of wet naps. |
-| A dental damn. |
-| A diaper full of melted candy bars. |
-| A Diaper Genie. |
-| A dirty martini. |
-| A family outing. |
-| A girl. |
-| A grown man wearing diapers and sucking on a bottle. |
-| A high chair. |
-| A home water birth. |
+| A b eath of f esh ai  |
+| A b oke  co dom. |
+| A bu  i  the ove . |
+| A cha gi g table at a gas statio . |
+| A choki g haza d. |
+| A Costco-sized co tai e  of wet  aps. |
+| A de tal dam . |
+| A diape  full of melted ca dy ba s. |
+| A Diape  Ge ie. |
+| A di ty ma ti i. |
+| A family outi g. |
+| A gi l. |
+| A g ow  ma  wea i g diape s a d sucki g o  a bottle. |
+| A high chai . |
+| A home wate  bi th. |
 | A life. |
-| A lotus birth. |
-| A moment so special you realize it was all worth it. |
-| A needle as long as your forearm. |
-| A pack of unfiltered cigarettes. |
-| A Pentecostal, snake-handling chaplain in the Kentucky National Guard. |
-| A poopy diaper. |
-| A positive pregnancy test. |
-| A prenatal massage. |
-| A rush of oxytocin. |
-| A shotgun wedding. |
+| A lotus bi th. |
+| A mome t so special you  ealize it was all wo th it. |
+| A  eedle as lo g as you  fo ea m. |
+| A pack of u filte ed ciga ettes. |
+| A Pe tecostal, s ake-ha dli g chaplai  i  the Ke tucky Natio al Gua d. |
+| A poopy diape . |
+| A positive p eg a cy test. |
+| A p e atal massage. |
+| A  ush of oxytoci . |
+| A shotgu  weddi g. |
 | A sippy cup. |
-| A sound night's sleep. |
-| A surrogate wish list. |
-| A trail of Cheerios leading to the hall closet. |
+| A sou d  ight's sleep. |
+| A su ogate wish list. |
+| A t ail of Chee ios leadi g to the hall closet. |
 | a twat flash |
 | A vasectomy. |
-| A virgin birth. |
-| A wet nurse. |
+| A vi gi  bi th. |
+| A wet  u se. |
 | Alcohol. |
-| Aliens. |
-| An awkward middle name. |
-| An epidural. |
-| An episiotomy. |
-| An unexpected stripper. |
-| Baby butt cream. |
-| Baby proofing the house. |
-| Baby sign language. |
-| Baby's first step. |
-| Baby's first word. |
+| Alie s. |
+| A  awkwa d middle  ame. |
+| A  epidu al. |
+| A  episiotomy. |
+| A  u expected st ippe . |
+| Baby butt c eam. |
+| Baby p oofi g the house. |
+| Baby sig  la guage. |
+| Baby's fi st step. |
+| Baby's fi st wo d. |
 | Bath time. |
-| Being 9½ months pregnant. |
-| Being 99% sure the baby is yours. |
-| Being able to eat whatever you want... except a long list of things. |
-| Being knocked up. |
-| Being mistaken for the nanny. |
-| Bieng covered in partially digested breast milk... all the time. |
-| Bodily functions. |
-| Breastfeeding in public. |
-| Caffeine. |
-| Captain Fetus. |
-| Celebrity baby names. |
-| Chafed nipples. |
-| Checking for GMOs on every food label. |
-| Child beauty pageants. |
-| Choosing a baby name based on its availability as a website. |
-| Choosing disposable diapers. |
-| Choosing not to know the baby's gender. |
-| Circumcision. |
-| Cleaning the pacifier by wiping it with your mouth. |
-| Comfortable sweatpants. |
-| Contraception. |
-| Cryopreserved cord blood. |
-| Cutting the umbilical cord. |
-| Dad singing lullabies. |
+| Bei g 9½ mo ths p eg a t. |
+| Bei g 99% su e the baby is you s. |
+| Bei g able to eat whateve  you wa t... except a lo g list of thi gs. |
+| Bei g k ocked up. |
+| Bei g mistake  fo  the  a y. |
+| Bie g cove ed i  pa tially digested b east milk... all the time. |
+| Bodily fu ctio s. |
+| B eastfeedi g i  public. |
+| Caffei e. |
+| Captai  Fetus. |
+| Celeb ity baby  ames. |
+| Chafed  ipples. |
+| Checki g fo  GMOs o  eve y food label. |
+| Child beauty pagea ts. |
+| Choosi g a baby  ame based o  its availability as a website. |
+| Choosi g disposable diape s. |
+| Choosi g  ot to k ow the baby's ge de . |
+| Ci cumcisio . |
+| Clea i g the pacifie  by wipi g it with you  mouth. |
+| Comfo table sweatpa ts. |
+| Co t aceptio . |
+| C yop ese ved co d blood. |
+| Cutti g the umbilical co d. |
+| Dad si gi g lullabies. |
 | Dad. |
-| Dancing all night. |
-| Date night. |
-| Deciding whether babies are allowed in the "man cave". |
-| Eating for two. |
-| Eating solid foods. |
-| Eating the placenta. |
-| Elimination communication (poop talk). |
-| Encapsulating the placenta. |
-| Epic farts. |
-| Explaining unconvetional family situations. |
+| Da ci g all  ight. |
+| Date  ight. |
+| Decidi g whethe  babies a e allowed i  the "ma  cave". |
+| Eati g fo  two. |
+| Eati g solid foods. |
+| Eati g the place ta. |
+| Elimi atio  commu icatio  (poop talk). |
+| E capsulati g the place ta. |
+| Epic fa ts. |
+| Explai i g u co vetio al family situatio s. |
 | Explosive poop. |
-| False labor. |
-| Feeling like you've finally created something worthwhile. |
-| Feeling the baby kick for the first time. |
-| Feeling tired. |
-| Filling out preschool applications while still pregnant. |
-| Finding an OB/GYN that understands "your needs". |
-| Finding out where babies really come from. |
-| Finding out who the baby daddy is on a talk show. |
-| Finding yourself in a delicate way. |
-| Finding yourself in a family way. |
-| Following the "helpful"advice of uncle Rick. |
-| Formula made in China. |
-| Fornication. |
-| Fries dipped in a chocolate milkshake. |
-| Gagging on a horse-pill sized prenatal vitamin. |
-| Gerber baby food. |
-| Gestational diabetes. |
-| Getting pee in your face while changing a diaper. |
-| Getting pregnant the first time you have sex. |
-| Getting your friends to help with a post-baby Meal Train. |
-| Giving a positive reaction to a baby shower gift you don't want. |
-| Giving all the kids a present on everyone's birthday so no one gets jealous. |
-| Going back to work to pay for preschool. |
-| Going into labor. |
-| Going on vacation. |
-| Going to the ER in a panic only to discover nothing is wrong. |
-| Googling "breastfeeding" and finding more than you bargained for. |
-| Having a beer to stimulate milk production. |
-| Having a stranger touch your belly. |
-| Having another baby. |
-| Having just one glass of champagne. |
-| Having more sex while pregnant than you were before. |
-| Having sex too soon after giving birth. |
-| Having surprise twins... or triplets! |
-| Having your mom stay for a week to help with the new baby. |
-| Hemorrhoids? |
-| Holding the baby for the first time. |
+| False labo . |
+| Feeli g like you've fi ally c eated somethi g wo thwhile. |
+| Feeli g the baby kick fo  the fi st time. |
+| Feeli g ti ed. |
+| Filli g out p eschool applicatio s while still p eg a t. |
+| Fi di g a  OB/GYN that u de sta ds "you   eeds". |
+| Fi di g out whe e babies  eally come f om. |
+| Fi di g out who the baby daddy is o  a talk show. |
+| Fi di g you self i  a delicate way. |
+| Fi di g you self i  a family way. |
+| Followi g the "helpful"advice of u cle Rick. |
+| Fo mula made i  Chi a. |
+| Fo icatio . |
+| F ies dipped i  a chocolate milkshake. |
+| Gaggi g o  a ho se-pill sized p e atal vitami . |
+| Ge be  baby food. |
+| Gestatio al diabetes. |
+| Getti g pee i  you  face while cha gi g a diape . |
+| Getti g p eg a t the fi st time you have sex. |
+| Getti g you  f ie ds to help with a post-baby Meal T ai . |
+| Givi g a positive  eactio  to a baby showe  gift you do 't wa t. |
+| Givi g all the kids a p ese t o  eve yo e's bi thday so  o o e gets jealous. |
+| Goi g back to wo k to pay fo  p eschool. |
+| Goi g i to labo . |
+| Goi g o  vacatio . |
+| Goi g to the ER i  a pa ic o ly to discove   othi g is w o g. |
+| Googli g "b eastfeedi g" a d fi di g mo e tha  you ba gai ed fo . |
+| Havi g a bee  to stimulate milk p oductio . |
+| Havi g a st a ge  touch you  belly. |
+| Havi g a othe  baby. |
+| Havi g just o e glass of champag e. |
+| Havi g mo e sex while p eg a t tha  you we e befo e. |
+| Havi g sex too soo  afte  givi g bi th. |
+| Havi g su p ise twi s... o  t iplets! |
+| Havi g you  mom stay fo  a week to help with the  ew baby. |
+| Hemo hoids? |
+| Holdi g the baby fo  the fi st time. |
 | Homemade baby food. |
-| Hoping you go into labor before Mecury goes retrograde. |
-| Hormonal changes. |
-| Hot maternity lingerie. |
-| In utero baby hiccups. |
-| Inappropriate boners. |
-| Inappropriate questions about your weight before you've told anyone you're pregnant. |
-| Inducing labor. |
-| Intersex gender. |
-| Itchy homemade baby blankets. |
-| Justifying my life choices to well-meaning strangers. |
-| Kangaroo care. |
-| Keeping your favorite baby stroller...even after it has been recalled. |
-| Knowing what your baby is saying even when it sounds like gibberish to everyone else. |
-| Lame baby shower games. |
+| Hopi g you go i to labo  befo e Mecu y goes  et og ade. |
+| Ho mo al cha ges. |
+| Hot mate ity li ge ie. |
+| I  ute o baby hiccups. |
+| I app op iate bo e s. |
+| I app op iate questio s about you  weight befo e you've told a yo e you' e p eg a t. |
+| I duci g labo . |
+| I te sex ge de . |
+| Itchy homemade baby bla kets. |
+| Justifyi g my life choices to well-mea i g st a ge s. |
+| Ka ga oo ca e. |
+| Keepi g you  favo ite baby st olle ...eve  afte  it has bee   ecalled. |
+| K owi g what you  baby is sayi g eve  whe  it sou ds like gibbe ish to eve yo e else. |
+| Lame baby showe  games. |
 | Lead based toys. |
-| Learning another language so your baby can grow up bilingual. |
-| Letting the pregnant lady cut ahead of you in the bathroom line. |
-| Lochia. (don't ask) |
-| Looking forward to the first family Christmas photo with the new baby. |
-| Losing my virginity. |
+| Lea i g a othe  la guage so you  baby ca  g ow up bili gual. |
+| Letti g the p eg a t lady cut ahead of you i  the bath oom li e. |
+| Lochia. (do 't ask) |
+| Looki g fo wa d to the fi st family Ch istmas photo with the  ew baby. |
+| Losi g my vi gi ity. |
 | LSD. |
-| Making a decision about what to do with the placenta. |
-| Maternity fashion. |
-| Meconium, or "Black tar alien poop". |
-| Milky dribble. |
-| Mistaking diaper cream for sunscreen. |
-| Mittelschmerz. |
+| Maki g a decisio  about what to do with the place ta. |
+| Mate ity fashio . |
+| Meco ium, o  "Black ta  alie  poop". |
+| Milky d ibble. |
+| Mistaki g diape  c eam fo  su sc ee . |
+| Mittelschme z. |
 | Mom's ability to take a cock. |
-| Mommy's little helper. |
-| Mood swings. |
-| morning wood |
-| Mother's intuition. |
-| Mother's love? |
-| My mother-in-law's advice. |
-| Naming the baby after a celebrity that suffers a scandal a year later. |
-| Natural childbirth. |
+| Mommy's little helpe . |
+| Mood swi gs. |
+| mo i g wood |
+| Mothe 's i tuitio . |
+| Mothe 's love? |
+| My mothe -i -law's advice. |
+| Nami g the baby afte  a celeb ity that suffe s a sca dal a yea  late . |
+| Natu al childbi th. |
 | Neck cheese. |
-| Night-vision baby monitors. |
-| Not being able to take the baby... anywhere! |
-| Not being sure whether that's the baby kicking... or gas. |
-| On the playa... six months pregnant. |
-| One million YouTube views of "Doo Doo on Dada". |
-| Onesies branded with cultural references the baby will never get. |
-| Organic everything. |
-| Ovaries... the female gonads. |
-| Peeing? |
-| Phantom pregnancy. |
-| Pickles and ice cream. |
-| Post-partum depression. |
-| Posting the baby's video sonogram on the internet. |
-| Pregnancy euphemisms. |
-| Pregnancy gas. |
-| Projectile vomiting |
-| Prom night. |
-| Pulling pits. |
-| Pumping breast milk. |
-| Pureed peas. |
-| Putting a condom on a banana. |
-| Putting a rolled up towel next to you so you don't smother your co-sleeping baby. |
-| Putting it up for adoption. |
-| Putting the car seat in the front to use the carpool lane. |
-| Realizing "cribs" is not just a TV show. |
-| Realizing the hospital doesn't allow video cameras in the delivery room. |
-| Realizing the only two phone numbers you know are your spouse's and OB/GYN's. |
-| Recreational drugs. |
-| Remembering how much fun a rattle can be... at first. |
-| Requesting a paternity test. |
-| Requesting an epidural too late. |
-| Same-sex parents. |
-| Scheduling a C-section a week early. |
-| Secretly driving the baby without a car seat. |
-| Seeing your feet again. |
-| Skin as smooth as a baby's bottom. |
-| Sleeping through the night. |
+| Night-visio  baby mo ito s. |
+| Not bei g able to take the baby... a ywhe e! |
+| Not bei g su e whethe  that's the baby kicki g... o  gas. |
+| O  the playa... six mo ths p eg a t. |
+| O e millio  YouTube views of "Doo Doo o  Dada". |
+| O esies b a ded with cultu al  efe e ces the baby will  eve  get. |
+| O ga ic eve ythi g. |
+| Ova ies... the female go ads. |
+| Peei g? |
+| Pha tom p eg a cy. |
+| Pickles a d ice c eam. |
+| Post-pa tum dep essio . |
+| Posti g the baby's video so og am o  the i te et. |
+| P eg a cy euphemisms. |
+| P eg a cy gas. |
+| P ojectile vomiti g |
+| P om  ight. |
+| Pulli g pits. |
+| Pumpi g b east milk. |
+| Pu eed peas. |
+| Putti g a co dom o  a ba a a. |
+| Putti g a  olled up towel  ext to you so you do 't smothe  you  co-sleepi g baby. |
+| Putti g it up fo  adoptio . |
+| Putti g the ca  seat i  the f o t to use the ca pool la e. |
+| Realizi g "c ibs" is  ot just a TV show. |
+| Realizi g the hospital does 't allow video came as i  the delive y  oom. |
+| Realizi g the o ly two pho e  umbe s you k ow a e you  spouse's a d OB/GYN's. |
+| Rec eatio al d ugs. |
+| Remembe i g how much fu  a  attle ca  be... at fi st. |
+| Requesti g a pate ity test. |
+| Requesti g a  epidu al too late. |
+| Same-sex pa e ts. |
+| Scheduli g a C-sectio  a week ea ly. |
+| Sec etly d ivi g the baby without a ca  seat. |
+| Seei g you  feet agai . |
+| Ski  as smooth as a baby's bottom. |
+| Sleepi g th ough the  ight. |
 | Soft cheeses. |
-| Somehow managing to fall asleep with a fragile infant next to you. |
-| Spending the baby's college fund. |
-| Spermicide. |
-| Strained carrots. |
-| Striking for the newest rate: Navy Person. |
-| Sucking snot out of the baby's nose. |
-| Sunbathing your belly to prevent jaundice in the baby. |
+| Somehow ma agi g to fall asleep with a f agile i fa t  ext to you. |
+| Spe di g the baby's college fu d. |
+| Spe micide. |
+| St ai ed ca ots. |
+| St iki g fo  the  ewest  ate: Navy Pe so . |
+| Sucki g s ot out of the baby's  ose. |
+| Su bathi g you  belly to p eve t jau dice i  the baby. |
 | Sushi. |
-| Swaddling. |
-| Swimming in utero. |
-| Swollen ankles. |
-| Taking a 9+ month menstruation vacation. |
-| Taking an extended paternity leave. |
-| Talc-free baby powder. |
-| Teenagers recording themselves singing |
-| Telling people the baby's first word was "mom" when it was really "muh". |
-| Temper tantrums. |
-| Ten fingers and ten toes... whew! |
-| Terrible kids TV shows. |
-| That new baby smell. |
-| That pregnancy glow. |
-| That thing where your doula is also your sister. |
-| The broken promise to abstain until marriage. |
-| The comforting embrace of the womb. |
-| The cool touch of a rectal thermometer. |
-| The doctor telling you it's not real, it's all ion your head. |
-| The fear that you will have an evil, talking baby like Stewie from "Family Guy". |
-| The feeling you get when the baby looks back at you with "your eyes". |
-| The hot nanny. |
-| The latest in stroller technology. |
-| The pain, the pain. Oh god! The pain. |
-| The rhythm method. |
-| The straight agenda. |
-| The terrible twos. |
-| The torrid romance of scheduling sex around ovulation. |
-| The water breaking at an inopportune time. |
-| Throwing a gender revealing party. |
-| Throwing Cheerios on the floor. |
-| Throwing the baby out with the bathwater. |
+| Swaddli g. |
+| Swimmi g i  ute o. |
+| Swolle  a kles. |
+| Taki g a 9+ mo th me st uatio  vacatio . |
+| Taki g a  exte ded pate ity leave. |
+| Talc-f ee baby powde . |
+| Tee age s  eco di g themselves si gi g |
+| Telli g people the baby's fi st wo d was "mom" whe  it was  eally "muh". |
+| Tempe  ta t ums. |
+| Te  fi ge s a d te  toes... whew! |
+| Te ible kids TV shows. |
+| That  ew baby smell. |
+| That p eg a cy glow. |
+| That thi g whe e you  doula is also you  siste . |
+| The b oke  p omise to abstai  u til ma iage. |
+| The comfo ti g emb ace of the womb. |
+| The cool touch of a  ectal the momete . |
+| The docto  telli g you it's  ot  eal, it's all io  you  head. |
+| The fea  that you will have a  evil, talki g baby like Stewie f om "Family Guy". |
+| The feeli g you get whe  the baby looks back at you with "you  eyes". |
+| The hot  a y. |
+| The latest i  st olle  tech ology. |
+| The pai , the pai . Oh god! The pai . |
+| The  hythm method. |
+| The st aight age da. |
+| The te ible twos. |
+| The to id  oma ce of scheduli g sex a ou d ovulatio . |
+| The wate  b eaki g at a  i oppo tu e time. |
+| Th owi g a ge de   eveali g pa ty. |
+| Th owi g Chee ios o  the floo . |
+| Th owi g the baby out with the bathwate . |
 | TMI. |
-| Toddlers in tiaras. |
-| Tongue thrusts. (reverse swallowing) |
-| Trying to feel at home in the delivery room. |
-| Trying to find the baby on a sonogram. |
-| Unidentifiable rashes. |
-| Using the last baby wipe when you desparately need another one. |
-| Vaginas. |
-| Vanishing twin. (fetal reabsorption) |
-| Vomit volume in proportion to the niceness of the restaurant you are in. |
-| Vomiting and pooping at the same time. |
-| Waiting past 12 weeks to tell your friends and family you are pregnant. |
-| Waiting too long after giving birth to have sex. |
-| Watermelon! |
-| Waxing "down there" before going into labor. |
-| Whiskey on the gums. |
-| Wishing I hadn't gottn that tattoo on my stomach. |
-| Wishing it was you in the Mamaroo. |
-| Women who say they love being pregnant. |
-| Worrying about getting back to "pre baby" weight. |
-| Worrying about whether it's BPA-free. |
+| Toddle s i  tia as. |
+| To gue th usts. ( eve se swallowi g) |
+| T yi g to feel at home i  the delive y  oom. |
+| T yi g to fi d the baby o  a so og am. |
+| U ide tifiable  ashes. |
+| Usi g the last baby wipe whe  you despa ately  eed a othe  o e. |
+| Vagi as. |
+| Va ishi g twi . (fetal  eabso ptio ) |
+| Vomit volume i  p opo tio  to the  ice ess of the  estau a t you a e i . |
+| Vomiti g a d poopi g at the same time. |
+| Waiti g past 12 weeks to tell you  f ie ds a d family you a e p eg a t. |
+| Waiti g too lo g afte  givi g bi th to have sex. |
+| Wate melo ! |
+| Waxi g "dow  the e" befo e goi g i to labo . |
+| Whiskey o  the gums. |
+| Wishi g I had 't gott  that tattoo o  my stomach. |
+| Wishi g it was you i  the Mama oo. |
+| Wome  who say they love bei g p eg a t. |
+| Wo yi g about getti g back to "p e baby" weight. |
+| Wo yi g about whethe  it's BPA-f ee. |
 
 |Total amount: 259|
 |---|

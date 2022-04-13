@@ -14,35 +14,46 @@ Answers amount: 27
 |---|
 
 ### Answers
-| Question |
+| Answers |
 |---|
-| 30 grown adults crawling around on all-fours. |
-| A man who has not heard of a Jellicle cat. |
-| Becoming Mr. Mistoffelees. |
-| Bustopher Jones. |
-| Carbucketty. |
-| Feline AIDS. |
-| Garfield. |
-| Griddlebone. |
-| Grizabella, the glamour cat. |
-| Growltiger. |
-| Grump Cat. |
+| 30 g ow  adults c awli g a ou d o  all-fou s. |
+| A ma  who has  ot hea d of a Jellicle cat. |
+| Becomi g M . Mistoffelees. |
+| Bustophe  Jo es. |
+| Ca bucketty. |
+| Feli e AIDS. |
+| Ga field. |
+| G iddlebo e. |
+| G izabella, the glamou  cat. |
+| G owltige . |
+| G ump Cat. |
 | Gus: the Palsy Cat. |
 | Heathcliff. |
 | Jellicle cats. |
 | Macavity! |
-| Memory. |
+| Memo y. |
 | Meow. |
-| Mungojerrie and Rumpleteazer. |
-| Munkustrap. |
-| Old Deuteronomy. |
-| Peter, Augustus, Alonzo, or James. |
-| Practical cats,dramatical cats,oratical cats,sceptical cats,romantical cats,parasitical cats,statistical cats,political cats,hypocritical cats,clerical cats,cynical cats,rabbinical cats. |
-| Rum Tum Tugger. |
-| Shimbleshanks. |
-| Sir Andrew Lloyd Webber. |
-| The mystical divinity of unashamed felinity. |
-| Winkles and shrimps. |
+| Mu goje ie a d Rumpleteaze . |
+| Mu kust ap. |
+| Old Deute o omy. |
+| Pete , Augustus, Alo zo, o  James. |
+| P actical cats,
+d amatical cats,
+o atical cats,
+sceptical cats,
+ oma tical cats,
+pa asitical cats,
+statistical cats,
+political cats,
+hypoc itical cats,
+cle ical cats,
+cy ical cats,
+ abbi ical cats. |
+| Rum Tum Tugge . |
+| Shimblesha ks. |
+| Si  A d ew Lloyd Webbe . |
+| The mystical divi ity of u ashamed feli ity. |
+| Wi kles a d sh imps. |
 
 |Total amount: 27|
 |---|

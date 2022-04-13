@@ -87,8 +87,7 @@ Answers amount: 636
 | It`s been revealed that Disney`s latest animated film will be called - _. | 1 |
 | Just because you're married doesn't mean you have to give up _. | 1 |
 | Leading marriage experts suggest _ to improve your intimacy. | 1 |
-| Love is patient.Love is kind.
-Love is _. | 1 |
+| Love is patient. Love is kind. Love is _. | 1 |
 | Making love to the person reading this card is like _. | 1 |
 | Marriage is like _: it's alawys over sooner than you think. | 1 |
 | Martha Stewart always says that you can never have enough _ around the house. | 1 |
@@ -175,644 +174,648 @@ Love is _. | 1 |
 |---|
 
 ### Answers
-| Question |
+| Answers |
 |---|
-| "Intimacy issues." |
-| A "business trip." |
-| A 50% divorce rate. |
-| A bizarre love octagon. |
-| A botched genital piercing. |
-| A butthole full of mustard. |
-| A colorful assortment of butt plugs. |
-| A daily, futile power struggle. |
-| A demonstration of who really wears the pants in this family. |
-| A diamond the size of Uranus. |
+| "I timacy issues." |
+| A "busi ess t ip." |
+| A 50% divo ce  ate. |
+| A biza e love octago . |
+| A botched ge ital pie ci g. |
+| A butthole full of musta d. |
+| A colo ful asso tme t of butt plugs. |
+| A daily, futile powe  st uggle. |
+| A demo st atio  of who  eally wea s the pa ts i  this family. |
+| A diamo d the size of U a us. |
 | A digital chastity belt. |
-| A disturbingly life-like blow-up doll. |
-| A DJ with a Wham! obsession. |
-| A drunk karaoke version of "Take My Breath Away." |
-| A drunk relative muttering racial slurs. |
-| A forged prescription for STD meds. |
-| A gag ball and a riding crop. |
-| A godless harlot. |
-| A good old-fashioned case of whiskey dick. |
-| A groomsman confessing he always secretly loved you. |
-| A groomsman in a kilt ...and nothing else. |
-| A half-finished Brazilian wax job. |
-| A happy ending. |
+| A distu bi gly life-like blow-up doll. |
+| A DJ with a Wham! obsessio . |
+| A d u k ka aoke ve sio  of "Take My B eath Away." |
+| A d u k  elative mutte i g  acial slu s. |
+| A fo ged p esc iptio  fo  STD meds. |
+| A gag ball a d a  idi g c op. |
+| A godless ha lot. |
+| A good old-fashio ed case of whiskey dick. |
+| A g oomsma  co fessi g he always sec etly loved you. |
+| A g oomsma  i  a kilt ...a d  othi g else. |
+| A half-fi ished B azilia  wax job. |
+| A happy e di g. |
 | A hasty vasectomy. |
-| A healthy work-life balance. |
-| A heart made of sentient nanobots. |
-| A heart-shaped Jacuzzi filled with champagne and Viagra™. |
-| A hickey from a stripper. |
-| A hot neighbor with no conscience and nothing to lose. |
-| A lifetime of crippling regret. |
-| A lifetime of judgmental glances from your in-laws. |
-| A lifetime subscription to Big Black Butts magazine. |
-| A little same-sex experimentation. |
-| A little too much glitter. |
-| A long, awkward pause before she says "I do." |
-| A maid of honor with no shame.No. Shame. |
-| A mediocre dominatrix. |
-| A misunderstanding involving a strap-on. |
-| A mustache ride. |
-| A mysterious stain on his tuxedo. |
-| A nervous breakdown at IKEA.™ |
-| A pair of rusty handcuffs and a bottle of lube. |
-| A pale slurry of tears, icing, and denial. |
-| A penis that's almost too big. |
-| A penis with a smiley face. |
-| A pound of weed and a Mexican stripper. |
-| A quivering pile of love jelly. |
-| A raging libido. |
-| A reluctant, eye-rolling apology. |
-| A secret second family in Canada. |
-| A see-through wedding gown. |
-| A severed finger in the wedding cake. |
-| A shrieking biological alarm clock. |
-| A small price to pay for half off the catering. |
-| A solid five-year plan. |
-| A tasteful spray tan. |
-| A thousand shitty wedding-planning websites. |
-| A three-way in Vegas. |
-| A timeless reading from Fifty Shades of Grey. |
-| A top-shelf prostitute. |
+| A healthy wo k-life bala ce. |
+| A hea t made of se tie t  a obots. |
+| A hea t-shaped Jacuzzi filled with champag e a d Viag a™. |
+| A hickey f om a st ippe . |
+| A hot  eighbo  with  o co scie ce a d  othi g to lose. |
+| A lifetime of c ippli g  eg et. |
+| A lifetime of judgme tal gla ces f om you  i -laws. |
+| A lifetime subsc iptio  to Big Black Butts magazi e. |
+| A little same-sex expe ime tatio . |
+| A little too much glitte . |
+| A lo g, awkwa d pause befo e she says "I do." |
+| A maid of ho o  with  o shame.
+
+No. Shame. |
+| A medioc e domi at ix. |
+| A misu de sta di g i volvi g a st ap-o . |
+| A mustache  ide. |
+| A myste ious stai  o  his tuxedo. |
+| A  e vous b eakdow  at IKEA.™ |
+| A pai  of  usty ha dcuffs a d a bottle of lube. |
+| A pale slu y of tea s, ici g, a d de ial. |
+| A pe is that's almost too big. |
+| A pe is with a smiley face. |
+| A pou d of weed a d a Mexica  st ippe . |
+| A quive i g pile of love jelly. |
+| A  agi g libido. |
+| A  elucta t, eye- olli g apology. |
+| A sec et seco d family i  Ca ada. |
+| A see-th ough weddi g gow . |
+| A seve ed fi ge  i  the weddi g cake. |
+| A sh ieki g biological ala m clock. |
+| A small p ice to pay fo  half off the cate i g. |
+| A solid five-yea  pla . |
+| A tasteful sp ay ta . |
+| A thousa d shitty weddi g-pla i g websites. |
+| A th ee-way i  Vegas. |
+| A timeless  eadi g f om Fifty Shades of G ey. |
+| A top-shelf p ostitute. |
 | A veil made out of duct tape. |
-| A waterproof, vibrating attachment. |
-| Admitting defeat. |
+| A wate p oof, vib ati g attachme t. |
+| Admitti g defeat. |
 | Adulthood |
-| All the sacrifices that come with it. |
-| An elaborate alien abduction fantasy. |
-| An unacceptable volume of body hair. |
-| Bad dragon erotica. |
-| Being kind of hormonal. |
-| Being too hung-over for a hand job. |
-| Blaming it on the dog. |
-| Blaring "Gangnam Style" on repeat. |
-| Blood on the sheets. |
-| Breaking the hymen. |
-| Brides.com |
-| Cashing in the kids' college fund to pay off your substantial gambling debts. |
-| Cat-like night vision. |
-| Changing both your last names to "Danger." |
-| CheapRussian |
-| Coveting your neighbor's polyamorous lifestyle. |
-| Daily reminders about who actually pays the mortgage. |
-| Decorating the house with vagina-inspired artwork. |
-| Deep existential loneliness. |
-| Delirious, infectious happiness. |
-| Doing what Jesus would do. |
-| Don Draper. |
-| Drinking your troubles away nightly. |
-| Each other. |
-| Fairy-themed cosplay. |
-| Faking a pregnancy. |
-| Faking it until making it. |
-| Falling a little more in love every day forever. |
-| Falling asleep during oral sex. |
-| Far too many dildos. |
-| Feelings of inadequacy. |
-| Fighting over the remote control. |
-| Fighting over whether or not you're fighting. |
-| Finding out you're actually cousins. |
-| Finding your soul mate. |
-| Foreskin. |
-| Forgetting the safe word. |
-| Forgetting your anniversary, year after year. |
-| Forgetting your birth control pills. |
-| Gay porn |
-| Getting a dog. |
-| Getting a pube stuck in your teeth. |
-| Getting caught masturbating to hentai porn. |
-| Getting high and making out. |
-| Getting kicked out of your own wedding reception. |
-| Getting tired of being on top. |
-| Going black, and never going back. |
-| Gratuitous PDA on Facebook. |
-| Grocery shopping in a bathrobe. |
-| Hearing the same jokes over and over again for all eternity. |
-| Herpes. |
-| Hiding the M&Ms. |
-| High-fiving after sex. |
-| His prostate. |
-| Hogging the bathroom. |
-| Holding hands when you get old. |
-| Homoerotic undertones. |
-| Hyperventilating at the gynecologist's office. |
-| Just giving up. |
-| Keeping tabs. Always keeping tabs. |
-| Knowing way too much about each other's bathroom habits. |
-| Leaving little love notes around the house. |
-| Life in a nudist vegan hippie commune. |
-| Long walks at sunset ON DRUGS. |
+| All the sac ifices that come with it. |
+| A  elabo ate alie  abductio  fa tasy. |
+| A  u acceptable volume of body hai . |
+| Bad d ago  e otica. |
+| Bei g ki d of ho mo al. |
+| Bei g too hu g-ove  fo  a ha d job. |
+| Blami g it o  the dog. |
+| Bla i g "Ga g am Style" o   epeat. |
+| Blood o  the sheets. |
+| B eaki g the hyme . |
+| B ides.com |
+| Cashi g i  the kids' college fu d to pay off you  substa tial gambli g debts. |
+| Cat-like  ight visio . |
+| Cha gi g both you  last  ames to "Da ge ." |
+| CheapRussia  |
+| Coveti g you   eighbo 's polyamo ous lifestyle. |
+| Daily  emi de s about who actually pays the mo tgage. |
+| Deco ati g the house with vagi a-i spi ed a two k. |
+| Deep existe tial lo eli ess. |
+| Deli ious, i fectious happi ess. |
+| Doi g what Jesus would do. |
+| Do  D ape . |
+| D i ki g you  t oubles away  ightly. |
+| Each othe . |
+| Fai y-themed cosplay. |
+| Faki g a p eg a cy. |
+| Faki g it u til maki g it. |
+| Falli g a little mo e i  love eve y day fo eve . |
+| Falli g asleep du i g o al sex. |
+| Fa  too ma y dildos. |
+| Feeli gs of i adequacy. |
+| Fighti g ove  the  emote co t ol. |
+| Fighti g ove  whethe  o   ot you' e fighti g. |
+| Fi di g out you' e actually cousi s. |
+| Fi di g you  soul mate. |
+| Fo eski . |
+| Fo getti g the safe wo d. |
+| Fo getti g you  a ive sa y, yea  afte  yea . |
+| Fo getti g you  bi th co t ol pills. |
+| Gay po  |
+| Getti g a dog. |
+| Getti g a pube stuck i  you  teeth. |
+| Getti g caught mastu bati g to he tai po . |
+| Getti g high a d maki g out. |
+| Getti g kicked out of you  ow  weddi g  eceptio . |
+| Getti g ti ed of bei g o  top. |
+| Goi g black, a d  eve  goi g back. |
+| G atuitous PDA o  Facebook. |
+| G oce y shoppi g i  a bath obe. |
+| Hea i g the same jokes ove  a d ove  agai  fo  all ete ity. |
+| He pes. |
+| Hidi g the M&Ms. |
+| High-fivi g afte  sex. |
+| His p ostate. |
+| Hoggi g the bath oom. |
+| Holdi g ha ds whe  you get old. |
+| Homoe otic u de to es. |
+| Hype ve tilati g at the gy ecologist's office. |
+| Just givi g up. |
+| Keepi g tabs. Always keepi g tabs. |
+| K owi g way too much about each othe 's bath oom habits. |
+| Leavi g little love  otes a ou d the house. |
+| Life i  a  udist vega  hippie commu e. |
+| Lo g walks at su set ON DRUGS. |
 | Low self-esteem. |
-| Low sperm motility. |
-| Lower expectations. |
+| Low spe m motility. |
+| Lowe  expectatio s. |
 | Make-up sex. |
-| Making a big fat deal out of nothing. |
-| Making out in public. |
-| Married sex. |
-| Marrying an axe murderer. |
-| Martha Stewart. |
-| Matching  denim outfits. |
-| Meaning something completely different by the word "facial." |
-| Meeting the weekly cunnilingus quota. |
-| Mormons. |
-| Motherfucking cupcakes. |
-| Mowing the fucking lawn. |
-| Multiple orgasms. |
-| Naked aggression. |
-| Neanderthal mating habits. |
-| Nipple clamps on the gift registry. |
-| Not knowing what a rusty trombone is. |
-| Not remembering your wedding night. |
-| One too many blow job shots. |
-| Open, honest communication. |
-| Over 5,000 flavored condoms. |
-| Paralyzing, all-consuming fear of commitment. |
-| Passive-aggressive notes on the fridge. |
-| People constantly telling you that marriage is a lot of work. |
-| PMS-ing at the altar. |
-| Pooping with the door open. |
+| Maki g a big fat deal out of  othi g. |
+| Maki g out i  public. |
+| Ma ied sex. |
+| Ma yi g a  axe mu de e . |
+| Ma tha Stewa t. |
+| Matchi g  de im outfits. |
+| Mea i g somethi g completely diffe e t by the wo d "facial." |
+| Meeti g the weekly cu ili gus quota. |
+| Mo mo s. |
+| Mothe fucki g cupcakes. |
+| Mowi g the fucki g law . |
+| Multiple o gasms. |
+| Naked agg essio . |
+| Nea de thal mati g habits. |
+| Nipple clamps o  the gift  egist y. |
+| Not k owi g what a  usty t ombo e is. |
+| Not  emembe i g you  weddi g  ight. |
+| O e too ma y blow job shots. |
+| Ope , ho est commu icatio . |
+| Ove  5,000 flavo ed co doms. |
+| Pa alyzi g, all-co sumi g fea  of commitme t. |
+| Passive-agg essive  otes o  the f idge. |
+| People co sta tly telli g you that ma iage is a lot of wo k. |
+| PMS-i g at the alta . |
+| Poopi g with the doo  ope . |
 | Post-coital bliss. |
-| Praying and reading the Bible. |
-| Praying and reading the Torah. |
-| Premature ejaculation. |
-| Pretending you were just kidding. |
-| Putting the cats in the pre-nup. |
-| Ranch dressing. |
-| Realizing the Kama Sutra is actually really lame. |
-| Really letting yourself go. |
-| Refusing to shave. |
-| Rephrasing it as an "I feel" statement. |
-| Ring finger tattoos. |
-| Running out of things to talk about. |
-| Saving yourself for marriage. |
-| Saying "Me so horny!" in a Yoda voice. |
-| Secretly drunk-dialing exes. |
-| Seven tubs of ass wax. |
-| Several decades of festering resentment. |
-| Sex on the kitchen table. |
-| Sexercise. |
-| Sharing a bank account. |
-| Sharing all your most embarrassing secrets.Except one. |
-| Skinny dipping in a vat of bubble solution. |
-| Sleeping only with virgins because your penis is so small, you want to make sure they have nothing to compare it to. |
-| Sleeping with your therapist. |
-| Some innocent wife-swapping among friends. |
-| Someone getting arrested. |
-| Someone using the word "Bridezilla" one more goddamn time. |
-| Staying up all night talking. |
-| Storm trooper centerpieces. |
-| Swinging. |
-| Taking things too literally. |
-| Talking dirty in a Spanish accent. |
-| Testosterone-induced rage. |
-| Texting instead of talking. |
-| That bridesmaid that won't stop crying. |
-| That dirty weekend in Cabo. |
-| That time the bride thought she was a lesbian. |
-| The best man dressed in drag. |
-| The best man's dark sexual past. |
-| The ceremonial spanking of the bride. |
-| The challenge of balancing career and family. |
-| The Chicken Dance. |
-| The happiest man on Earth. |
-| The secret handshake. |
-| The sudden need to conceal a massive boner. |
-| The wedding-industrial complex. |
-| Things you can never unsee. |
-| Tickle-fight-induced vomiting. |
-| Too damn many kids. |
+| P ayi g a d  eadi g the Bible. |
+| P ayi g a d  eadi g the To ah. |
+| P ematu e ejaculatio . |
+| P ete di g you we e just kiddi g. |
+| Putti g the cats i  the p e- up. |
+| Ra ch d essi g. |
+| Realizi g the Kama Sut a is actually  eally lame. |
+| Really letti g you self go. |
+| Refusi g to shave. |
+| Reph asi g it as a  "I feel" stateme t. |
+| Ri g fi ge  tattoos. |
+| Ru i g out of thi gs to talk about. |
+| Savi g you self fo  ma iage. |
+| Sayi g "Me so ho y!" i  a Yoda voice. |
+| Sec etly d u k-diali g exes. |
+| Seve  tubs of ass wax. |
+| Seve al decades of feste i g  ese tme t. |
+| Sex o  the kitche  table. |
+| Sexe cise. |
+| Sha i g a ba k accou t. |
+| Sha i g all you  most emba assi g sec ets.
+
+Except o e. |
+| Ski y dippi g i  a vat of bubble solutio . |
+| Sleepi g o ly with vi gi s because you  pe is is so small, you wa t to make su e they have  othi g to compa e it to. |
+| Sleepi g with you  the apist. |
+| Some i oce t wife-swappi g amo g f ie ds. |
+| Someo e getti g a ested. |
+| Someo e usi g the wo d "B idezilla" o e mo e goddam  time. |
+| Stayi g up all  ight talki g. |
+| Sto m t oope  ce te pieces. |
+| Swi gi g. |
+| Taki g thi gs too lite ally. |
+| Talki g di ty i  a Spa ish acce t. |
+| Testoste o e-i duced  age. |
+| Texti g i stead of talki g. |
+| That b idesmaid that wo 't stop c yi g. |
+| That di ty weeke d i  Cabo. |
+| That time the b ide thought she was a lesbia . |
+| The best ma  d essed i  d ag. |
+| The best ma 's da k sexual past. |
+| The ce emo ial spa ki g of the b ide. |
+| The challe ge of bala ci g ca ee  a d family. |
+| The Chicke  Da ce. |
+| The happiest ma  o  Ea th. |
+| The sec et ha dshake. |
+| The sudde   eed to co ceal a massive bo e . |
+| The weddi g-i dust ial complex. |
+| Thi gs you ca   eve  u see. |
+| Tickle-fight-i duced vomiti g. |
+| Too dam  ma y kids. |
 | Too little, too late. |
-| Unconditional love. |
-| Undying love and eternal affection. |
-| Unicorns and lollipops. |
-| Unleashing the vixen within. |
-| Unplanned pregnancy! |
-| Unwavering support for your career. |
-| Vaginal juices. |
-| Walking down the aisle to "Baby Got Back." |
-| Way too much sensual massage oil. |
-| Wearing a t-shirt that says "I TOLD YOU SO." |
-| Wedding crashers passing out Ecstasy to your elderly relatives. |
-| Weekly date nights at the local BDSM dungeon. |
-| Whisper-fighting in the kitchen. |
-| Winking at waitresses. |
-| Wishing this moment could last forever. |
-| Wishing you were half as happy as your social media posts make you seem. |
-| Wondering if you made the right decision. |
-| Wondering where that rash came from. |
-| Wondering who's gonna die first. |
-| Your creepy uncle with the wandering hands. |
-| Your dad showing up drunk. Like always. |
-| Your father-in-law's erectile dysfunction pills. |
-| Your unborn children. |
-| "Knock Knock, Motherfucker." |
-| $16,000 in cash, a kilo of hashish, and eight belly dancers. |
-| A $1,000 check from Cards Against Humanity! |
-| A 55-gallon drum of lube. |
-| A bizarre partnership with Cards Against Humanity. |
-| A bottle of fine wine |
-| A bunch of naked bridesmaids. |
-| A buttload of candy. |
-| A clothing-optional ceremony. |
-| A cocaine-fueled lip synch battle. |
-| A Columbian neck tie. |
-| A crisp, manly scent. |
-| A dainty pistol. |
-| A dental damn. |
-| A diaper bag that changes diapers for you |
-| A dignified burial at sea. |
-| A DITY move in an old covered wagon. |
-| A doctor mansplaining to you about mucus plugs |
-| A donut bar inside a taco truck. |
-| A dowry of fifteen fine goats. |
-| A drunk relative muttering racial slurs. |
-| a drunk shithead |
-| A dusting of edible gold glitter. |
-| A fork in a world of soup. |
-| A four million-dollar fireworks display. |
-| A fragrant vagina. |
-| A fried calamari cockring. With sauce. |
-| A Galapagos Marine Iguana. |
-| A gentlemanly ball-slapping contest. |
-| A giant, frosted pot brownie. |
-| a gold digger |
-| A golden shower at the Moscow Ritz. |
-| A good old-fashioned ethnic conflict |
-| A groomsman in a kilt ...and nothing else. |
-| A groomsman in a kilt... and nothing else. |
-| A happy god with a wonderful clitoris. |
-| A harmless crush on a slutty coworker. |
-| A hat much too small for my head |
-| A heart made of sentient nanobots. |
-| A heart that is two sizes too small and that therefore cannot pump an adequate amount of blood. |
-| a heart-stricken moose |
-| A hickey right on the ball sack. |
-| A honeymoon in your parents' basement. |
-| a hot night in clit city |
-| A keg stand with Grandma. |
-| A lifetime of internalized guilt. |
-| A lifetime of sadness. |
-| A little sewer girl strangling a pigeon. |
-| A long, hot pee. |
-| A Mail Order Bride |
-| A medium horchata. |
-| A misunderstood villian |
-| A monkey penis. |
-| A Mylar emergency blanket that isn't so comfortable it kills your initiative. |
-| A mysterious, floating orb. |
-| A nervous breakdown at IKEA™. |
-| A nymphomaniacal A.I. droid. |
-| a pair of stainless maidenhoods |
-| A pangender octopus who roams the cosmos in search of love. |
-| A party bus full of Kardashians. |
-| A penis with a smiley face. |
-| a penis with the strength of a bulldozer, the length of a cruise missile, and juuuuuust the right girth |
-| A power bottom. |
-| A rainbow flag morale patch. |
-| A remarkably convincing argument for slavery. |
-| A rustic barn that reeks of horse. |
-| A secret stash of comic books |
-| A seedy sex cinema |
-| A sensible pantsuit. |
-| a severed head on a train platform |
-| a shrill, high-pitched voice. |
-| A smaller-than-average putter. |
-| A solid gold golf course. |
-| A tattoo of Kim Kardashian taking a shit. |
-| A tepid puddle of sensual massage oil. |
-| A thousand shitty wedding planning websites. |
-| A three-way with my wife and Shaquille O'Neal. |
+| U co ditio al love. |
+| U dyi g love a d ete al affectio . |
+| U ico s a d lollipops. |
+| U leashi g the vixe  withi . |
+| U pla ed p eg a cy! |
+| U wave i g suppo t fo  you  ca ee . |
+| Vagi al juices. |
+| Walki g dow  the aisle to "Baby Got Back." |
+| Way too much se sual massage oil. |
+| Wea i g a t-shi t that says "I TOLD YOU SO." |
+| Weddi g c ashe s passi g out Ecstasy to you  elde ly  elatives. |
+| Weekly date  ights at the local BDSM du geo . |
+| Whispe -fighti g i  the kitche . |
+| Wi ki g at wait esses. |
+| Wishi g this mome t could last fo eve . |
+| Wishi g you we e half as happy as you  social media posts make you seem. |
+| Wo de i g if you made the  ight decisio . |
+| Wo de i g whe e that  ash came f om. |
+| Wo de i g who's go a die fi st. |
+| You  c eepy u cle with the wa de i g ha ds. |
+| You  dad showi g up d u k. Like always. |
+| You  fathe -i -law's e ectile dysfu ctio  pills. |
+| You  u bo  child e . |
+| "K ock K ock, Mothe fucke ." |
+| $16,000 i  cash, a kilo of hashish, a d eight belly da ce s. |
+| A $1,000 check f om Ca ds Agai st Huma ity! |
+| A 55-gallo  d um of lube. |
+| A biza e pa t e ship with Ca ds Agai st Huma ity. |
+| A bottle of fi e wi e |
+| A bu ch of  aked b idesmaids. |
+| A buttload of ca dy. |
+| A clothi g-optio al ce emo y. |
+| A cocai e-fueled lip sy ch battle. |
+| A Columbia   eck tie. |
+| A c isp, ma ly sce t. |
+| A dai ty pistol. |
+| A de tal dam . |
+| A diape  bag that cha ges diape s fo  you |
+| A dig ified bu ial at sea. |
+| A DITY move i  a  old cove ed wago . |
+| A docto  ma splai i g to you about mucus plugs |
+| A do ut ba  i side a taco t uck. |
+| A dow y of fiftee  fi e goats. |
+| A d u k  elative mutte i g  acial slu s. |
+| a d u k shithead |
+| A dusti g of edible gold glitte . |
+| A fo k i  a wo ld of soup. |
+| A fou  millio -dolla  fi ewo ks display. |
+| A f ag a t vagi a. |
+| A f ied calama i cock i g. With sauce. |
+| A Galapagos Ma i e Igua a. |
+| A ge tlema ly ball-slappi g co test. |
+| A gia t, f osted pot b ow ie. |
+| a gold digge  |
+| A golde  showe  at the Moscow Ritz. |
+| A good old-fashio ed eth ic co flict |
+| A g oomsma  i  a kilt ...a d  othi g else. |
+| A g oomsma  i  a kilt... a d  othi g else. |
+| A happy god with a wo de ful clito is. |
+| A ha mless c ush o  a slutty cowo ke . |
+| A hat much too small fo  my head |
+| A hea t made of se tie t  a obots. |
+| A hea t that is two sizes too small a d that the efo e ca ot pump a  adequate amou t of blood. |
+| a hea t-st icke  moose |
+| A hickey  ight o  the ball sack. |
+| A ho eymoo  i  you  pa e ts' baseme t. |
+| a hot  ight i  clit city |
+| A keg sta d with G a dma. |
+| A lifetime of i te alized guilt. |
+| A lifetime of sad ess. |
+| A little sewe  gi l st a gli g a pigeo . |
+| A lo g, hot pee. |
+| A Mail O de  B ide |
+| A medium ho chata. |
+| A misu de stood villia  |
+| A mo key pe is. |
+| A Myla  eme ge cy bla ket that is 't so comfo table it kills you  i itiative. |
+| A myste ious, floati g o b. |
+| A  e vous b eakdow  at IKEA™. |
+| A  ymphoma iacal A.I. d oid. |
+| a pai  of stai less maide hoods |
+| A pa ge de  octopus who  oams the cosmos i  sea ch of love. |
+| A pa ty bus full of Ka dashia s. |
+| A pe is with a smiley face. |
+| a pe is with the st e gth of a bulldoze , the le gth of a c uise missile, a d juuuuuust the  ight gi th |
+| A powe  bottom. |
+| A  ai bow flag mo ale patch. |
+| A  ema kably co vi ci g a gume t fo  slave y. |
+| A  ustic ba  that  eeks of ho se. |
+| A sec et stash of comic books |
+| A seedy sex ci ema |
+| A se sible pa tsuit. |
+| a seve ed head o  a t ai  platfo m |
+| a sh ill, high-pitched voice. |
+| A smalle -tha -ave age putte . |
+| A solid gold golf cou se. |
+| A tattoo of Kim Ka dashia  taki g a shit. |
+| A tepid puddle of se sual massage oil. |
+| A thousa d shitty weddi g pla i g websites. |
+| A th ee-way with my wife a d Shaquille O'Neal. |
 | a timid wussy |
 | A tossed salad. |
-| A visibly engorged clitoris. |
-| A visit from your time-traveling future selves. |
-| A wave of thirst crashing down on every female Sailor. |
-| A whimsical Ashley Madison profile. |
+| A visibly e go ged clito is. |
+| A visit f om you  time-t aveli g futu e selves. |
+| A wave of thi st c ashi g dow  o  eve y female Sailo . |
+| A whimsical Ashley Madiso  p ofile. |
 | Active Bitch Face. |
-| Adolf Hitler |
-| Adultery. |
-| All the fly honeys up in your business. |
-| All the single ladies. |
-| An elbow to the nose. |
-| An enchanted Harry Potter panty party. |
-| an unappropriated corpse |
-| An uncomfortable new sex position you just made up. |
-| Anal sex at least twice a week. |
-| Bacon-worshipping pagans. |
+| Adolf Hitle  |
+| Adulte y. |
+| All the fly ho eys up i  you  busi ess. |
+| All the si gle ladies. |
+| A  elbow to the  ose. |
+| A  e cha ted Ha y Potte  pa ty pa ty. |
+| a  u app op iated co pse |
+| A  u comfo table  ew sex positio  you just made up. |
+| A al sex at least twice a week. |
+| Baco -wo shippi g paga s. |
 | Bad dudes. |
-| Being a little overzealous with the butt-smacking. |
-| Being generally bad at life. |
-| Being kinkshamed on social media. |
-| Being too hungover for a hand job. |
-| Blaming my problems on my thyroid. |
-| Blaring trumpets. |
-| Blood Pringles.® |
-| Blood-stained custom cocktail napkins. |
-| Breaking the rules to keep a promise. |
-| Bringing booty back. |
-| Burning all the bridal magazines. |
-| Cassandra's day-planner. |
-| Cat-O-Nine Tails |
-| Celebrity Wedding Obsession Syndrome. |
-| Changing my bedsheets. |
-| Coming home drunk and setting the cat on fire. |
-| Constantly undermining each other. |
+| Bei g a little ove zealous with the butt-smacki g. |
+| Bei g ge e ally bad at life. |
+| Bei g ki kshamed o  social media. |
+| Bei g too hu gove  fo  a ha d job. |
+| Blami g my p oblems o  my thy oid. |
+| Bla i g t umpets. |
+| Blood P i gles.® |
+| Blood-stai ed custom cocktail  apki s. |
+| B eaki g the  ules to keep a p omise. |
+| B i gi g booty back. |
+| Bu i g all the b idal magazi es. |
+| Cassa d a's day-pla e . |
+| Cat-O-Ni e Tails |
+| Celeb ity Weddi g Obsessio  Sy d ome. |
+| Cha gi g my bedsheets. |
+| Comi g home d u k a d setti g the cat o  fi e. |
+| Co sta tly u de mi i g each othe . |
 | Covfefe |
-| dairy-rooms, butteries, and cheeseries |
-| Decorating the nursery with pictures of boobs |
-| Deep fried Kiwi |
-| Deliverance ministry. |
-| Dirty spooning. |
-| Dolby® Digital Surround Sound. |
-| Drinking yourself into a coma at a Nevada brothel. |
-| eahc actor on his ass |
-| Eloping to a Himalayan mountaintop. |
-| Enormous phallic ice sculptures |
+| dai y- ooms, butte ies, a d cheese ies |
+| Deco ati g the  u se y with pictu es of boobs |
+| Deep f ied Kiwi |
+| Delive a ce mi ist y. |
+| Di ty spoo i g. |
+| Dolby® Digital Su ou d Sou d. |
+| D i ki g you self i to a coma at a Nevada b othel. |
+| eahc acto  o  his ass |
+| Elopi g to a Himalaya  mou tai top. |
+| E o mous phallic ice sculptu es |
 | Excessive cleavage. |
-| Extra herpes. |
-| Face-eating love zombies. |
-| Faith healing. |
-| Faking a terminal illness. |
-| Faking your own death to avoid a second date. |
-| Falling and not being able to get back up. |
-| Falling asleep in the Chapel. |
-| Farm animals chasing little kids |
-| Feeling like a porn star 24/7. |
+| Ext a he pes. |
+| Face-eati g love zombies. |
+| Faith heali g. |
+| Faki g a te mi al ill ess. |
+| Faki g you  ow  death to avoid a seco d date. |
+| Falli g a d  ot bei g able to get back up. |
+| Falli g asleep i  the Chapel. |
+| Fa m a imals chasi g little kids |
+| Feeli g like a po  sta  24/7. |
 | Feet |
-| Fellating the videographer. |
-| Fighting over whether or not you're fighting. |
-| Fighting radical Islam, dude! |
-| Finding out your babysitter really is a vampire. |
-| Finding your teen at the local strip club |
-| Flowers made out of raw meat. |
-| Foreskin. |
-| Forgetting the words to the Apostle's Creed. |
-| Forgetting your birth control pills. |
-| Forgetting your lines, shitting your pants, and your pants falling down. |
-| Getting a DUI on a Zamboni. |
-| Getting a really, really shitty tattoo. |
-| Getting caught mid-quickie |
-| Getting high and watching Planet Earth. |
-| Getting kicked right in the ovaries. |
-| Getting kicked right in the ovaries. |
-| Getting to the tomb first. |
-| Giving up all your hopes and dreams. |
-| Going blind from local moonshine |
-| Going to bed angry. |
-| Grocery store cookies for the school bake sale |
-| Hearing your dad offer to give your mom his special cream pie. |
-| Hershey™ and the squirts |
-| Hiding the phone chargers to get them to do their homework |
+| Fellati g the videog aphe . |
+| Fighti g ove  whethe  o   ot you' e fighti g. |
+| Fighti g  adical Islam, dude! |
+| Fi di g out you  babysitte   eally is a vampi e. |
+| Fi di g you  tee  at the local st ip club |
+| Flowe s made out of  aw meat. |
+| Fo eski . |
+| Fo getti g the wo ds to the Apostle's C eed. |
+| Fo getti g you  bi th co t ol pills. |
+| Fo getti g you  li es, shitti g you  pa ts, a d you  pa ts falli g dow . |
+| Getti g a DUI o  a Zambo i. |
+| Getti g a  eally,  eally shitty tattoo. |
+| Getti g caught mid-quickie |
+| Getti g high a d watchi g Pla et Ea th. |
+| Getti g kicked  ight i  the ova ies. |
+| Getti g kicked  ight i  the ova ies. |
+| Getti g to the tomb fi st. |
+| Givi g up all you  hopes a d d eams. |
+| Goi g bli d f om local moo shi e |
+| Goi g to bed a g y. |
+| G oce y sto e cookies fo  the school bake sale |
+| Hea i g you  dad offe  to give you  mom his special c eam pie. |
+| He shey™ a d the squi ts |
+| Hidi g the pho e cha ge s to get them to do thei  homewo k |
 | High-quality gout. |
-| His Royal Highness King Goodwill Zwelithini kaBhekuzulu. |
+| His Royal High ess Ki g Goodwill Zwelithi i kaBhekuzulu. |
 | Hogs. |
-| Holding hands with my crush during the Lord's prayer. |
-| Hone Heke hacking down a flagstaff |
-| Improper use of a "selfie-stick." |
-| Installing a stripper pole in the living room. |
-| Ivanka Trump. |
-| John Snow. |
-| Just Glue Some Gears On It |
-| Just wishing this moment could last forever. |
-| Keeping the government out of my vagina. |
-| Keeping your Tinder account. Just in case. |
-| Knowing what I mean, Vern. |
-| Leaving Mass early to watch the football game. |
-| Long-distance squirting. |
-| Losing one's mind over a pair of shoes. |
-| Loud and unrepentant farting. |
-| Low sperm motility. |
+| Holdi g ha ds with my c ush du i g the Lo d's p aye . |
+| Ho e Heke hacki g dow  a flagstaff |
+| Imp ope  use of a "selfie-stick." |
+| I stalli g a st ippe  pole i  the livi g  oom. |
+| Iva ka T ump. |
+| Joh  S ow. |
+| Just Glue Some Gea s O  It |
+| Just wishi g this mome t could last fo eve . |
+| Keepi g the gove me t out of my vagi a. |
+| Keepi g you  Ti de  accou t. Just i  case. |
+| K owi g what I mea , Ve . |
+| Leavi g Mass ea ly to watch the football game. |
+| Lo g-dista ce squi ti g. |
+| Losi g o e's mi d ove  a pai  of shoes. |
+| Loud a d u epe ta t fa ti g. |
+| Low spe m motility. |
 | Low visibility detail. |
-| Lowering your standards |
+| Lowe i g you  sta da ds |
 | Makeshift Dildos Of Shame |
-| Making a Black Power fist mid-promotion. |
-| Making out with the homeless guy who's pissing on the subway tracks. |
-| Marrying a baby koala. |
-| Marrying a baby koala. |
-| Marrying a cat. |
-| Marrying a handsome ninja. |
-| Marrying a mermaid. |
-| Marrying local |
-| Matching denim outfits. |
-| Meaningless sex. |
-| Meeting your birth father through Tinder. |
-| More blow jobs. |
-| Morning eye boogers. |
-| Motor pool sleepovers. |
-| Mowing the lawn, collecting the clippings, then Dickbutt. |
-| multiple personality disorder |
+| Maki g a Black Powe  fist mid-p omotio . |
+| Maki g out with the homeless guy who's pissi g o  the subway t acks. |
+| Ma yi g a baby koala. |
+| Ma yi g a baby koala. |
+| Ma yi g a cat. |
+| Ma yi g a ha dsome  i ja. |
+| Ma yi g a me maid. |
+| Ma yi g local |
+| Matchi g de im outfits. |
+| Mea i gless sex. |
+| Meeti g you  bi th fathe  th ough Ti de . |
+| Mo e blow jobs. |
+| Mo i g eye booge s. |
+| Moto  pool sleepove s. |
+| Mowi g the law , collecti g the clippi gs, the  Dickbutt. |
+| multiple pe so ality diso de  |
 | Naked Body |
-| Near-death experiences |
-| Never quite being good enough. |
+| Nea -death expe ie ces |
+| Neve  quite bei g good e ough. |
 | Nipple clamps. |
-| Not safe for work email forwards. |
-| Old person sex. |
-| One too many damn kids |
-| Opening a tin of tuna and sticking your dick in |
-| Origami vulva wedding favors. |
-| Passing out the barf bags at the ceremony. |
-| Passive-aggressive Post-it notes. |
-| Pats of butter shaped like butt cheeks. |
-| Paying off your wedding debt until 2095. |
-| people pleaser syndrome |
+| Not safe fo  wo k email fo wa ds. |
+| Old pe so  sex. |
+| O e too ma y dam  kids |
+| Ope i g a ti  of tu a a d sticki g you  dick i  |
+| O igami vulva weddi g favo s. |
+| Passi g out the ba f bags at the ce emo y. |
+| Passive-agg essive Post-it  otes. |
+| Pats of butte  shaped like butt cheeks. |
+| Payi g off you  weddi g debt u til 2095. |
+| people please  sy d ome |
 | Pocket hockey. |
-| Pooping your pants |
-| Poor pubic hygiene. |
-| Poor, sad single people. |
-| Pornographic cake toppers. |
-| Post-drunken depression |
-| Praying and reading the Torah. |
-| Praying for a future spouse. |
-| Premature foreclosure. |
-| Pretending you're asleep so someone else will get the baby |
-| Punching the flower girl. |
-| Puppies wearing bowties and shitting everywhere. |
-| Putting the dishes in the dishwasher. THE WRONG WAY. |
-| Rancid breastmilk. |
-| Random webcam hook-ups. |
-| Realizing you have become joyless, platonic roommates. |
-| Really long fingernails |
-| Refusing to vaccinate your kids.  Not because you're anti-vaccine.  You just hate your kids. |
-| Relentlessly insisting that you were right all along. |
-| Replace the mistletoe with reefer. |
-| Riding a fucking unicorn down the aisle. |
-| Ring Pops. |
-| Running out of time before you've cum in the brothel |
-| Sacrificial virgins. |
-| Sawing an Airman in half during a USO magic show gone terribly wrong. |
-| Saying "I'm sorry you feel that way." |
-| Saying "what's that?" And then stealing a french fry. |
-| Scheduling some sexy time on your Google calendar. |
-| Secretly getting a vasectomy |
-| Semi-annual spousal performance reviews. |
-| Sevens. |
-| several different guys' dried cum stains on your My Little Pony sheets |
-| Sex once a month |
+| Poopi g you  pa ts |
+| Poo  pubic hygie e. |
+| Poo , sad si gle people. |
+| Po og aphic cake toppe s. |
+| Post-d u ke  dep essio  |
+| P ayi g a d  eadi g the To ah. |
+| P ayi g fo  a futu e spouse. |
+| P ematu e fo eclosu e. |
+| P ete di g you' e asleep so someo e else will get the baby |
+| Pu chi g the flowe  gi l. |
+| Puppies wea i g bowties a d shitti g eve ywhe e. |
+| Putti g the dishes i  the dishwashe . THE WRONG WAY. |
+| Ra cid b eastmilk. |
+| Ra dom webcam hook-ups. |
+| Realizi g you have become joyless, plato ic  oommates. |
+| Really lo g fi ge ails |
+| Refusi g to vacci ate you  kids.  Not because you' e a ti-vacci e.  You just hate you  kids. |
+| Rele tlessly i sisti g that you we e  ight all alo g. |
+| Replace the mistletoe with  eefe . |
+| Ridi g a fucki g u ico  dow  the aisle. |
+| Ri g Pops. |
+| Ru i g out of time befo e you've cum i  the b othel |
+| Sac ificial vi gi s. |
+| Sawi g a  Ai ma  i  half du i g a USO magic show go e te ibly w o g. |
+| Sayi g "I'm so y you feel that way." |
+| Sayi g "what's that?" A d the  steali g a f e ch f y. |
+| Scheduli g some sexy time o  you  Google cale da . |
+| Sec etly getti g a vasectomy |
+| Semi-a ual spousal pe fo ma ce  eviews. |
+| Seve s. |
+| seve al diffe e t guys' d ied cum stai s o  you  My Little Po y sheets |
+| Sex o ce a mo th |
 | Sexism. |
 | Sexual Death. |
-| Sexy sister wives. |
-| Sharing a fetish with Hitler. |
-| Sharing Dirty Needles |
-| Shooting semi-automatic assault rifles into the sunset together. |
-| Showing some nipple. |
-| Signing up for a 30-year headache. |
-| Slacker bridesmaids dropping the ball. |
-| Sleeping only with virgins because your penis is so small, you want to make sure they have nothing to compare it to. |
-| Sleeping your way to the top |
-| Slowly turning into your parents. |
-| Smoke bombs and a balloon drop. |
-| So much whiny bullshit. |
-| some interior compunctions against suicide |
-| Someone making millions unwrapping toys on YouTube |
-| Someone who isn't me. |
-| Staying up all night to finish The Lord of the Rings extended version trilogy |
-| Stormtroopers. |
-| Swiping left so hard you crack the screen. |
-| Taking a little "me time." |
-| Taking some freaking responsibility for things. |
-| Taking your daughter on a trip to Africa to get rid of that pesky clit. |
-| Talking faster than a Thai hooker. |
-| Testosterone. |
-| Texting my best friend all day. |
-| That chick I was really into in high school that now has two kids and a waistline the size of Idaho. |
-| That crackhead photographer. |
-| That douchebag who ALWAYS steps on your rack while climbing up to theirs. |
-| That time the UN recognized Palestine |
-| The 8-hour orgasm. |
-| The best man's dark sexual past. |
-| The Best Oral Sex Ever |
-| The challenge of balancing career and family. |
-| The Chief Financial Officer for your company wearing camo cargo shorts and flip flops. |
-| The divorce emoji. |
-| The floating, disembodied heads of your ex-lovers. |
-| the hard ones hurt my teeth |
-| The secret moon base |
-| The sudden realisation you're 'beached as bro' |
-| The ugliest dress in the history of fashion. |
-| The weird kid down the block. |
-| Thiniking the Latin Mass is outdated. |
+| Sexy siste  wives. |
+| Sha i g a fetish with Hitle . |
+| Sha i g Di ty Needles |
+| Shooti g semi-automatic assault  ifles i to the su set togethe . |
+| Showi g some  ipple. |
+| Sig i g up fo  a 30-yea  headache. |
+| Slacke  b idesmaids d oppi g the ball. |
+| Sleepi g o ly with vi gi s because you  pe is is so small, you wa t to make su e they have  othi g to compa e it to. |
+| Sleepi g you  way to the top |
+| Slowly tu i g i to you  pa e ts. |
+| Smoke bombs a d a balloo  d op. |
+| So much whi y bullshit. |
+| some i te io  compu ctio s agai st suicide |
+| Someo e maki g millio s u w appi g toys o  YouTube |
+| Someo e who is 't me. |
+| Stayi g up all  ight to fi ish The Lo d of the Ri gs exte ded ve sio  t ilogy |
+| Sto mt oope s. |
+| Swipi g left so ha d you c ack the sc ee . |
+| Taki g a little "me time." |
+| Taki g some f eaki g  espo sibility fo  thi gs. |
+| Taki g you  daughte  o  a t ip to Af ica to get  id of that pesky clit. |
+| Talki g faste  tha  a Thai hooke . |
+| Testoste o e. |
+| Texti g my best f ie d all day. |
+| That chick I was  eally i to i  high school that  ow has two kids a d a waistli e the size of Idaho. |
+| That c ackhead photog aphe . |
+| That douchebag who ALWAYS steps o  you   ack while climbi g up to thei s. |
+| That time the UN  ecog ized Palesti e |
+| The 8-hou  o gasm. |
+| The best ma 's da k sexual past. |
+| The Best O al Sex Eve  |
+| The challe ge of bala ci g ca ee  a d family. |
+| The Chief Fi a cial Office  fo  you  compa y wea i g camo ca go sho ts a d flip flops. |
+| The divo ce emoji. |
+| The floati g, disembodied heads of you  ex-love s. |
+| the ha d o es hu t my teeth |
+| The sec et moo  base |
+| The sudde   ealisatio  you' e 'beached as b o' |
+| The ugliest d ess i  the histo y of fashio . |
+| The wei d kid dow  the block. |
+| Thi iki g the Lati  Mass is outdated. |
 | Too little, too late. |
-| Too man fucking throw pillows. |
-| Tossing a vibrator into the crowd. |
-| Traces of fecal matter. |
-| Twelve screaming toddlers high on cake. |
-| Two nerds in love. |
-| Two scandalized grandmothers dropping dead. |
-| Uncontrollable diarrhea. |
-| unearthly tattooings |
-| Unidentifiable cafeteria food. |
-| Unlimited soup, salad, and breadsticks. |
-| Unplugging it, then plugging it back in. |
-| Unwelcome sexual attention from grown men. |
-| Using the bouquet as a loincloth. |
-| Vaginal rejuvenation surgery. |
-| Vajazzling. |
-| Vigorously humping on the dance floor. |
-| Violating the Bridesmaids' Bill of Rights. |
-| Walking in a straight line |
-| Wearing an invisibility cloak into the principal's office. |
-| Wedding reception hook-ups. |
-| Weekly pep talks from Dr. Phil. |
-| Weeping silently in the bathroom. |
-| Whispering "Green chile is people!" |
-| Winkles and shrimps. |
-| Wishing you were still deployed. |
-| Wondering if you really are the best sex your partner has ever had |
-| Wondering who the father is |
-| Wondering whose thing is in the wash |
-| Your 100th wedding anniversary. |
-| Your dad showing up drunk. Like always. |
-| Your dad singing "Wicked the Musical" showtunes. |
-| Your father's porn collection. |
-| Your uncle's obvious "fuck me" eyes. |
-| A bunch of snot-nosed, know-it-all twentysomethings. |
-| A cloud of ash that darkens the Earth for a thousand years. |
-| A Cock Carousel |
-| A crocodile with a Scouse accent. |
-| A dozen roofies |
-| A four-hour depression nap. |
-| A framed photocopy of an oil painting of Paris, France. |
-| A friend who is a total dick in the mud. |
-| a gently-used butt-plug |
-| A gift basket from The Body Shop. |
-| a harmless tupperware container in the fridge full of OH MY GOD WHAT THE FUCK IS THAT |
-| A Hongi |
-| A monkey smoking a cigar. |
-| A party in Michael Barrymore's pool |
-| A rusty fishhook |
-| A sensitive items inventory gone terribly wrong. |
-| A vision board filled with Eric Trump's wisest quotes on hotel management and killing leopards. |
-| a whiny bitch |
-| Active listening. |
-| All the gold in Fort Knox. |
-| An uncomfortable silence. |
-| anal sex with a dude who has a severe bowel disorder |
-| bacon, bacon and more bacon |
-| Being a little too big for your britches. |
-| being generally very large |
-| Blood, sweat, and tears. |
-| Bringing chip dip to the party. |
-| Burning books. |
+| Too ma  fucki g th ow pillows. |
+| Tossi g a vib ato  i to the c owd. |
+| T aces of fecal matte . |
+| Twelve sc eami g toddle s high o  cake. |
+| Two  e ds i  love. |
+| Two sca dalized g a dmothe s d oppi g dead. |
+| U co t ollable dia hea. |
+| u ea thly tattooi gs |
+| U ide tifiable cafete ia food. |
+| U limited soup, salad, a d b eadsticks. |
+| U pluggi g it, the  pluggi g it back i . |
+| U welcome sexual atte tio  f om g ow  me . |
+| Usi g the bouquet as a loi cloth. |
+| Vagi al  ejuve atio  su ge y. |
+| Vajazzli g. |
+| Vigo ously humpi g o  the da ce floo . |
+| Violati g the B idesmaids' Bill of Rights. |
+| Walki g i  a st aight li e |
+| Wea i g a  i visibility cloak i to the p i cipal's office. |
+| Weddi g  eceptio  hook-ups. |
+| Weekly pep talks f om D . Phil. |
+| Weepi g sile tly i  the bath oom. |
+| Whispe i g "G ee  chile is people!" |
+| Wi kles a d sh imps. |
+| Wishi g you we e still deployed. |
+| Wo de i g if you  eally a e the best sex you  pa t e  has eve  had |
+| Wo de i g who the fathe  is |
+| Wo de i g whose thi g is i  the wash |
+| You  100th weddi g a ive sa y. |
+| You  dad showi g up d u k. Like always. |
+| You  dad si gi g "Wicked the Musical" showtu es. |
+| You  fathe 's po  collectio . |
+| You  u cle's obvious "fuck me" eyes. |
+| A bu ch of s ot- osed, k ow-it-all twe tysomethi gs. |
+| A cloud of ash that da ke s the Ea th fo  a thousa d yea s. |
+| A Cock Ca ousel |
+| A c ocodile with a Scouse acce t. |
+| A doze   oofies |
+| A fou -hou  dep essio   ap. |
+| A f amed photocopy of a  oil pai ti g of Pa is, F a ce. |
+| A f ie d who is a total dick i  the mud. |
+| a ge tly-used butt-plug |
+| A gift basket f om The Body Shop. |
+| a ha mless tuppe wa e co tai e  i  the f idge full of OH MY GOD WHAT THE FUCK IS THAT |
+| A Ho gi |
+| A mo key smoki g a ciga . |
+| A pa ty i  Michael Ba ymo e's pool |
+| A  usty fishhook |
+| A se sitive items i ve to y go e te ibly w o g. |
+| A visio  boa d filled with E ic T ump's wisest quotes o  hotel ma ageme t a d killi g leopa ds. |
+| a whi y bitch |
+| Active liste i g. |
+| All the gold i  Fo t K ox. |
+| A  u comfo table sile ce. |
+| a al sex with a dude who has a seve e bowel diso de  |
+| baco , baco  a d mo e baco  |
+| Bei g a little too big fo  you  b itches. |
+| bei g ge e ally ve y la ge |
+| Blood, sweat, a d tea s. |
+| B i gi g chip dip to the pa ty. |
+| Bu i g books. |
 | celibacy |
-| Coming home from college to find my room was given away to my younger siblings and I've been forgotten |
-| Constantly wetting the bed. |
-| Dirty Waltz. |
-| Eloping with your MTL after their court-martial. |
-| Enormous Scandinavian women. |
-| Excessive leg hair. |
-| Extra meat in burrito bowls. |
-| Feeling like you've finally created something worthwhile. |
+| Comi g home f om college to fi d my  oom was give  away to my you ge  sibli gs a d I've bee  fo gotte  |
+| Co sta tly wetti g the bed. |
+| Di ty Waltz. |
+| Elopi g with you  MTL afte  thei  cou t-ma tial. |
+| E o mous Sca di avia  wome . |
+| Excessive leg hai . |
+| Ext a meat i  bu ito bowls. |
+| Feeli g like you've fi ally c eated somethi g wo thwhile. |
 | Fellatio. |
-| Flowers, sunshine and kittens. |
-| Getting killed and dragged up a tree by a leopard. |
-| Giving up any hope of a stable relationship |
-| Going to bed at a reasonable hour. |
-| Golden Girls re-runs. |
-| Hot sex tips from Bill Cosby. |
-| Improv comedy. |
-| Instant gratification. |
-| Keg stands. |
-| Losing privileges. |
-| Loud banging |
-| marrying a punk |
-| More dots! |
-| Never showering. |
-| Original thoughts. |
-| Passing raunchy sex notes to your boot camp boo. |
-| Pattern baldness |
-| Poor taste |
-| Poorly educated voters. |
-| Pornstars. |
-| Punching them in the face with a hammer. |
+| Flowe s, su shi e a d kitte s. |
+| Getti g killed a d d agged up a t ee by a leopa d. |
+| Givi g up a y hope of a stable  elatio ship |
+| Goi g to bed at a  easo able hou . |
+| Golde  Gi ls  e- u s. |
+| Hot sex tips f om Bill Cosby. |
+| Imp ov comedy. |
+| I sta t g atificatio . |
+| Keg sta ds. |
+| Losi g p ivileges. |
+| Loud ba gi g |
+| ma yi g a pu k |
+| Mo e dots! |
+| Neve  showe i g. |
+| O igi al thoughts. |
+| Passi g  au chy sex  otes to you  boot camp boo. |
+| Patte  bald ess |
+| Poo  taste |
+| Poo ly educated vote s. |
+| Po sta s. |
+| Pu chi g them i  the face with a hamme . |
 | Puppies! |
-| Random, pretentious reference to Greek Mythology. |
-| Religious fanatic psychopaths. |
-| Riding a horse. Naked. Like Gumby. |
-| Sacrificing Isaac to the Lord. |
-| Saying "Me so horny!" in a Yoda voice. |
-| Schindler's List. |
-| semi-intelligent faces |
-| Sexual degradation |
-| Sexy sport tops. |
-| Shooting stuff from a helicopter. |
-| Showing that bitch a whole new world. |
+| Ra dom, p ete tious  efe e ce to G eek Mythology. |
+| Religious fa atic psychopaths. |
+| Ridi g a ho se. Naked. Like Gumby. |
+| Sac ifici g Isaac to the Lo d. |
+| Sayi g "Me so ho y!" i  a Yoda voice. |
+| Schi dle 's List. |
+| semi-i tellige t faces |
+| Sexual deg adatio  |
+| Sexy spo t tops. |
+| Shooti g stuff f om a helicopte . |
+| Showi g that bitch a whole  ew wo ld. |
 | So sue me! |
-| Taking a man's eyes and balls out and putting his eyes where his balls go and then his balls in the eye holes. |
-| Taking someone to pound town. |
-| That crappy ribbon candy your grandma always had |
-| The 9,000 children who starred to death today. |
-| The divorce. |
-| the flower that's like thy face |
-| Tracking |
-| Twenty bucks. |
-| Two shitty kids and a garbage husband. |
-| Using the Grindr app as a method to find recruits. |
-| Val Kilmer as God. |
-| vigorously puffing tobacco-smoke |
-| Weeping with joy over the sweet sound of silence |
+| Taki g a ma 's eyes a d balls out a d putti g his eyes whe e his balls go a d the  his balls i  the eye holes. |
+| Taki g someo e to pou d tow . |
+| That c appy  ibbo  ca dy you  g a dma always had |
+| The 9,000 child e  who sta ed to death today. |
+| The divo ce. |
+| the flowe  that's like thy face |
+| T acki g |
+| Twe ty bucks. |
+| Two shitty kids a d a ga bage husba d. |
+| Usi g the G i d  app as a method to fi d  ec uits. |
+| Val Kilme  as God. |
+| vigo ously puffi g tobacco-smoke |
+| Weepi g with joy ove  the sweet sou d of sile ce |
 
 |Total amount: 636|
 |---|

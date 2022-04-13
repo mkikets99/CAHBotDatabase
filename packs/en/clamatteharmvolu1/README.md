@@ -41,86 +41,86 @@ Answers amount: 78
 |---|
 
 ### Answers
-| Question |
+| Answers |
 |---|
 | #MeToo |
-| A 12 inch dick, a dozen roses, and a pick-up truck |
-| A 40 year old scotch and a 10 year old girl |
-| A bitch-slap for that bitch, Susan |
+| A 12 i ch dick, a doze   oses, a d a pick-up t uck |
+| A 40 yea  old scotch a d a 10 yea  old gi l |
+| A bitch-slap fo  that bitch, Susa  |
 | A case of the collywobbles |
-| A group of worthless minorities |
-| A handful of Bill Cosby's quaaludes |
-| A live-action remake of Shrek 2 |
-| A magician's assistant |
-| A parody porn of Steel Magnolias |
-| A perfect pulled pork poutine |
-| A pretty standard giraffe |
-| A prostate massage from Kathy Bates |
-| A sharp surprise |
-| A spontaneous 'Careless Whisper' saxophone solo |
-| A tiny monkey wearing a fez |
+| A g oup of wo thless mi o ities |
+| A ha dful of Bill Cosby's quaaludes |
+| A live-actio   emake of Sh ek 2 |
+| A magicia 's assista t |
+| A pa ody po  of Steel Mag olias |
+| A pe fect pulled po k pouti e |
+| A p etty sta da d gi affe |
+| A p ostate massage f om Kathy Bates |
+| A sha p su p ise |
+| A spo ta eous 'Ca eless Whispe ' saxopho e solo |
+| A ti y mo key wea i g a fez |
 | A touch of the 'tism |
-| A wire coat hanger |
-| Alone time with Kevin Spacey |
-| An all female version of Saving Private Ryan tentatively titled Saving Sergeant Rhianna |
-| An extremely impressive wet fart |
-| An unvaccinated child |
-| Baking soda |
-| Beating the shit out of the next customer who says "Doesn't scan? Must be free!" |
+| A wi e coat ha ge  |
+| Alo e time with Kevi  Spacey |
+| A  all female ve sio  of Savi g P ivate Rya  te tatively titled Savi g Se gea t Rhia a |
+| A  ext emely imp essive wet fa t |
+| A  u vacci ated child |
+| Baki g soda |
+| Beati g the shit out of the  ext custome  who says "Does 't sca ? Must be f ee!" |
 | BIBLEMAN! |
 | Black Jesus |
-| Blowing a cop to get out of a speeding ticket |
-| Buying an inbred Pug from a breeder just to watch it slowly suffocate to death over the next decade. |
-| Chuck Norris' blatant homophobia |
-| Clams Attempt Harmonica |
-| Creed Bratton |
-| Currently pregnant with Eddie Murphy's 58th child |
-| Des Moines |
-| Don Cherry |
+| Blowi g a cop to get out of a speedi g ticket |
+| Buyi g a  i b ed Pug f om a b eede  just to watch it slowly suffocate to death ove  the  ext decade. |
+| Chuck No is' blata t homophobia |
+| Clams Attempt Ha mo ica |
+| C eed B atto  |
+| Cu e tly p eg a t with Eddie Mu phy's 58th child |
+| Des Moi es |
+| Do  Che y |
 | Dope as fuck! |
-| Early onset retardation |
-| Eeyore's inevitable suicide |
+| Ea ly o set  eta datio  |
+| Eeyo e's i evitable suicide |
 | Egg |
-| Gary Busey |
-| Generic Racism |
-| Giving your bud a brojob to cheer him up after his goldfish died |
-| Gluten |
-| Grool |
-| Handing out ecstasy in the NICU |
-| Homeschooling your kids so the Algebra Devil can't get them |
-| Lint |
+| Ga y Busey |
+| Ge e ic Racism |
+| Givi g you  bud a b ojob to chee  him up afte  his goldfish died |
+| Glute  |
+| G ool |
+| Ha di g out ecstasy i  the NICU |
+| Homeschooli g you  kids so the Algeb a Devil ca 't get them |
+| Li t |
 | Lube |
-| Malarkey |
-| Mediocre pizza |
+| Mala key |
+| Medioc e pizza |
 | Moby's dick |
-| Monkey Bars. Not the things on a playground, but a bunch of Chimps sitting around drinking Jack and Cokes, playing pool, and listening to George Thorogood |
-| Mr. Sunshine on my god damn shoulders, John Denver |
-| My asshole after a night with Sean Evans |
-| Naked pictures of Bea Arthur and a football helmet filled with cottage cheese |
-| One bottle of good wine and 3 bottles of blended garbage |
-| One rude motherfucker |
-| Randy. FUCKING. Newman |
-| Rapist Brock Turner |
-| Recognizing your cousin on PornHub |
-| Ripping off one company, who already ripped off another company, who stole the idea from another company. |
-| Running over your wife in the driveway |
-| Spending $12,000 a year on dildos |
-| Spoons |
-| Sticking a finger up your ass and realizing what you've been missing all your life |
-| Sticking your dick in the gorilla exhibit |
+| Mo key Ba s. Not the thi gs o  a playg ou d, but a bu ch of Chimps sitti g a ou d d i ki g Jack a d Cokes, playi g pool, a d liste i g to Geo ge Tho ogood |
+| M . Su shi e o  my god dam  shoulde s, Joh  De ve  |
+| My asshole afte  a  ight with Sea  Eva s |
+| Naked pictu es of Bea A thu  a d a football helmet filled with cottage cheese |
+| O e bottle of good wi e a d 3 bottles of ble ded ga bage |
+| O e  ude mothe fucke  |
+| Ra dy. FUCKING. Newma  |
+| Rapist B ock Tu e  |
+| Recog izi g you  cousi  o  Po Hub |
+| Rippi g off o e compa y, who al eady  ipped off a othe  compa y, who stole the idea f om a othe  compa y. |
+| Ru i g ove  you  wife i  the d iveway |
+| Spe di g $12,000 a yea  o  dildos |
+| Spoo s |
+| Sticki g a fi ge  up you  ass a d  ealizi g what you've bee  missi g all you  life |
+| Sticki g you  dick i  the go illa exhibit |
 | Tequila shits |
-| The guy at the table who doesn't get any of the jokes |
-| The Legend of Curly's Gold |
+| The guy at the table who does 't get a y of the jokes |
+| The Lege d of Cu ly's Gold |
 | The Scottish |
-| The smell of Bronycon |
-| Trusting a fart when you have the flu |
-| Turkey calls |
-| Using the bible for rolling papers |
-| Werewolves, not Swearwolves |
-| Willingly becoming an orphan |
-| Winning a gift certificate for the local brothel by cashing in 18 years worth of tickets at the arcade. |
-| Your average BMW driver |
-| Your mom after she's read Lady Chatterly's Lover |
+| The smell of B o yco  |
+| T usti g a fa t whe  you have the flu |
+| Tu key calls |
+| Usi g the bible fo   olli g pape s |
+| We ewolves,  ot Swea wolves |
+| Willi gly becomi g a  o pha  |
+| Wi i g a gift ce tificate fo  the local b othel by cashi g i  18 yea s wo th of tickets at the a cade. |
+| You  ave age BMW d ive  |
+| You  mom afte  she's  ead Lady Chatte ly's Love  |
 
 |Total amount: 78|
 |---|

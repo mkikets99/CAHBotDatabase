@@ -21,54 +21,54 @@ Answers amount: 46
 |---|
 
 ### Answers
-| Question |
+| Answers |
 |---|
-| A conveniently timed coup d'etat |
-| A failed attempt to promote quinoa cultivation |
-| A good old-fashioned ethnic conflict |
-| A long-awaited care package |
-| Adeptly dodging marriage proposals |
-| An unathorized trip to the capital |
-| Being mistaken for the C.I.A. |
-| Chasing your dinner |
-| Christmas in a Muslim country |
-| Complaining that 50 cents spent on lunch was a rip-off |
-| Cultural "penetration" |
-| Deciding what to ferment next |
-| Defining "safer sex" as casual hookups under a mosquito net |
-| Drinking G&Ts for the quinine |
-| Fighting communism one naive American at a time |
-| Flip charts, so many damn flip charts |
-| Having the courage to give up |
-| Hiring a maid and justifying it as local job creation |
-| Hooking up at pre-service training |
-| Income generation projects that violate local labor laws |
-| Lesbian until Close of Service |
-| Malaria. Again. |
-| Mastering how to covertly download porn at the internet cafe |
-| Milking unusual animals |
-| Millennium Drinking Goals |
-| Nothing. Absolutely nothing. |
-| Peeing in a minefield |
-| Playing the white card |
-| Post-evacuation fellatio |
-| Raising awareness about your awareness raising campaign |
-| Realizing a consultant makes 4x your monthly pay in one day |
-| Recreational Larium |
-| Reusable menstraul products |
-| Slaughtering a goat with a hammer and a kitchen knife |
-| Squatting at just the right angle |
-| Telling donors the truth |
-| Terminating your service due to pregnancy |
-| The cholera diet plan |
-| The complex sounds of goats |
-| The day it started to itch |
-| The joy and jealousy of finding out you're not the only foreigner in town |
-| The parasitic worm pulled from my butt |
-| The sustainable, grassroots change that was supposed to come from that damn mural |
-| The sweet smell of burning trash |
-| Useless language skills |
-| White Savior Barbie |
+| A co ve ie tly timed coup d'etat |
+| A failed attempt to p omote qui oa cultivatio  |
+| A good old-fashio ed eth ic co flict |
+| A lo g-awaited ca e package |
+| Adeptly dodgi g ma iage p oposals |
+| A  u atho ized t ip to the capital |
+| Bei g mistake  fo  the C.I.A. |
+| Chasi g you  di e  |
+| Ch istmas i  a Muslim cou t y |
+| Complai i g that 50 ce ts spe t o  lu ch was a  ip-off |
+| Cultu al "pe et atio " |
+| Decidi g what to fe me t  ext |
+| Defi i g "safe  sex" as casual hookups u de  a mosquito  et |
+| D i ki g G&Ts fo  the qui i e |
+| Fighti g commu ism o e  aive Ame ica  at a time |
+| Flip cha ts, so ma y dam  flip cha ts |
+| Havi g the cou age to give up |
+| Hi i g a maid a d justifyi g it as local job c eatio  |
+| Hooki g up at p e-se vice t ai i g |
+| I come ge e atio  p ojects that violate local labo  laws |
+| Lesbia  u til Close of Se vice |
+| Mala ia. Agai . |
+| Maste i g how to cove tly dow load po  at the i te et cafe |
+| Milki g u usual a imals |
+| Mille ium D i ki g Goals |
+| Nothi g. Absolutely  othi g. |
+| Peei g i  a mi efield |
+| Playi g the white ca d |
+| Post-evacuatio  fellatio |
+| Raisi g awa e ess about you  awa e ess  aisi g campaig  |
+| Realizi g a co sulta t makes 4x you  mo thly pay i  o e day |
+| Rec eatio al La ium |
+| Reusable me st aul p oducts |
+| Slaughte i g a goat with a hamme  a d a kitche  k ife |
+| Squatti g at just the  ight a gle |
+| Telli g do o s the t uth |
+| Te mi ati g you  se vice due to p eg a cy |
+| The chole a diet pla  |
+| The complex sou ds of goats |
+| The day it sta ted to itch |
+| The joy a d jealousy of fi di g out you' e  ot the o ly fo eig e  i  tow  |
+| The pa asitic wo m pulled f om my butt |
+| The sustai able, g ass oots cha ge that was supposed to come f om that dam  mu al |
+| The sweet smell of bu i g t ash |
+| Useless la guage skills |
+| White Savio  Ba bie |
 
 |Total amount: 46|
 |---|

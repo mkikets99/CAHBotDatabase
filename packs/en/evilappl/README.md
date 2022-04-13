@@ -111,406 +111,406 @@ Answers amount: 399
 |---|
 
 ### Answers
-| Question |
+| Answers |
 |---|
-| [banana condom] |
-| [Jesus playing beer pong] |
-| [tentacles toilet] |
-| [The state-of-the-art Orgasmatron 8000] |
-| 1 weird trick that will make everyone around you ejaculate |
-| 200 lusty seamen on shore for just one night |
-| 69ing at the bottom of a Burger King ball pit |
-| a bad boy who needs a good spanking |
-| a bad boy who peed all over the house |
+| [ba a a co dom] |
+| [Jesus playi g bee  po g] |
+| [te tacles toilet] |
+| [The state-of-the-a t O gasmat o  8000] |
+| 1 wei d t ick that will make eve yo e a ou d you ejaculate |
+| 200 lusty seame  o  sho e fo  just o e  ight |
+| 69i g at the bottom of a Bu ge  Ki g ball pit |
+| a bad boy who  eeds a good spa ki g |
+| a bad boy who peed all ove  the house |
 | a bag full of cats |
-| a blowjob so powerful that you black out from low oxygen in your brain |
-| a blumpkin |
-| a brain aneurysm |
-| a bucket of 5-alarm ghost pepper hot wings |
-| a bucket of puke and sweat |
-| a cackling maniac on a unicycle |
-| a centipede that crawls into your ear and eats your brain |
-| a charismatic cult leader |
-| a couple o' meatballs and some sausage |
-| a couple of horny paleontologists |
-| a creepy clown standing in a cemetary |
-| a dick with no balls |
-| a dirty sanchez |
-| a face full of period blood |
-| a fat blunt and a Taco Bell Baja Blast™ |
-| a fat sweaty southerner in a white suit |
-| a firehose bidet |
-| a firm but gentle colonoscopy |
+| a blowjob so powe ful that you black out f om low oxyge  i  you  b ai  |
+| a blumpki  |
+| a b ai  a eu ysm |
+| a bucket of 5-ala m ghost peppe  hot wi gs |
+| a bucket of puke a d sweat |
+| a cackli g ma iac o  a u icycle |
+| a ce tipede that c awls i to you  ea  a d eats you  b ai  |
+| a cha ismatic cult leade  |
+| a couple o' meatballs a d some sausage |
+| a couple of ho y paleo tologists |
+| a c eepy clow  sta di g i  a cemeta y |
+| a dick with  o balls |
+| a di ty sa chez |
+| a face full of pe iod blood |
+| a fat blu t a d a Taco Bell Baja Blast™ |
+| a fat sweaty southe e  i  a white suit |
+| a fi ehose bidet |
+| a fi m but ge tle colo oscopy |
 | a fistful of Ecstasy |
 | a footjob |
-| a fractured dick |
-| a fresh kilo of cocaine flown in from Colombia |
-| a gently-used butt-plug |
-| a gigantic pair of leopard print granny panties |
-| a glory hole cut through an American flag |
+| a f actu ed dick |
+| a f esh kilo of cocai e flow  i  f om Colombia |
+| a ge tly-used butt-plug |
+| a giga tic pai  of leopa d p i t g a y pa ties |
+| a glo y hole cut th ough a  Ame ica  flag |
 | A GREAT BIG BOWL OF FUCKADOODLES |
-| a group of giggling teenage girls |
-| a group of old white women eating Cobb salad |
-| a Gryffindor in the streets and a Slytherin in the sheets |
-| a harmless tupperware container in the fridge full of OH MY GOD WHAT THE FUCK IS THAT |
-| a high school production of Rent |
-| a hot night in clit city |
-| a joint rolled from the pages of The Constitution |
-| a mermaid with a human vagina |
-| a mixture of cocaine and the ashes of your father |
+| a g oup of giggli g tee age gi ls |
+| a g oup of old white wome  eati g Cobb salad |
+| a G yffi do  i  the st eets a d a Slythe i  i  the sheets |
+| a ha mless tuppe wa e co tai e  i  the f idge full of OH MY GOD WHAT THE FUCK IS THAT |
+| a high school p oductio  of Re t |
+| a hot  ight i  clit city |
+| a joi t  olled f om the pages of The Co stitutio  |
+| a me maid with a huma  vagi a |
+| a mixtu e of cocai e a d the ashes of you  fathe  |
 | a mouthful of balls |
-| a noteworthy bowel movement |
-| a penis accidentally going in the wrong hole |
-| a penis retreating like a turtle into its shell |
-| a penis with the strength of a bulldozer, the length of a cruise missile, and juuuuuust the right girth |
-| a pile of rotting dead kittens |
+| a  otewo thy bowel moveme t |
+| a pe is accide tally goi g i  the w o g hole |
+| a pe is  et eati g like a tu tle i to its shell |
+| a pe is with the st e gth of a bulldoze , the le gth of a c uise missile, a d juuuuuust the  ight gi th |
+| a pile of  otti g dead kitte s |
 | a pillow full of bees |
-| A pretty little pink butthole |
-| a professional sandwich artist at Subway |
-| a reach-around in the dark |
-| a rusty trombone |
-| a scalpel, a pair of forceps, and a bottle of chloroform |
-| a severed head on a train platform |
-| a Sex Ed textbook made from stapled-together Pornhub printouts |
-| a shit-smeared g-string |
-| a simple farm boy from Indiana |
-| a slew of meaningless one-night stands |
-| a slightly used tampon |
-| a steak and a blowjob |
-| a steam-powered dildo |
-| a tangle of limbs and genitalia |
-| a thick, floppy wiener hanging between the eyes of a magical horse |
-| a think, beautiful meatball sandwich |
-| a tramp stamp that says "Daddy's Little Girl" |
-| a truck stop bathroom |
-| a tumor with teeth and hair |
-| a urinary tract infection |
-| a vampire making tea with a used tampon |
-| a vast government conspiracy |
+| A p etty little pi k butthole |
+| a p ofessio al sa dwich a tist at Subway |
+| a  each-a ou d i  the da k |
+| a  usty t ombo e |
+| a scalpel, a pai  of fo ceps, a d a bottle of chlo ofo m |
+| a seve ed head o  a t ai  platfo m |
+| a Sex Ed textbook made f om stapled-togethe  Po hub p i touts |
+| a shit-smea ed g-st i g |
+| a simple fa m boy f om I dia a |
+| a slew of mea i gless o e- ight sta ds |
+| a slightly used tampo  |
+| a steak a d a blowjob |
+| a steam-powe ed dildo |
+| a ta gle of limbs a d ge italia |
+| a thick, floppy wie e  ha gi g betwee  the eyes of a magical ho se |
+| a thi k, beautiful meatball sa dwich |
+| a t amp stamp that says "Daddy's Little Gi l" |
+| a t uck stop bath oom |
+| a tumo  with teeth a d hai  |
+| a u i a y t act i fectio  |
+| a vampi e maki g tea with a used tampo  |
+| a vast gove me t co spi acy |
 | a vial of blood |
-| a vibrating fuckable silicone butt |
+| a vib ati g fuckable silico e butt |
 | a vow of celibacy |
-| a warm, calming shit |
-| a wet baby and a pile of shit on a birthing table |
-| a whale spreading its labia and enveloping a submarine |
-| a whale's vagina |
-| a yoga instructor's ass |
-| Adolf Hitler |
-| African Killer Bees |
-| ALL the drugs! |
-| all the pee in the ocean |
-| all the porn on the internet |
-| all those dogs from the Sarah Mclachlan commercials |
-| an A+ finger banger |
-| an accidental orgy |
-| an all-you-can-eat pussy buffet |
-| an ass that smells like ass |
-| an earthquake that jiggles boobs just a little |
-| an instruction manual on how to locate the clitoris |
-| an itchy asshole |
-| anal foreplay |
-| anal leakage |
-| anal sex with a dude who has a severe bowel disorder |
-| ancient porn |
-| Appalachian swamp cannibals |
-| Area 69. |
-| asking for a blowjob |
+| a wa m, calmi g shit |
+| a wet baby a d a pile of shit o  a bi thi g table |
+| a whale sp eadi g its labia a d e velopi g a subma i e |
+| a whale's vagi a |
+| a yoga i st ucto 's ass |
+| Adolf Hitle  |
+| Af ica  Kille  Bees |
+| ALL the d ugs! |
+| all the pee i  the ocea  |
+| all the po  o  the i te et |
+| all those dogs f om the Sa ah Mclachla  comme cials |
+| a  A+ fi ge  ba ge  |
+| a  accide tal o gy |
+| a  all-you-ca -eat pussy buffet |
+| a  ass that smells like ass |
+| a  ea thquake that jiggles boobs just a little |
+| a  i st uctio  ma ual o  how to locate the clito is |
+| a  itchy asshole |
+| a al fo eplay |
+| a al leakage |
+| a al sex with a dude who has a seve e bowel diso de  |
+| a cie t po  |
+| Appalachia  swamp ca ibals |
+| A ea 69. |
+| aski g fo  a blowjob |
 | ASSHOLES |
-| auto-erotic asphyxiation |
-| awkwardly mumbling "Want to sit on my face?" |
-| back-alley abortions |
-| Barack Obama's left nut |
-| Barack Obama's right nut |
-| barren women |
+| auto-e otic asphyxiatio  |
+| awkwa dly mumbli g "Wa t to sit o  my face?" |
+| back-alley abo tio s |
+| Ba ack Obama's left  ut |
+| Ba ack Obama's  ight  ut |
+| ba e  wome  |
 | BDSM |
 | bed bugs |
 | big butts |
-| binge drinking at the local IHOP |
-| bloody discharge |
-| blowjob contests |
-| bondage |
-| boner pills |
-| both kinds of ass play |
-| bring-your-gun-to-work day |
-| broken promises |
-| butt mustard |
-| buttering up your butthole and inserting a full ear of corn |
-| buying baby parts on the black market |
-| buying beer for underage kids |
-| calling out the wrong name in bed |
-| certain death |
-| cheating on your girlfriend while she's in a coma |
+| bi ge d i ki g at the local IHOP |
+| bloody discha ge |
+| blowjob co tests |
+| bo dage |
+| bo e  pills |
+| both ki ds of ass play |
+| b i g-you -gu -to-wo k day |
+| b oke  p omises |
+| butt musta d |
+| butte i g up you  butthole a d i se ti g a full ea  of co  |
+| buyi g baby pa ts o  the black ma ket |
+| buyi g bee  fo  u de age kids |
+| calli g out the w o g  ame i  bed |
+| ce tai  death |
+| cheati g o  you  gi lf ie d while she's i  a coma |
 | childhood obesity |
-| children of divorce |
-| Chipotle diarrhea |
-| chlamydia of the throat |
-| chocolate and Midol |
-| climate change |
-| cockblocking |
-| constant government surveillance |
-| converting your spare bedroom into a crack den |
-| cooking bacon on the hot barrel of a recently-fired assault rifle |
-| couples' therapy |
-| Creationism |
-| cute baby otters |
-| dark matter |
-| defecating into your own hands and then slow-clapping your way out of the room |
-| delicious pineapple-flavored Hawaiian semen |
-| Diet Cocaine™ |
-| discarded foreskins |
-| doing lines of coke off of the baby-changing station in a Waffle House bathroom |
-| Donkey Kong's long strong dong |
-| doodling cocks in a hotel bible |
-| downing a glass of bourbon with breakfast |
-| drug-resistant bacteria |
-| dry-humoing a cactus |
-| easing yourself gently into a tub of mac and cheese and letting it full up all of your holes |
-| eating a plateful of brownies and then...WHAT THE FUCK WHY ARE THE WALLS MOVING |
-| eating five cheeseburgers and sewing your ass shut |
-| eating pussy for breakfast, lunch and dinner |
-| ejaculating on your partner's face, letting it dry, and then peeling it off in one piece |
-| erotic drawings of Marge Simpson |
-| ethical porn |
-| every form of hepatitis |
-| explosive diarrhea |
-| failing a personality test |
-| farting in the car |
-| fat Amercians |
-| fatally crushing a box of white doves |
-| filling the office water cooler with goat's blood |
-| finally, like, REALLY understanding what Pink Floyd was all about |
-| finding Nemo, the pan-frying him |
-| fingering an electrical outlet |
-| fingering Kanye's asshole |
+| child e  of divo ce |
+| Chipotle dia hea |
+| chlamydia of the th oat |
+| chocolate a d Midol |
+| climate cha ge |
+| cockblocki g |
+| co sta t gove me t su veilla ce |
+| co ve ti g you  spa e bed oom i to a c ack de  |
+| cooki g baco  o  the hot ba el of a  ece tly-fi ed assault  ifle |
+| couples' the apy |
+| C eatio ism |
+| cute baby otte s |
+| da k matte  |
+| defecati g i to you  ow  ha ds a d the  slow-clappi g you  way out of the  oom |
+| delicious pi eapple-flavo ed Hawaiia  seme  |
+| Diet Cocai e™ |
+| disca ded fo eski s |
+| doi g li es of coke off of the baby-cha gi g statio  i  a Waffle House bath oom |
+| Do key Ko g's lo g st o g do g |
+| doodli g cocks i  a hotel bible |
+| dow i g a glass of bou bo  with b eakfast |
+| d ug- esista t bacte ia |
+| d y-humoi g a cactus |
+| easi g you self ge tly i to a tub of mac a d cheese a d letti g it full up all of you  holes |
+| eati g a plateful of b ow ies a d the ...WHAT THE FUCK WHY ARE THE WALLS MOVING |
+| eati g five cheesebu ge s a d sewi g you  ass shut |
+| eati g pussy fo  b eakfast, lu ch a d di e  |
+| ejaculati g o  you  pa t e 's face, letti g it d y, a d the  peeli g it off i  o e piece |
+| e otic d awi gs of Ma ge Simpso  |
+| ethical po  |
+| eve y fo m of hepatitis |
+| explosive dia hea |
+| faili g a pe so ality test |
+| fa ti g i  the ca  |
+| fat Ame cia s |
+| fatally c ushi g a box of white doves |
+| filli g the office wate  coole  with goat's blood |
+| fi ally, like, REALLY u de sta di g what Pi k Floyd was all about |
+| fi di g Nemo, the pa -f yi g him |
+| fi ge i g a  elect ical outlet |
+| fi ge i g Ka ye's asshole |
 | FIRE TORNADOS! |
 | Fleshlights |
 | Fox News |
 | fuck me shoes |
-| fucking a McChicken™ sandwich |
-| fucking a missionary |
-| fucking for hours and never cumming |
-| fucking on top of the washing machine |
-| furries and planties |
-| getting a fisted by The Incredible Hulk |
-| getting cunnilingus from a cunning linguist |
-| getting fired from McDonald's, coming home, feeding the cats, taking your pants off, Googling "porn", and clicking "I'm feeling lucky" |
-| getting freaky with the vacuum cleaner hose attachment |
-| getting into a fist fight at a Chuck E. Cheese's |
-| getting it from behind |
-| getting lucky on Planet Fucky |
-| getting your ass blasted |
-| giving road head to your Uber driver |
-| giving up on your dreams |
-| giving up your virginity for Lent |
-| grandma's secret meth recipe |
-| greased-up wrestlers in skin-tight shorts |
-| greasing the floor in an old folks' home and yelling "FIRE!" |
-| guilt-free sodomy |
-| hairy balls |
-| handfuls of Klonopin |
-| harvesting babies |
-| Helen Keller |
-| hemorrhoids the size of asteroids |
-| hiding under the bed while your parents have sex |
-| homeless men jerking off in public |
-| hooking up with your drug dealer |
-| horny band geeks |
-| human trafficking |
-| internet trolls |
-| Irritable Bowel Syndrome |
+| fucki g a McChicke ™ sa dwich |
+| fucki g a missio a y |
+| fucki g fo  hou s a d  eve  cummi g |
+| fucki g o  top of the washi g machi e |
+| fu ies a d pla ties |
+| getti g a fisted by The I c edible Hulk |
+| getti g cu ili gus f om a cu i g li guist |
+| getti g fi ed f om McDo ald's, comi g home, feedi g the cats, taki g you  pa ts off, Googli g "po ", a d clicki g "I'm feeli g lucky" |
+| getti g f eaky with the vacuum clea e  hose attachme t |
+| getti g i to a fist fight at a Chuck E. Cheese's |
+| getti g it f om behi d |
+| getti g lucky o  Pla et Fucky |
+| getti g you  ass blasted |
+| givi g  oad head to you  Ube  d ive  |
+| givi g up o  you  d eams |
+| givi g up you  vi gi ity fo  Le t |
+| g a dma's sec et meth  ecipe |
+| g eased-up w estle s i  ski -tight sho ts |
+| g easi g the floo  i  a  old folks' home a d yelli g "FIRE!" |
+| guilt-f ee sodomy |
+| hai y balls |
+| ha dfuls of Klo opi  |
+| ha vesti g babies |
+| Hele  Kelle  |
+| hemo hoids the size of aste oids |
+| hidi g u de  the bed while you  pa e ts have sex |
+| homeless me  je ki g off i  public |
+| hooki g up with you  d ug deale  |
+| ho y ba d geeks |
+| huma  t afficki g |
+| i te et t olls |
+| I itable Bowel Sy d ome |
 | Jeff!!!!!!!!!! |
-| Jehovah's Witnesses |
-| Jewish mothers |
-| JonBenet Ramsey |
-| killing the witnesses |
-| killing your husband for the insurance money |
-| Kim Jong Un |
-| kissing your sister |
-| Krug, the destroyer of worlds and wielder of the Eternal Sword! |
-| legless beggars |
-| licking the hot barrel of a pistol |
+| Jehovah's Wit esses |
+| Jewish mothe s |
+| Jo Be et Ramsey |
+| killi g the wit esses |
+| killi g you  husba d fo  the i su a ce mo ey |
+| Kim Jo g U  |
+| kissi g you  siste  |
+| K ug, the dest oye  of wo lds a d wielde  of the Ete al Swo d! |
+| legless begga s |
+| licki g the hot ba el of a pistol |
 | little blue pill beta bitches |
-| lubing up a row of consenting buttholes and going straight to Fuck Town |
-| Luke Skywalker |
-| magic mushrooms |
-| Magnum™ condoms |
-| making eye contact with the cat during sex |
-| male birth control |
+| lubi g up a  ow of co se ti g buttholes a d goi g st aight to Fuck Tow  |
+| Luke Skywalke  |
+| magic mush ooms |
+| Mag um™ co doms |
+| maki g eye co tact with the cat du i g sex |
+| male bi th co t ol |
 | mall cops |
-| mammary glands |
-| man boobs |
-| mansplaining how a vagina works |
-| masturbating in front of millions of people |
-| medical marijuana |
-| meeting a nice Jewish boy with a good career and future |
-| menstraul cramps |
+| mamma y gla ds |
+| ma  boobs |
+| ma splai i g how a vagi a wo ks |
+| mastu bati g i  f o t of millio s of people |
+| medical ma ijua a |
+| meeti g a  ice Jewish boy with a good ca ee  a d futu e |
+| me st aul c amps |
 | meth teeth |
-| methamphetamines |
-| Mike Hunt |
+| methamphetami es |
+| Mike Hu t |
 | mom butt |
-| morning wood |
-| my low sperm count |
-| Neil deGrasse Tyson |
-| nipple clamps |
-| nipple play |
-| nuclear mutants |
-| occasional pig fucker, Kermit the Frog |
-| ol' One-Eyed Jasper and his jug o' moonshine |
-| old folks going at it in a Denny's bathroom |
-| old men in loose, saggy Speedos |
-| Osama Bin Laden |
-| our primal instinct to reproduce |
-| over the pants hand jobs |
+| mo i g wood |
+| my low spe m cou t |
+| Neil deG asse Tyso  |
+|  ipple clamps |
+|  ipple play |
+|  uclea  muta ts |
+| occasio al pig fucke , Ke mit the F og |
+| ol' O e-Eyed Jaspe  a d his jug o' moo shi e |
+| old folks goi g at it i  a De y's bath oom |
+| old me  i  loose, saggy Speedos |
+| Osama Bi  Lade  |
+| ou  p imal i sti ct to  ep oduce |
+| ove  the pa ts ha d jobs |
 | pale white butt cheeks |
-| peanut butter covered penises |
-| peeing into the pool |
-| people who say "expresso" |
-| permanent clown face |
-| pity-fucking a fat groomsman |
-| Planned Parenthood |
-| playing "who's in my mouth?" |
-| poisoning the town's water supply |
+| pea ut butte  cove ed pe ises |
+| peei g i to the pool |
+| people who say "exp esso" |
+| pe ma e t clow  face |
+| pity-fucki g a fat g oomsma  |
+| Pla ed Pa e thood |
+| playi g "who's i  my mouth?" |
+| poiso i g the tow 's wate  supply |
 | polio legs |
-| poop fallling out of your butt uncontrollably |
-| pooping while sexting |
-| pouring a bucket of LSD in the community pool |
-| pregnant strippers |
-| premarital sex |
-| pretending not to notice as your roommate has sex on the bottom bunk |
-| pretending to be a girl on the internet |
-| projectile childbirth |
-| pubic hair in your frozen yogurt |
-| pulling open someone's mouth and barfing down their throat |
-| punching a Nazi |
-| puppy farts |
+| poop fallli g out of you  butt u co t ollably |
+| poopi g while sexti g |
+| pou i g a bucket of LSD i  the commu ity pool |
+| p eg a t st ippe s |
+| p ema ital sex |
+| p ete di g  ot to  otice as you   oommate has sex o  the bottom bu k |
+| p ete di g to be a gi l o  the i te et |
+| p ojectile childbi th |
+| pubic hai  i  you  f oze  yogu t |
+| pulli g ope  someo e's mouth a d ba fi g dow  thei  th oat |
+| pu chi g a Nazi |
+| puppy fa ts |
 | pussy hats |
-| pussy withdrawal |
-| putting a beeper up your ass and asking people to page you |
-| putting lipstik on your asshole |
-| racist gibberish |
-| rectal thermometers |
-| reverse racism |
-| riding your horse into a courthouse and commanding it to shit on the judge |
-| robbing a sperm bank |
-| rubbing your dick between your hands until it starts a small fire |
-| rural Nebraskan strippers |
-| Russian mail order brides |
-| rusty nails |
-| satanic rituals |
-| sawing open your abdomen and pulling a baby out |
-| saying "fuck it" and dropping a roofie in your own drink |
-| Scientologists |
-| scraping cum out of your hair |
-| several different guys' dried cum stains on your My Little Pony sheets |
+| pussy withd awal |
+| putti g a beepe  up you  ass a d aski g people to page you |
+| putti g lipstik o  you  asshole |
+|  acist gibbe ish |
+|  ectal the momete s |
+|  eve se  acism |
+|  idi g you  ho se i to a cou thouse a d comma di g it to shit o  the judge |
+|  obbi g a spe m ba k |
+|  ubbi g you  dick betwee  you  ha ds u til it sta ts a small fi e |
+|  u al Neb aska  st ippe s |
+| Russia  mail o de  b ides |
+|  usty  ails |
+| sata ic  ituals |
+| sawi g ope  you  abdome  a d pulli g a baby out |
+| sayi g "fuck it" a d d oppi g a  oofie i  you  ow  d i k |
+| Scie tologists |
+| sc api g cum out of you  hai  |
+| seve al diffe e t guys' d ied cum stai s o  you  My Little Po y sheets |
 | sex smell |
-| sexual inadequacy |
-| sexually-frustrated teenagers |
-| Shark Week |
-| Sharknado |
-| sharting |
-| shitting in someone else's mouth |
-| shitting your brains out on a squat toilet |
-| shitting yourself at a Pizza Hut Buffet™ |
-| shoving bacon in your pussy to get him to eat you out |
-| sitting all the way down on a traffic cone |
-| six-week-old tampon stank |
-| slapping your tits like an angry orangutan |
-| sleeping with your improv teacher |
-| sliding your tongue through the round hole of a doughnut |
-| slowly brushing your hair while whispering "pretty girl" in a mirror |
-| slut-shaming |
-| small wieners |
-| smokin' grass and eatin' ass |
-| smoking two joints in the morning |
-| sneezing into a shitload of blow |
-| snorting coke through a crisp $100 bill |
-| Socialist Liberal Hippie Tree-Hugger Democrats |
-| strangers with candy |
-| stupid fucking rednecks |
-| sucking your own dick |
-| swallowing a tapeworm |
-| sweet, delicious placenta |
-| swollen breasts |
+| sexual i adequacy |
+| sexually-f ust ated tee age s |
+| Sha k Week |
+| Sha k ado |
+| sha ti g |
+| shitti g i  someo e else's mouth |
+| shitti g you  b ai s out o  a squat toilet |
+| shitti g you self at a Pizza Hut Buffet™ |
+| shovi g baco  i  you  pussy to get him to eat you out |
+| sitti g all the way dow  o  a t affic co e |
+| six-week-old tampo  sta k |
+| slappi g you  tits like a  a g y o a guta  |
+| sleepi g with you  imp ov teache  |
+| slidi g you  to gue th ough the  ou d hole of a dough ut |
+| slowly b ushi g you  hai  while whispe i g "p etty gi l" i  a mi o  |
+| slut-shami g |
+| small wie e s |
+| smoki ' g ass a d eati ' ass |
+| smoki g two joi ts i  the mo i g |
+| s eezi g i to a shitload of blow |
+| s o ti g coke th ough a c isp $100 bill |
+| Socialist Libe al Hippie T ee-Hugge  Democ ats |
+| st a ge s with ca dy |
+| stupid fucki g  ed ecks |
+| sucki g you  ow  dick |
+| swallowi g a tapewo m |
+| sweet, delicious place ta |
+| swolle  b easts |
 | Taco Tuesday, bitches! |
-| taking Liam Neeson's daughter and demanding a large ransom |
-| talking about Fight Club |
-| tax evasion |
-| teen dads |
-| ten-foot-tall radioactive rats |
-| that frothy mixture of lube and fecal matter that is sometimes the byproduct of anal sex |
-| that sweet moment of ecstasy before you reach orgasm |
-| the "fun" person at the office |
+| taki g Liam Neeso 's daughte  a d dema di g a la ge  a som |
+| talki g about Fight Club |
+| tax evasio  |
+| tee  dads |
+| te -foot-tall  adioactive  ats |
+| that f othy mixtu e of lube a d fecal matte  that is sometimes the byp oduct of a al sex |
+| that sweet mome t of ecstasy befo e you  each o gasm |
+| the "fu " pe so  at the office |
 | the 1% |
-| The Adventures of Shits-His-Pants Boy |
-| The Alabama Hot Pocket: shitting inside her vagina nad then squishing your dick in there |
-| The antidote. |
-| the buttcrack of an elderly man bending over to harvest his radishes |
-| the cold hands of your gynecologist |
-| the crumbling remains of Detroit |
-| the cure for cancer |
-| the dark web |
-| the elusive clitoris |
-| the entire population of Boise, Idaho |
-| the fact that I'm going to haunt the shit out of you |
-| the fourth dimension |
-| the fucked-up fish at the bottom of the ocean |
-| the government's secret stockpile of confiscated marijuana |
-| the guy who got fat after high school |
-| the hopes and dreams of little boys |
-| the horny hairy hormone monster |
-| the last two polar bears trapped on two separate icebergs |
-| the man in my basement |
-| The Mayor of Fuck City |
+| The Adve tu es of Shits-His-Pa ts Boy |
+| The Alabama Hot Pocket: shitti g i side he  vagi a  ad the  squishi g you  dick i  the e |
+| The a tidote. |
+| the buttc ack of a  elde ly ma  be di g ove  to ha vest his  adishes |
+| the cold ha ds of you  gy ecologist |
+| the c umbli g  emai s of Det oit |
+| the cu e fo  ca ce  |
+| the da k web |
+| the elusive clito is |
+| the e ti e populatio  of Boise, Idaho |
+| the fact that I'm goi g to hau t the shit out of you |
+| the fou th dime sio  |
+| the fucked-up fish at the bottom of the ocea  |
+| the gove me t's sec et stockpile of co fiscated ma ijua a |
+| the guy who got fat afte  high school |
+| the hopes a d d eams of little boys |
+| the ho y hai y ho mo e mo ste  |
+| the last two pola  bea s t apped o  two sepa ate icebe gs |
+| the ma  i  my baseme t |
+| The Mayo  of Fuck City |
 | the McRib |
-| the Mormom church |
-| the original MILF: Mother Earth |
-| the Penis Game |
-| the race card |
-| The Red Herring: convincing a guy you don't have your period but then you DO! |
-| the right amount of acid |
-| the second cumming |
-| the serial killers on Tinder |
-| the smell of wine and cheap perfume |
-| the taste of your own cum |
-| the thrill of getting fingered |
-| The Tickle King |
+| the Mo mom chu ch |
+| the o igi al MILF: Mothe  Ea th |
+| the Pe is Game |
+| the  ace ca d |
+| The Red He i g: co vi ci g a guy you do 't have you  pe iod but the  you DO! |
+| the  ight amou t of acid |
+| the seco d cummi g |
+| the se ial kille s o  Ti de  |
+| the smell of wi e a d cheap pe fume |
+| the taste of you  ow  cum |
+| the th ill of getti g fi ge ed |
+| The Tickle Ki g |
 | the WNBA |
-| the word "moist" |
-| thousands of sweaty nerds in a convention hall |
-| three buttholes |
-| tits and ass |
-| toilet wine |
-| tongue pounding the shit out of dat ass |
-| touchin' butts and lickin' nuts |
-| Toxic Shock Syndrome |
-| tragic teleportation accidents |
-| trustworthy pastors engaging in consensual group sex |
-| tub births |
-| two in the pink, one in the stink |
-| two men jerking each other off while maintaining contact |
-| uncircumsized penises |
-| unexpected decapitation |
-| ungodly science |
-| unrequited love |
-| using a Snickers bar as a dildo |
-| using bacon grease as lube |
+| the wo d "moist" |
+| thousa ds of sweaty  e ds i  a co ve tio  hall |
+| th ee buttholes |
+| tits a d ass |
+| toilet wi e |
+| to gue pou di g the shit out of dat ass |
+| touchi ' butts a d licki '  uts |
+| Toxic Shock Sy d ome |
+| t agic telepo tatio  accide ts |
+| t ustwo thy pasto s e gagi g i  co se sual g oup sex |
+| tub bi ths |
+| two i  the pi k, o e i  the sti k |
+| two me  je ki g each othe  off while mai tai i g co tact |
+| u ci cumsized pe ises |
+| u expected decapitatio  |
+| u godly scie ce |
+| u equited love |
+| usi g a S icke s ba  as a dildo |
+| usi g baco  g ease as lube |
 | viscous yellowish ejaculate |
-| vodka-soaked tampons |
-| Voldemort |
-| waking up in your mother's body |
-| Walmart sushi |
-| waving your dick in the wind |
-| wearing white shorts on the day of your first period |
+| vodka-soaked tampo s |
+| Voldemo t |
+| waki g up i  you  mothe 's body |
+| Walma t sushi |
+| wavi g you  dick i  the wi d |
+| wea i g white sho ts o  the day of you  fi st pe iod |
 | whiskey dick |
 | white guilt |
-| world-class international orgies at the Olympic Village |
-| writing BOOBIES with your calculator |
-| Yoda's little green wiener |
-| your dad's browser history |
-| your evil twin |
-| your fragile fucking feelings |
-| your old cum socks from the 90s |
-| your sweet little candy-ass |
+| wo ld-class i te atio al o gies at the Olympic Village |
+| w iti g BOOBIES with you  calculato  |
+| Yoda's little g ee  wie e  |
+| you  dad's b owse  histo y |
+| you  evil twi  |
+| you  f agile fucki g feeli gs |
+| you  old cum socks f om the 90s |
+| you  sweet little ca dy-ass |
 | Zeus's butthole |
 
 |Total amount: 399|

@@ -13,11 +13,11 @@ Answers amount: 3
 |---|
 
 ### Answers
-| Question |
+| Answers |
 |---|
-| A teenage boy gunning for a handjob. |
-| Feeding a man a pie made of his own children. |
-| Ironically buying a trucker hat and then ironically being a trucker for 38 years. |
+| A tee age boy gu i g fo  a ha djob. |
+| Feedi g a ma  a pie made of his ow  child e . |
+| I o ically buyi g a t ucke  hat a d the  i o ically bei g a t ucke  fo  38 yea s. |
 
 |Total amount: 3|
 |---|

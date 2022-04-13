@@ -11,15 +11,15 @@ Answers amount: 7
 |---|
 
 ### Answers
-| Question |
+| Answers |
 |---|
-| A smile or just a nod. |
-| All the accumulated culture of a people. |
-| Being young and living in New York City. |
-| The dark side. |
-| The gross inequalities of our society. |
-| The wisdom of the crowds. |
-| Uninformed knuckle-dragging low information voters. |
+| A smile o  just a  od. |
+| All the accumulated cultu e of a people. |
+| Bei g you g a d livi g i  New Yo k City. |
+| The da k side. |
+| The g oss i equalities of ou  society. |
+| The wisdom of the c owds. |
+| U i fo med k uckle-d aggi g low i fo matio  vote s. |
 
 |Total amount: 7|
 |---|

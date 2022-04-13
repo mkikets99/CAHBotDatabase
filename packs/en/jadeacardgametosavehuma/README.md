@@ -46,167 +46,167 @@ Answers amount: 159
 |---|
 
 ### Answers
-| Question |
+| Answers |
 |---|
-| "Hello Mister!" |
-| $1.25 per day |
-| 100 foreskins in a bucket |
-| A bad blood-to-stool ratio |
-| A bottomless pit of need |
-| A career in contract compliance |
-| A Celebrity Deathmatch between Jeff Sachs and Bill Easterly |
-| A child's unwashed hands |
-| A fire drill in the Ronald Reagan Building |
-| A gift of live chickens and a stalk of plantains |
-| A hand job from a monkey |
-| A loan shark in micro lender's clothing |
-| A market-driven approach |
-| A one-way feedback loop |
-| A photogenic child with flies and a distended belly |
-| A really solid shit |
-| A research grant to find evidence that evidence-based research for policy makers is used by policy makers to make evidence-based policy |
-| A sinking boat full of brown people |
-| A vial of Bono's tears |
+| "Hello Miste !" |
+| $1.25 pe  day |
+| 100 fo eski s i  a bucket |
+| A bad blood-to-stool  atio |
+| A bottomless pit of  eed |
+| A ca ee  i  co t act complia ce |
+| A Celeb ity Deathmatch betwee  Jeff Sachs a d Bill Easte ly |
+| A child's u washed ha ds |
+| A fi e d ill i  the Ro ald Reaga  Buildi g |
+| A gift of live chicke s a d a stalk of pla tai s |
+| A ha d job f om a mo key |
+| A loa  sha k i  mic o le de 's clothi g |
+| A ma ket-d ive  app oach |
+| A o e-way feedback loop |
+| A photoge ic child with flies a d a diste ded belly |
+| A  eally solid shit |
+| A  esea ch g a t to fi d evide ce that evide ce-based  esea ch fo  policy make s is used by policy make s to make evide ce-based policy |
+| A si ki g boat full of b ow  people |
+| A vial of Bo o's tea s |
 | A white SUV |
-| A year's salary from the Shuttleworth Foundation to do whatever the fuck you want |
-| Actually giving a shit |
+| A yea 's sala y f om the Shuttlewo th Fou datio  to do whateve  the fuck you wa t |
+| Actually givi g a shit |
 | AIDS |
-| An educated angry African |
-| An external drive full of ripped TV shows |
-| An iPhone at the bottom of a pit latrine |
-| An unpronounceable acronym |
-| An updated, well-organized spreadsheet |
-| Another goddamn cookstove |
-| Antimalarial-induced hallucinations |
-| Asian ass |
-| Avoiding missionaries |
-| Ayn Rand |
-| Being a gay Mormon in Uganda |
-| Beyonic's cashless utopia |
-| Bicycle-powered water pumps pedaled by malnourished 8-year-olds |
-| Bleeding-heart humanitarianism |
-| Bombing in the name of freedom |
-| Botflies in my boxers |
-| Brain parasites as a behavior change methodology |
-| Bribes paid in M-PESA |
-| Bribing the local ethics review board |
-| Broken condoms |
+| A  educated a g y Af ica  |
+| A  exte al d ive full of  ipped TV shows |
+| A  iPho e at the bottom of a pit lat i e |
+| A  u p o ou ceable ac o ym |
+| A  updated, well-o ga ized sp eadsheet |
+| A othe  goddam  cookstove |
+| A timala ial-i duced halluci atio s |
+| Asia  ass |
+| Avoidi g missio a ies |
+| Ay  Ra d |
+| Bei g a gay Mo mo  i  Uga da |
+| Beyo ic's cashless utopia |
+| Bicycle-powe ed wate  pumps pedaled by mal ou ished 8-yea -olds |
+| Bleedi g-hea t huma ita ia ism |
+| Bombi g i  the  ame of f eedom |
+| Botflies i  my boxe s |
+| B ai  pa asites as a behavio  cha ge methodology |
+| B ibes paid i  M-PESA |
+| B ibi g the local ethics  eview boa d |
+| B oke  co doms |
 | Bush meat |
-| Carefully curating a social media presence to look cool |
-| China! |
-| Coming to terms with the fact that your intervention is the problem |
-| Contracting AIDS from a cute rebel leader |
-| Dennis Rodman diplomacy |
-| Diplomatic pouch privileges |
-| Disneyland Darfur |
-| Disruptive Innovation |
+| Ca efully cu ati g a social media p ese ce to look cool |
+| Chi a! |
+| Comi g to te ms with the fact that you  i te ve tio  is the p oblem |
+| Co t acti g AIDS f om a cute  ebel leade  |
+| De is Rodma  diplomacy |
+| Diplomatic pouch p ivileges |
+| Dis eyla d Da fu  |
+| Dis uptive I ovatio  |
 | Ebola juices |
-| Emergency Sex |
-| Ending peace and harmony by introducing democracy and elections |
-| Explaining tat Chad is a country, not a person |
+| Eme ge cy Sex |
+| E di g peace a d ha mo y by i t oduci g democ acy a d electio s |
+| Explai i g tat Chad is a cou t y,  ot a pe so  |
 | Fecal sludge |
-| Feeling superior to tourists for knowing how to say more than "thank you" in the local language |
-| George Clooney's wife |
-| Getting high with indigenous communities |
-| Getting upgraded to business class |
-| Getting your vibrator confiscated a the airport |
-| Giardia burps |
-| Gin o'clock |
-| Giving a damn about genocide |
-| Giving AIDS to prostitutes |
-| Giving up any hope of a stable relationship |
+| Feeli g supe io  to tou ists fo  k owi g how to say mo e tha  "tha k you" i  the local la guage |
+| Geo ge Cloo ey's wife |
+| Getti g high with i dige ous commu ities |
+| Getti g upg aded to busi ess class |
+| Getti g you  vib ato  co fiscated a the ai po t |
+| Gia dia bu ps |
+| Gi  o'clock |
+| Givi g a dam  about ge ocide |
+| Givi g AIDS to p ostitutes |
+| Givi g up a y hope of a stable  elatio ship |
 | GIZ |
-| Going blind from local moonshine |
-| Going local |
-| Good old-fashioned colonial values |
-| Growing a beard and waving a Kalashnikov |
-| Hanging up and pretending you ran out of mobile credit |
-| Helpies - selfies to brag about helping |
-| His Excellency, President for Life, Field Marshal Al Hadji Doctor Idi Amin Dada, VC, DSO, MC, Lord of All the Beasts of the Earth and Fishes of the Seas and Conqueror of the British Empire in Africa in General and Uganda in Particular |
-| Hoarding the only two squares of toilet paper left |
-| Humanitarians of Tinder |
-| Hypocrisy |
-| In the bush |
-| In-kind donations of hookers and coke |
-| Indigenous alcohol |
-| Ineffective cascaded training |
-| Interrupting the fecal-oral cycle |
-| ISIL's YouTube channel |
-| Learning to poop in a Ziploc bag |
-| Marrying local |
-| Measuring time as an indicator |
-| Microloans to start a brothel |
-| Mid-Upper Arm Circumference |
-| Missing 1K status by 500 miles |
-| Monsanto.org |
-| My well-hung Senegalese boyfriend |
-| My white in shining armor |
+| Goi g bli d f om local moo shi e |
+| Goi g local |
+| Good old-fashio ed colo ial values |
+| G owi g a bea d a d wavi g a Kalash ikov |
+| Ha gi g up a d p ete di g you  a  out of mobile c edit |
+| Helpies - selfies to b ag about helpi g |
+| His Excelle cy, P eside t fo  Life, Field Ma shal Al Hadji Docto  Idi Ami  Dada, VC, DSO, MC, Lo d of All the Beasts of the Ea th a d Fishes of the Seas a d Co que o  of the B itish Empi e i  Af ica i  Ge e al a d Uga da i  Pa ticula  |
+| Hoa di g the o ly two squa es of toilet pape  left |
+| Huma ita ia s of Ti de  |
+| Hypoc isy |
+| I  the bush |
+| I -ki d do atio s of hooke s a d coke |
+| I dige ous alcohol |
+| I effective cascaded t ai i g |
+| I te upti g the fecal-o al cycle |
+| ISIL's YouTube cha el |
+| Lea i g to poop i  a Ziploc bag |
+| Ma yi g local |
+| Measu i g time as a  i dicato  |
+| Mic oloa s to sta t a b othel |
+| Mid-Uppe  A m Ci cumfe e ce |
+| Missi g 1K status by 500 miles |
+| Mo sa to.o g |
+| My well-hu g Se egalese boyf ie d |
+| My white i  shi i g a mo  |
 | Nepotism |
-| Organizational restructuring |
-| Orphanage tourism |
-| Per diems |
-| Phase 17: Establish local ownership |
-| Pleasing the donor at any cost |
-| Post-Traumatic Stress Disorder |
-| Poverty porn |
-| Propagating heinous American stereotypes |
-| Puking into the shower while sitting on the toilet |
-| Real-time data collection |
-| Reserving DFID funds for the abortions |
-| Robert Mugabe |
-| Saving Africa one adoption at a time |
-| Seahawks Super Bowl XLIX Championship t-shirts |
-| Sean Penn's Glock |
-| Secret Service hookers |
-| Secretly celebrating when disasters occurs because you don't have to live in your parent's basement anymore |
+| O ga izatio al  est uctu i g |
+| O pha age tou ism |
+| Pe  diems |
+| Phase 17: Establish local ow e ship |
+| Pleasi g the do o  at a y cost |
+| Post-T aumatic St ess Diso de  |
+| Pove ty po  |
+| P opagati g hei ous Ame ica  ste eotypes |
+| Puki g i to the showe  while sitti g o  the toilet |
+| Real-time data collectio  |
+| Rese vi g DFID fu ds fo  the abo tio s |
+| Robe t Mugabe |
+| Savi g Af ica o e adoptio  at a time |
+| Seahawks Supe  Bowl XLIX Champio ship t-shi ts |
+| Sea  Pe 's Glock |
+| Sec et Se vice hooke s |
+| Sec etly celeb ati g whe  disaste s occu s because you do 't have to live i  you  pa e t's baseme t a ymo e |
 | Sexpats |
-| Sexy UNHAS flight attendants |
-| Shagging in a flak jacket |
-| Sharts |
-| Shooting Cecil the lion |
-| Skype sex with a bad Internet connection |
-| Sleeping with your supervisors |
-| Sobbing while your host family eats your dog for dinner |
-| Somali pirates |
-| Struggling with the fact that without child labor, there'd be no cocoa |
-| Sushi in a landlocked country |
-| Sustainability |
-| T-shirts! |
+| Sexy UNHAS flight atte da ts |
+| Shaggi g i  a flak jacket |
+| Sha ts |
+| Shooti g Cecil the lio  |
+| Skype sex with a bad I te et co ectio  |
+| Sleepi g with you  supe viso s |
+| Sobbi g while you  host family eats you  dog fo  di e  |
+| Somali pi ates |
+| St uggli g with the fact that without child labo , the e'd be  o cocoa |
+| Sushi i  a la dlocked cou t y |
+| Sustai ability |
+| T-shi ts! |
 | T.I.A. |
-| Talking about food security over caviar and fine wine |
-| Tea breaks |
-| That time the UN recognized Palestine |
-| The bloodshot eyes of a boy soldier |
-| The British |
-| The dysentery diet |
-| The economic vacuum left by a UN peacekeeping mission close down |
-| The eternal tension between prostitution and entrepreneurship |
-| The fourth cup of tea |
-| The girl-child |
-| The one honest Nigerian official |
-| The resource curse |
-| The satisfaction that comes with finding the closest workshop venue outside the capitol that qualifies for per diems |
-| The sex worker value chain |
-| The smug sense of self-satisfaction |
-| The sudden realization that your theory of change is a crock of shit |
-| The third gender |
-| The warm embrace of malaria |
+| Talki g about food secu ity ove  cavia  a d fi e wi e |
+| Tea b eaks |
+| That time the UN  ecog ized Palesti e |
+| The bloodshot eyes of a boy soldie  |
+| The B itish |
+| The dyse te y diet |
+| The eco omic vacuum left by a UN peacekeepi g missio  close dow  |
+| The ete al te sio  betwee  p ostitutio  a d e t ep e eu ship |
+| The fou th cup of tea |
+| The gi l-child |
+| The o e ho est Nige ia  official |
+| The  esou ce cu se |
+| The satisfactio  that comes with fi di g the closest wo kshop ve ue outside the capitol that qualifies fo  pe  diems |
+| The sex wo ke  value chai  |
+| The smug se se of self-satisfactio  |
+| The sudde   ealizatio  that you  theo y of cha ge is a c ock of shit |
+| The thi d ge de  |
+| The wa m emb ace of mala ia |
 | The White Maasai |
-| The White Savior Complex |
-| Three large sheep |
-| Tragically single middle-aged women |
-| Turning human waste into clean energy |
+| The White Savio  Complex |
+| Th ee la ge sheep |
+| T agically si gle middle-aged wome  |
+| Tu i g huma  waste i to clea  e e gy |
 | Two guys with AK-47s |
 | Ugali |
 | Ushahidi |
-| Using fake polio vaccines to find Osama bin Laden |
-| Value for money |
-| Vandalizing a Mandela statue |
+| Usi g fake polio vacci es to fi d Osama bi  Lade  |
+| Value fo  mo ey |
+| Va dalizi g a Ma dela statue |
 | Village hooch |
 | Village justice |
-| Voluntourism |
-| Whispering under your breath that the US is not the center of the world |
-| Women dancing and clapping for an arriving fleet of Land Cruisers |
+| Volu tou ism |
+| Whispe i g u de  you  b eath that the US is  ot the ce te  of the wo ld |
+| Wome  da ci g a d clappi g fo  a  a ivi g fleet of La d C uise s |
 
 |Total amount: 159|
 |---|

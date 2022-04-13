@@ -41,163 +41,167 @@ Answers amount: 155
 |---|
 
 ### Answers
-| Question |
+| Answers |
 |---|
-| #diaperfail |
-| 18 books on how to fail as a parent |
-| 20 years of paid maternity leave |
-| 8,000 baby blankets |
-| A baby bath shaped like a uterus |
-| A baby in a weiner costume |
-| A baby orangutan |
-| A baby registry filled with nothing but elaborate bongs |
-| A baby seat for your motorcycle |
-| A baby sling made out of martini glasses |
-| A baby that smokes and plays the ukulele |
-| A bachelorette party blackout love child |
-| A back alley C-section |
-| A benevolent robot babysitter |
-| A bloody creature popping through your sternum Alien style |
-| A coke-fueled babymoon in Vegas |
-| A cord blood painting |
-| A diaper bag that changes diapers for you |
-| A dirty diaper wedgie |
-| A doctor mansplaining to you about mucus plugs |
-| A foreskin charm bracelet |
-| A gentle music box rendition of "Gangnam Style" |
-| A handsome stranger with a pregnanat lady fetish |
-| A handsy OB/GYN who stinks of whiskey |
-| A hot hipster dad with a craft beard |
-| A hysterical outburst about cosleeping |
-| A literal shit show |
-| A lot of gore and humanity |
+| #diape fail |
+| 18 books o  how to fail as a pa e t |
+| 20 yea s of paid mate ity leave |
+| 8,000 baby bla kets |
+| A baby bath shaped like a ute us |
+| A baby i  a wei e  costume |
+| A baby o a guta  |
+| A baby  egist y filled with  othi g but elabo ate bo gs |
+| A baby seat fo  you  moto cycle |
+| A baby sli g made out of ma ti i glasses |
+| A baby that smokes a d plays the ukulele |
+| A bachelo ette pa ty blackout love child |
+| A back alley C-sectio  |
+| A be evole t  obot babysitte  |
+| A bloody c eatu e poppi g th ough you  ste um Alie  style |
+| A coke-fueled babymoo  i  Vegas |
+| A co d blood pai ti g |
+| A diape  bag that cha ges diape s fo  you |
+| A di ty diape  wedgie |
+| A docto  ma splai i g to you about mucus plugs |
+| A fo eski  cha m b acelet |
+| A ge tle music box  e ditio  of "Ga g am Style" |
+| A ha dsome st a ge  with a p eg a at lady fetish |
+| A ha dsy OB/GYN who sti ks of whiskey |
+| A hot hipste  dad with a c aft bea d |
+| A hyste ical outbu st about cosleepi g |
+| A lite al shit show |
+| A lot of go e a d huma ity |
 | A mouthful of baby piss |
-| A newborn size Darth Vader helmet |
-| A nursing bra strip tease |
-| A red sequined hospital gown |
+| A  ewbo  size Da th Vade  helmet |
+| A  u si g b a st ip tease |
+| A  ed sequi ed hospital gow  |
 | A sippy cup full of tequila |
-| A soundproof crib |
-| A stroller that costs more than your car |
-| A three-day gender reveal bender |
-| A wall-size print of your first ultrasound |
-| A well endowed wet nurse |
-| A whole new kind of "play date" |
-| Acting insufferably smug and self-important while you stroke your swollen abdomen |
-| Adopting an orphan crack baby |
-| All the hormones in the whole world |
-| All the ways the baby blogs convince you you are murdering your unborn child |
-| An "I'm with the MILF" onesie |
-| An 18-year day care wait list |
-| An uncontrollable craving for a big fat joint |
-| Ancient Viking birthing rituals involving caribou pelt and mead |
-| Awkward and uncomfortable new sex positions that you both hate |
-| Baby Jumbly Bum Bum Junior |
-| Baby-proofing the porn cabinet |
-| BDSM costumes in maternity sizes |
-| Being constantly pawed by strangers |
-| Being kicked in the ribs for 16 weeks |
-| Blasting Metallica through your uterine walls |
-| Borderline inappropriate naked infant photos |
-| Bragging about your newborn's very highly advanced pooping capabilities |
-| Breast milk pina coladas |
-| Breast pump foreplay |
-| Celebrating the fact that you flossed |
-| Chocolate for breakfast |
-| Cold-cocking a stranger who felt compelled to conjecture you "must be getting close!" |
-| Converting your sex dungeon into a baby room |
-| Deciding to just stay pregnant forever |
-| Decorating the nursery with pictures of boobs |
-| Delivering in a pool of champagne and rose petals |
-| Doing karate kicks while you push |
-| Dressing your child up as food |
-| Drinking for two |
-| Eating sushi because fuck it, it's delicious |
-| Embryo popsicles |
-| Feeling roughly the size of a bloated narwhal |
-| Fetus confetti |
-| Filling your birthing pool with warm, lavender-scented vodka |
-| Finally getting to expose your boobs in public |
-| Forcing people to compliment your ugly baby |
-| Free range organic cotton fair trade butt wipes |
-| Fucking owls |
-| Gaining 80 pounds of cookie dough weight |
-| Giving birth in the back seat of a Prius |
-| Giving birth to a centaur |
-| Growing a third boob |
-| Having your every decision examined by every single person on Earth |
-| Heteropaternal superfecundation(Google it) |
-| Hot, hot pregnant lady sex |
-| In utero SAT prep class |
-| Inconvenient ovulation |
-| Installing a snooze button on the baby |
-| Latching like a motherfucker |
-| Live blogging your cervical dilation |
-| Magical vaj tightening elixir |
-| Making sweet love to a specimen cup |
-| Many passive-aggressive parent listserv posts |
-| Matching family turtlenecks |
-| Men who breastfeed |
-| Mistaking a dildo for a teether |
-| Mommy wars PTSD |
-| Mustachifiers |
-| Nanny sharing in more ways than one |
-| NASA-level baby monitoring technology |
-| Never, ever, ever, ever, ever going out again.Ever. |
-| New lows in personal hygiene |
-| Nipple electrocution |
-| Opium-flavored formula |
-| Orgasmic contractions |
-| Peeing your pants a little every time you sneeze |
-| Pilot Inspector Apple Bobo |
-| Pimping on the side, to save for college |
-| Placenta-flavored protein bars |
-| Pooping all over a nurse |
-| Prenatal vitamins |
-| Projectile baby vomit in your eye |
-| Public poopsplosions |
-| Publicly breastfeeding your eight-year-old |
-| Pushing an object the size of a watermelon through a hole the size of a grape |
-| Putting stirrups on your bed, just for fun |
+| A sou dp oof c ib |
+| A st olle  that costs mo e tha  you  ca  |
+| A th ee-day ge de   eveal be de  |
+| A wall-size p i t of you  fi st ult asou d |
+| A well e dowed wet  u se |
+| A whole  ew ki d of "play date" |
+| Acti g i suffe ably smug a d self-impo ta t while you st oke you  swolle  abdome  |
+| Adopti g a  o pha  c ack baby |
+| All the ho mo es i  the whole wo ld |
+| All the ways the baby blogs co vi ce you you a e mu de i g you  u bo  child |
+| A  "I'm with the MILF" o esie |
+| A  18-yea  day ca e wait list |
+| A  u co t ollable c avi g fo  a big fat joi t |
+| A cie t Viki g bi thi g  ituals i volvi g ca ibou pelt a d mead |
+| Awkwa d a d u comfo table  ew sex positio s that you both hate |
+| Baby Jumbly Bum Bum Ju io  |
+| Baby-p oofi g the po  cabi et |
+| BDSM costumes i  mate ity sizes |
+| Bei g co sta tly pawed by st a ge s |
+| Bei g kicked i  the  ibs fo  16 weeks |
+| Blasti g Metallica th ough you  ute i e walls |
+| Bo de li e i app op iate  aked i fa t photos |
+| B aggi g about you   ewbo 's ve y highly adva ced poopi g capabilities |
+| B east milk pi a coladas |
+| B east pump fo eplay |
+| Celeb ati g the fact that you flossed |
+| Chocolate fo  b eakfast |
+| Cold-cocki g a st a ge  who felt compelled to co jectu e you "must be getti g close!" |
+| Co ve ti g you  sex du geo  i to a baby  oom |
+| Decidi g to just stay p eg a t fo eve  |
+| Deco ati g the  u se y with pictu es of boobs |
+| Delive i g i  a pool of champag e a d  ose petals |
+| Doi g ka ate kicks while you push |
+| D essi g you  child up as food |
+| D i ki g fo  two |
+| Eati g sushi because fuck it, it's delicious |
+| Emb yo popsicles |
+| Feeli g  oughly the size of a bloated  a whal |
+| Fetus co fetti |
+| Filli g you  bi thi g pool with wa m, lave de -sce ted vodka |
+| Fi ally getti g to expose you  boobs i  public |
+| Fo ci g people to complime t you  ugly baby |
+| F ee  a ge o ga ic cotto  fai  t ade butt wipes |
+| Fucki g owls |
+| Gai i g 80 pou ds of cookie dough weight |
+| Givi g bi th i  the back seat of a P ius |
+| Givi g bi th to a ce tau  |
+| G owi g a thi d boob |
+| Havi g you  eve y decisio  exami ed by eve y si gle pe so  o  Ea th |
+| Hete opate al supe fecu datio 
+
+(Google it) |
+| Hot, hot p eg a t lady sex |
+| I  ute o SAT p ep class |
+| I co ve ie t ovulatio  |
+| I stalli g a s ooze butto  o  the baby |
+| Latchi g like a mothe fucke  |
+| Live bloggi g you  ce vical dilatio  |
+| Magical vaj tighte i g elixi  |
+| Maki g sweet love to a specime  cup |
+| Ma y passive-agg essive pa e t listse v posts |
+| Matchi g family tu tle ecks |
+| Me  who b eastfeed |
+| Mistaki g a dildo fo  a teethe  |
+| Mommy wa s PTSD |
+| Mustachifie s |
+| Na y sha i g i  mo e ways tha  o e |
+| NASA-level baby mo ito i g tech ology |
+| Neve , eve , eve , eve , eve  goi g out agai .
+
+Eve . |
+| New lows i  pe so al hygie e |
+| Nipple elect ocutio  |
+| Opium-flavo ed fo mula |
+| O gasmic co t actio s |
+| Peei g you  pa ts a little eve y time you s eeze |
+| Pilot I specto  Apple Bobo |
+| Pimpi g o  the side, to save fo  college |
+| Place ta-flavo ed p otei  ba s |
+| Poopi g all ove  a  u se |
+| P e atal vitami s |
+| P ojectile baby vomit i  you  eye |
+| Public poopsplosio s |
+| Publicly b eastfeedi g you  eight-yea -old |
+| Pushi g a  object the size of a wate melo  th ough a hole the size of a g ape |
+| Putti g sti ups o  you  bed, just fo  fu  |
 | QUINTUPLETS!!!!! |
-| Realizing you have baby shit in your hair |
-| Rogue ninja sperm |
-| Science Baby |
-| Scoring Beyonce as your egg donor |
-| Screaming "FUCK YOUR FAT FACE" over and over as loud as you can |
-| Seeing who can cry the loudest |
-| Sensually licking steamed carrot puree off a tiny spoon |
-| Shade grown certified humane bamboo burp cloths |
-| Silently puking in the office bathroom |
-| Slapping the shit out of the next person who hands you something pink |
-| Some weird as fuck baby name |
-| Squatting and farting |
-| Stanky pirate snatch |
-| Still throwing yourself baby showers when the kid starts kindergarten |
-| Taking a conference call with an infant on your teat |
-| Tattooing BADASS across your baby bump |
-| The baby gender police |
-| The baby-industrial complex |
-| The distant memory of a clitoris |
+| Realizi g you have baby shit i  you  hai  |
+| Rogue  i ja spe m |
+| Scie ce Baby |
+| Sco i g Beyo ce as you  egg do o  |
+| Sc eami g "FUCK YOUR FAT FACE" ove  a d ove  as loud as you ca  |
+| Seei g who ca  c y the loudest |
+| Se sually licki g steamed ca ot pu ee off a ti y spoo  |
+| Shade g ow  ce tified huma e bamboo bu p cloths |
+| Sile tly puki g i  the office bath oom |
+| Slappi g the shit out of the  ext pe so  who ha ds you somethi g pi k |
+| Some wei d as fuck baby  ame |
+| Squatti g a d fa ti g |
+| Sta ky pi ate s atch |
+| Still th owi g you self baby showe s whe  the kid sta ts ki de ga te  |
+| Taki g a co fe e ce call with a  i fa t o  you  teat |
+| Tattooi g BADASS ac oss you  baby bump |
+| The baby ge de  police |
+| The baby-i dust ial complex |
+| The dista t memo y of a clito is |
 | The good kid |
-| The kaleidoscopic spectrum of baby poop colors |
-| The mortal fear that your labia will never be the same |
-| The most beautiful, magical miracle EVAAAR!!! |
-| The most disgusting thing you've ever smelled |
-| The myth of fetal alcohol syndrome |
-| The sheer quantity of crap an eight-pound human can produce |
-| The worst mistake you ever made |
-| Three hours of sleep IN A ROW |
-| Throwing yourself six baby showers, starting pre-conception |
-| Trading your kid in for a better one |
-| Unflattering comparisons to lactating farm animals |
-| Various combinations of eating, pooping, sleeping, and puking |
-| Viet Cong-style sleep deprivation torture |
-| Vigorously washing all your nipples |
-| WhiteBabyBlackMarket.com |
-| Wishing your vagina didn't hurt so much |
-| Wondering who the father is |
-| Your gorgeous new milk boobs |
-| Your mother-in-law's extremely graphic birth story |
+| The kaleidoscopic spect um of baby poop colo s |
+| The mo tal fea  that you  labia will  eve  be the same |
+| The most beautiful, magical mi acle EVAAAR!!! |
+| The most disgusti g thi g you've eve  smelled |
+| The myth of fetal alcohol sy d ome |
+| The shee  qua tity of c ap a  eight-pou d huma  ca  p oduce |
+| The wo st mistake you eve  made |
+| Th ee hou s of sleep IN A ROW |
+| Th owi g you self six baby showe s, sta ti g p e-co ceptio  |
+| T adi g you  kid i  fo  a bette  o e |
+| U flatte i g compa iso s to lactati g fa m a imals |
+| Va ious combi atio s of eati g, poopi g, sleepi g, a d puki g |
+| Viet Co g-style sleep dep ivatio  to tu e |
+| Vigo ously washi g all you   ipples |
+| WhiteBabyBlackMa ket.com |
+| Wishi g you  vagi a did 't hu t so much |
+| Wo de i g who the fathe  is |
+| You  go geous  ew milk boobs |
+| You  mothe -i -law's ext emely g aphic bi th sto y |
 
 |Total amount: 155|
 |---|

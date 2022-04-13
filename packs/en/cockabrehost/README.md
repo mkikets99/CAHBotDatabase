@@ -61,208 +61,208 @@ Answers amount: 200
 |---|
 
 ### Answers
-| Question |
+| Answers |
 |---|
-| A bald eagle named Small Government. |
-| A handjob from Edward Scissorhands. |
-| A hyper-realistic sex doll with a vaginal cavity modeled after a famous pornstar. |
-| A mushroom stamp. |
-| A tattoo of Kim Kardashian taking a shit. |
-| A tickle taint parade. |
-| Actually menstruating that weird blue stuff from tampon commercials. |
-| Affluenza. |
-| Alabama: Sharia Law for Christians. |
-| Almost having sex in a dream. |
-| An actual skin flute. |
-| Artfully disguised network television sex scenes. |
-| Asians who sound white. |
-| Bagging up baking powder and marketing it to rich white kids. |
-| Becoming a gynecologist so you can feel up teenage vaginas without fear of legal repercussions. |
-| Being able to fit two five-year-olds in your pants. |
-| Bill Clinton's "other" woodwind. |
-| Bill O'Reilly's defense against the War on Christmas. |
-| Billy Mays in a coke-fueled rage, beating the ever-loving shit out of the Slap-Chop® guy. |
-| Blackface, but out of context. |
-| Bombing the shit out of Gaza. |
-| Bringing variety to the gangbang by suggesting we all use a different flavor of lube. |
-| Browsing second-hand G-strings at the Salvation Army. |
-| Butt chugging Mentos® and Diet Coke®. |
+| A bald eagle  amed Small Gove me t. |
+| A ha djob f om Edwa d Scisso ha ds. |
+| A hype - ealistic sex doll with a vagi al cavity modeled afte  a famous po sta . |
+| A mush oom stamp. |
+| A tattoo of Kim Ka dashia  taki g a shit. |
+| A tickle tai t pa ade. |
+| Actually me st uati g that wei d blue stuff f om tampo  comme cials. |
+| Afflue za. |
+| Alabama: Sha ia Law fo  Ch istia s. |
+| Almost havi g sex i  a d eam. |
+| A  actual ski  flute. |
+| A tfully disguised  etwo k televisio  sex sce es. |
+| Asia s who sou d white. |
+| Baggi g up baki g powde  a d ma keti g it to  ich white kids. |
+| Becomi g a gy ecologist so you ca  feel up tee age vagi as without fea  of legal  epe cussio s. |
+| Bei g able to fit two five-yea -olds i  you  pa ts. |
+| Bill Cli to 's "othe " woodwi d. |
+| Bill O'Reilly's defe se agai st the Wa  o  Ch istmas. |
+| Billy Mays i  a coke-fueled  age, beati g the eve -lovi g shit out of the Slap-Chop® guy. |
+| Blackface, but out of co text. |
+| Bombi g the shit out of Gaza. |
+| B i gi g va iety to the ga gba g by suggesti g we all use a diffe e t flavo  of lube. |
+| B owsi g seco d-ha d G-st i gs at the Salvatio  A my. |
+| Butt chuggi g Me tos® a d Diet Coke®. |
 | Buttplugs? |
-| Celebrating Martin Luther King Day by eating fried chicken and talking during movies. |
-| Circumcisior. |
-| CNN cutting away from the State of the Union to cover D-List celebrity tweets. |
-| Coed prisons. |
-| Coming to the sudden realization that if Superman were gay, he'd be the world's first Solar Power Bottom. |
-| Competitive shitting. |
-| Credit scores above 700. |
-| Curing Ebola after it becomes a problem for people who actually matter. |
-| David Cameron's bacon-flavoured balls. |
-| Dildo Faggins and the Battle of Balls Deep. |
-| Discovering a used condom in the last bite of an eclair. |
-| Drones Without Borders. |
-| English cuisine. |
-| Gatorade® for breakfast. |
-| Gifting home pregnancy tests for the office white elephant Christmas party. |
-| Giving her the ol' Hot Cosby. |
-| Hands, or as I like to call them, dick skinners. |
-| Harnessing the athleticism of black people to finally win the World Cup. |
-| Harriet Tubgirl. |
-| Helicopter dick. |
-| High recidivism rates among minorities. |
-| Hitler in a swastika-embroidered thong. |
-| Homoerotic ass slapping amongst athletes. |
-| Honky-ass motherfuckers. |
-| Insisting that, after we finally solve the Mexican problem, we start deporting Puerto Ricans, too. |
-| Jared Fogle eating a little bit too fresh. |
-| Jerry Sandusky's Balls for Kids Foundation. |
-| Jizz hands. |
-| Karl Rove's seventh chin. |
-| Kitty porn. |
-| Lysergic acid diethylamide. |
-| Meatspin. |
-| Melanin. |
-| Middle-aged white women in yoga pants. |
+| Celeb ati g Ma ti  Luthe  Ki g Day by eati g f ied chicke  a d talki g du i g movies. |
+| Ci cumcisio . |
+| CNN cutti g away f om the State of the U io  to cove  D-List celeb ity tweets. |
+| Coed p iso s. |
+| Comi g to the sudde   ealizatio  that if Supe ma  we e gay, he'd be the wo ld's fi st Sola  Powe  Bottom. |
+| Competitive shitti g. |
+| C edit sco es above 700. |
+| Cu i g Ebola afte  it becomes a p oblem fo  people who actually matte . |
+| David Came o 's baco -flavou ed balls. |
+| Dildo Faggi s a d the Battle of Balls Deep. |
+| Discove i g a used co dom i  the last bite of a  eclai . |
+| D o es Without Bo de s. |
+| E glish cuisi e. |
+| Gato ade® fo  b eakfast. |
+| Gifti g home p eg a cy tests fo  the office white elepha t Ch istmas pa ty. |
+| Givi g he  the ol' Hot Cosby. |
+| Ha ds, o  as I like to call them, dick ski e s. |
+| Ha essi g the athleticism of black people to fi ally wi  the Wo ld Cup. |
+| Ha iet Tubgi l. |
+| Helicopte  dick. |
+| High  ecidivism  ates amo g mi o ities. |
+| Hitle  i  a swastika-emb oide ed tho g. |
+| Homoe otic ass slappi g amo gst athletes. |
+| Ho ky-ass mothe fucke s. |
+| I sisti g that, afte  we fi ally solve the Mexica  p oblem, we sta t depo ti g Pue to Rica s, too. |
+| Ja ed Fogle eati g a little bit too f esh. |
+| Je y Sa dusky's Balls fo  Kids Fou datio . |
+| Jizz ha ds. |
+| Ka l Rove's seve th chi . |
+| Kitty po . |
+| Lyse gic acid diethylamide. |
+| Meatspi . |
+| Mela i . |
+| Middle-aged white wome  i  yoga pa ts. |
 | Mom's spaghetti. |
-| More than enough semen to fill an Olympic-sized pool. |
-| One cock ring to rule them all. |
-| Optimus Prime having sex with a dishwasher. |
-| Ordering baked anythingat the Holocaust Museum cafe. |
-| Overthrowing the burger kind to establish a burger democracy. |
-| Praying toward Mecca at the 9/11 Memorial. |
-| Putting some stink on it. |
-| Reciprocal foot fucking. |
-| Republican Jesus.® |
-| Returning in a time machine to command armies of fascism to a sweeping victory in the 1940s. |
-| RIMjobs.com: Blackberry's failed career portal. |
-| Semi-procreation. |
-| Sexual object-oriented programming. |
-| Shaq's massive horse cock. |
-| Spicing it up in the bedroom with hot sauce on the end of a dick. |
-| Steak Day at the strip club. |
-| Subtle dehumanization. |
-| Supreme Court justices who used to be into autoerotic asphyxiation. |
-| Swiping right. With my dick. |
-| Taking a selfie with Saddam Hussein's lifeless, hanging body. |
-| That new cunt smell. |
-| The awkward silence after someone farts in an adjacent bathroom stall. |
-| The Bernie Sanders Post-Scarcity Communist Utopia.® |
-| The Cobblepot: only one in the slit, but three way in the shit. |
-| The double Filet-o-Fish® sandwich available only during Lent. |
+| Mo e tha  e ough seme  to fill a  Olympic-sized pool. |
+| O e cock  i g to  ule them all. |
+| Optimus P ime havi g sex with a dishwashe . |
+| O de i g baked a ythi gat the Holocaust Museum cafe. |
+| Ove th owi g the bu ge  ki d to establish a bu ge  democ acy. |
+| P ayi g towa d Mecca at the 9/11 Memo ial. |
+| Putti g some sti k o  it. |
+| Recip ocal foot fucki g. |
+| Republica  Jesus.® |
+| Retu i g i  a time machi e to comma d a mies of fascism to a sweepi g victo y i  the 1940s. |
+| RIMjobs.com: Blackbe y's failed ca ee  po tal. |
+| Semi-p oc eatio . |
+| Sexual object-o ie ted p og ammi g. |
+| Shaq's massive ho se cock. |
+| Spici g it up i  the bed oom with hot sauce o  the e d of a dick. |
+| Steak Day at the st ip club. |
+| Subtle dehuma izatio . |
+| Sup eme Cou t justices who used to be i to autoe otic asphyxiatio . |
+| Swipi g  ight. With my dick. |
+| Taki g a selfie with Saddam Hussei 's lifeless, ha gi g body. |
+| That  ew cu t smell. |
+| The awkwa d sile ce afte  someo e fa ts i  a  adjace t bath oom stall. |
+| The Be ie Sa de s Post-Sca city Commu ist Utopia.® |
+| The Cobblepot: o ly o e i  the slit, but th ee way i  the shit. |
+| The double Filet-o-Fish® sa dwich available o ly du i g Le t. |
 | The fight to legalize gay weed. |
-| The gayest Keebler® Elf. |
-| The Huffington Post's page dedicated to sideboob. |
+| The gayest Keeble ® Elf. |
+| The Huffi gto  Post's page dedicated to sideboob. |
 | The Islamic State. |
-| The North American Free Trade Agreement, or, NAMBLA. |
-| The Real Housewives of Hattiesburg, Mississippi. |
-| The Spocker: two in the goo to live long, two in the poo to prosper. |
-| The Trump International Border Fence Hotel and Casino. |
-| Three-and-a-half inches of raw power. |
-| Tom Brady's deflated balls. |
-| Toxic Shock Syndrome. |
-| Tribbing. |
-| Unsolicited anal pleasure. |
-| Watching so much pixelated Japanese porn that you can't help but rub one out whenever COPSis on. |
-| Winning a United Negro College Fund scholarship to the Subway Sandwich University. |
+| The No th Ame ica  F ee T ade Ag eeme t, o , NAMBLA. |
+| The Real Housewives of Hattiesbu g, Mississippi. |
+| The Spocke : two i  the goo to live lo g, two i  the poo to p ospe . |
+| The T ump I te atio al Bo de  Fe ce Hotel a d Casi o. |
+| Th ee-a d-a-half i ches of  aw powe . |
+| Tom B ady's deflated balls. |
+| Toxic Shock Sy d ome. |
+| T ibbi g. |
+| U solicited a al pleasu e. |
+| Watchi g so much pixelated Japa ese po  that you ca 't help but  ub o e out whe eve  COPSis o . |
+| Wi i g a U ited Neg o College Fu d schola ship to the Subway Sa dwich U ive sity. |
 | [Chewbacca Noise]. |
-| /Piss Christ/. |
+| /Piss Ch ist/. |
 | 8=======D |
-| A cemetrery for only gay pets. |
-| A Fleshlight® full of used needles. |
-| A home DNA paternity test. |
-| A Kenyan who wins a marathon without training. |
-| A micropenis so small, it forced the Planck length to be redefined by several orders of magnitude. |
-| A room that smells like Fabreeze® and semen... but mostly semen. |
-| A Seth MacFarlane gag lasting for 17 minutes. |
-| A sexually aroused dyslexic who spreads peanut butter on his dog's balls. |
-| Abstinence-only education. |
-| Accidentally sexting my mom. |
-| Alarmist headlines about Hilary Clinton on the /Drudge Report/. |
-| An anniversary gift from the 9/11 Museum Gift Shop. |
-| Ann Coulter's far right-leaning dildo. |
-| Arriving at the gangbang 15 minutes late, yet somehow still coming too early. |
-| Asian pirate ships with predictably short planks. |
-| Baconnaise®: the Bacon-Flavored Mayonnaise. |
+| A cemet e y fo  o ly gay pets. |
+| A Fleshlight® full of used  eedles. |
+| A home DNA pate ity test. |
+| A Ke ya  who wi s a ma atho  without t ai i g. |
+| A mic ope is so small, it fo ced the Pla ck le gth to be  edefi ed by seve al o de s of mag itude. |
+| A  oom that smells like Fab eeze® a d seme ... but mostly seme . |
+| A Seth MacFa la e gag lasti g fo  17 mi utes. |
+| A sexually a oused dyslexic who sp eads pea ut butte  o  his dog's balls. |
+| Absti e ce-o ly educatio . |
+| Accide tally sexti g my mom. |
+| Ala mist headli es about Hila y Cli to  o  the /D udge Repo t/. |
+| A  a ive sa y gift f om the 9/11 Museum Gift Shop. |
+| A  Coulte 's fa   ight-lea i g dildo. |
+| A ivi g at the ga gba g 15 mi utes late, yet somehow still comi g too ea ly. |
+| Asia  pi ate ships with p edictably sho t pla ks. |
+| Baco aise®: the Baco -Flavo ed Mayo aise. |
 | Bass to mouth. |
-| Beef curtains. |
-| Being able to tell, with absolute certainty, the actual size of any penis just by sitting on it. |
-| Being physically unable to stop sucking dicks. |
-| Being required by federal law to introduce yourself to your neighbors. |
-| Benghazi: 9/11, Part II. |
-| Blowing the cat. |
-| Blowing up buildings to prove a point and go to Heaven for the single worst orgy of all time. |
+| Beef cu tai s. |
+| Bei g able to tell, with absolute ce tai ty, the actual size of a y pe is just by sitti g o  it. |
+| Bei g physically u able to stop sucki g dicks. |
+| Bei g  equi ed by fede al law to i t oduce you self to you   eighbo s. |
+| Be ghazi: 9/11, Pa t II. |
+| Blowi g the cat. |
+| Blowi g up buildi gs to p ove a poi t a d go to Heave  fo  the si gle wo st o gy of all time. |
 | Blue Waffle. |
-| Chairman Meow, the People's Cat. |
-| Cheese in a spray can. |
-| CuntFucker9000®--for all 9000 of your cunt fucking needs. |
-| Cutting off your genitalia and mailing it to your celebrity crush. |
-| Dear Leader, Slim Dong-Un. |
-| Digging up Heath Ledger and playing with his dick. |
-| Disregarding females and acquiring currency. |
-| Dressing up in a leather Boy Scout uniform. |
-| Ending women's suffrage because they've been through enough. |
-| Explaining to your date why her pasta tastes like Rohypnol. |
-| Fair Trade goods without the fairness. |
-| Filipinos, or as I like to call them, Sea-Mexicans. |
-| Fisting the dog. |
-| Getting fired from the fertility clinic for biting a lemon, licking some salt, lining up ten cups of semen and downing them all like a fucking champ. |
-| Getting your dick caught in someone else's zipper. |
-| Giving Hotel Rwanda a 1-star review on TripAdvisor®. |
-| Giving it to Nanking because, in your opinion, it was totally asking for it. |
-| Having to transfer to a different diocese because, apparently, filling the youth group with "the holy spirit" isn't something that is up for interpretation. |
-| Hitler fanfiction. |
-| Iggy Azalea's appropriation of black cultre. |
-| Inappropriate eye contact in a threesome. |
-| Invasive advertising. |
-| Jackin' it in San Diego. |
-| Jerking off to Coldplay. |
-| Jerking off to the "before" picture in weight-loss commericals. |
-| Jizz-flavored coffee. |
-| Lasers and shit. |
-| Learning Klingon instead of going to parties and getting laid. |
-| Leaving this game to get a cheeseburger because this is AMERICA, GODDAMMIT. |
-| Literally eating a dick. |
-| Lying repeatedly to people with Alzheimer's for profit. |
-| Magneto's "other" purple helmet. |
-| Malaysian Airlines flight 370. |
-| Mandatory gay marriage. |
-| Mentos® and cocaine. |
-| MRSA: the gift that keeps on giving. |
-| Oedipus: the first motherfucker. |
-| Premature ejacul. |
-| Presenting at the shareholder meeting in blackface. |
-| Putting my dick through the /Mona Lisa/. |
-| Queef Erikson. |
-| Reverse gentrification. |
-| Running into your parents at a swingers' club. |
-| Santorum: a frothy mixture of semen and fecal matter. |
-| Shamelessly being the little spoon. |
-| Shitlords. |
-| Slapping your dick on a parking meter in lieu of depositing change. |
-| Standing your ground at the Million Man March. |
-| Sucking menstrual fluid out with a straw. |
-| The Axis getting it Reich next time. |
-| The heavy burden of breaking 72 angelic hymens in a row. |
-| The Iranian gonorrhea that killed my grandfather. |
-| The ISIS Bucket Challenge. |
-| The self satisfaction that can only come with pooping twice in one day. |
-| The vas deferens. |
-| Thinking the ratio of Judeo-Christian jokes to Muslim jokes is a bit high. |
-| Third world abortion clinics. |
-| Thirty-ninth trimester abortions. |
-| Those assholes who carry their assault rifles with them everywhere. |
-| Titty fucking a nun. |
-| Treating your 9-year-old to a 5-star hotel in Bangkok. |
-| Unaccredited cosmetology schools. |
-| Using food for dildos. |
-| Vaginal discharge that smells like a fresh reuben sandwich. |
-| Walking to the front of the classroom while trying to conceal a throbbing erection. |
-| Watermelon and collard greens. |
-| Weaponized gonorrhea. |
-| Whatever semen tastes like... because I don't know. Really, stop asking. |
+| Chai ma  Meow, the People's Cat. |
+| Cheese i  a sp ay ca . |
+| Cu tFucke 9000®--fo  all 9000 of you  cu t fucki g  eeds. |
+| Cutti g off you  ge italia a d maili g it to you  celeb ity c ush. |
+| Dea  Leade , Slim Do g-U . |
+| Diggi g up Heath Ledge  a d playi g with his dick. |
+| Dis ega di g females a d acqui i g cu e cy. |
+| D essi g up i  a leathe  Boy Scout u ifo m. |
+| E di g wome 's suff age because they've bee  th ough e ough. |
+| Explai i g to you  date why he  pasta tastes like Rohyp ol. |
+| Fai  T ade goods without the fai ess. |
+| Filipi os, o  as I like to call them, Sea-Mexica s. |
+| Fisti g the dog. |
+| Getti g fi ed f om the fe tility cli ic fo  biti g a lemo , licki g some salt, li i g up te  cups of seme  a d dow i g them all like a fucki g champ. |
+| Getti g you  dick caught i  someo e else's zippe . |
+| Givi g Hotel Rwa da a 1-sta   eview o  T ipAdviso ®. |
+| Givi g it to Na ki g because, i  you  opi io , it was totally aski g fo  it. |
+| Havi g to t a sfe  to a diffe e t diocese because, appa e tly, filli g the youth g oup with "the holy spi it" is 't somethi g that is up fo  i te p etatio . |
+| Hitle  fa fictio . |
+| Iggy Azalea's app op iatio  of black cult e. |
+| I app op iate eye co tact i  a th eesome. |
+| I vasive adve tisi g. |
+| Jacki ' it i  Sa  Diego. |
+| Je ki g off to Coldplay. |
+| Je ki g off to the "befo e" pictu e i  weight-loss comme icals. |
+| Jizz-flavo ed coffee. |
+| Lase s a d shit. |
+| Lea i g Kli go  i stead of goi g to pa ties a d getti g laid. |
+| Leavi g this game to get a cheesebu ge  because this is AMERICA, GODDAMMIT. |
+| Lite ally eati g a dick. |
+| Lyi g  epeatedly to people with Alzheime 's fo  p ofit. |
+| Mag eto's "othe " pu ple helmet. |
+| Malaysia  Ai li es flight 370. |
+| Ma dato y gay ma iage. |
+| Me tos® a d cocai e. |
+| MRSA: the gift that keeps o  givi g. |
+| Oedipus: the fi st mothe fucke . |
+| P ematu e ejacul. |
+| P ese ti g at the sha eholde  meeti g i  blackface. |
+| Putti g my dick th ough the /Mo a Lisa/. |
+| Queef E ikso . |
+| Reve se ge t ificatio . |
+| Ru i g i to you  pa e ts at a swi ge s' club. |
+| Sa to um: a f othy mixtu e of seme  a d fecal matte . |
+| Shamelessly bei g the little spoo . |
+| Shitlo ds. |
+| Slappi g you  dick o  a pa ki g mete  i  lieu of depositi g cha ge. |
+| Sta di g you  g ou d at the Millio  Ma  Ma ch. |
+| Sucki g me st ual fluid out with a st aw. |
+| The Axis getti g it Reich  ext time. |
+| The heavy bu de  of b eaki g 72 a gelic hyme s i  a  ow. |
+| The I a ia  go o hea that killed my g a dfathe . |
+| The ISIS Bucket Challe ge. |
+| The self satisfactio  that ca  o ly come with poopi g twice i  o e day. |
+| The vas defe e s. |
+| Thi ki g the  atio of Judeo-Ch istia  jokes to Muslim jokes is a bit high. |
+| Thi d wo ld abo tio  cli ics. |
+| Thi ty- i th t imeste  abo tio s. |
+| Those assholes who ca y thei  assault  ifles with them eve ywhe e. |
+| Titty fucki g a  u . |
+| T eati g you  9-yea -old to a 5-sta  hotel i  Ba gkok. |
+| U acc edited cosmetology schools. |
+| Usi g food fo  dildos. |
+| Vagi al discha ge that smells like a f esh  eube  sa dwich. |
+| Walki g to the f o t of the class oom while t yi g to co ceal a th obbi g e ectio . |
+| Wate melo  a d colla d g ee s. |
+| Weapo ized go o hea. |
+| Whateve  seme  tastes like... because I do 't k ow. Really, stop aski g. |
 | Whiskey dick. |
-| Withholding the cure for AIDS. |
+| Withholdi g the cu e fo  AIDS. |
 | YOLO. |
-| Your whore mouth. |
+| You  who e mouth. |
 
 |Total amount: 200|
 |---|

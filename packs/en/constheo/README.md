@@ -81,475 +81,475 @@ Answers amount: 468
 |---|
 
 ### Answers
-| Question |
+| Answers |
 |---|
-| #occupy or #octopi, whichever |
-| Abraham Lincoln's ghost |
-| Acid rain |
-| Adult cartoons |
-| Al Gore |
-| Albino alligators |
-| Alcoholic beverages |
-| Alien abductions |
-| Alien technology |
-| All human life |
-| Alternative facts |
-| Amazon® |
-| Amendments and Commandments, whichever |
-| American flags |
-| Ancient artifacts |
-| Animal testing labs |
-| Anonymous |
-| Anthrax or ant tracks, whichever |
-| Anti-whale sonar |
-| Antiwar activists |
+| #occupy o  #octopi, whicheve  |
+| Ab aham Li col 's ghost |
+| Acid  ai  |
+| Adult ca too s |
+| Al Go e |
+| Albi o alligato s |
+| Alcoholic beve ages |
+| Alie  abductio s |
+| Alie  tech ology |
+| All huma  life |
+| Alte ative facts |
+| Amazo ® |
+| Ame dme ts a d Comma dme ts, whicheve  |
+| Ame ica  flags |
+| A cie t a tifacts |
+| A imal testi g labs |
+| A o ymous |
+| A th ax o  a t t acks, whicheve  |
+| A ti-whale so a  |
+| A tiwa  activists |
 | Apple® |
-| Area 51 |
-| Arms dealers |
-| Artifical sweeteners |
-| Artificial intelligences |
-| Augmented reality |
-| Australia |
-| Backwards recordings |
-| Bad public art |
-| Bar codes |
-| Barack Obama |
-| Benefit concerts |
+| A ea 51 |
+| A ms deale s |
+| A tifical sweete e s |
+| A tificial i tellige ces |
+| Augme ted  eality |
+| Aust alia |
+| Backwa ds  eco di gs |
+| Bad public a t |
+| Ba  codes |
+| Ba ack Obama |
+| Be efit co ce ts |
 | Big Media |
 | Big Oil |
-| Big summer movies |
+| Big summe  movies |
 | Big Tobacco |
-| Bill Clinton |
+| Bill Cli to  |
 | Bill Gates |
-| Bird flu |
-| Bitcoin |
-| Black cards |
-| Black helicopters |
+| Bi d flu |
+| Bitcoi  |
+| Black ca ds |
+| Black helicopte s |
 | Black ops |
-| Bloggers |
+| Blogge s |
 | Blue states |
-| Body odor |
-| Brain transplants |
-| Brazil |
-| Breakfast cereal |
-| Bribery |
-| Bullfrogs |
-| Bumper stickers |
-| Bureaucrats |
-| Buzzwords |
+| Body odo  |
+| B ai  t a spla ts |
+| B azil |
+| B eakfast ce eal |
+| B ibe y |
+| Bullf ogs |
+| Bumpe  sticke s |
+| Bu eauc ats |
+| Buzzwo ds |
 | Cable TV |
-| California |
-| Canada |
-| Candy manufacturers |
-| Cattle mutilators |
-| Celebrity spokesmodels |
-| Cellular towers |
-| Chemical warfare |
-| Chemtrails |
+| Califo ia |
+| Ca ada |
+| Ca dy ma ufactu e s |
+| Cattle mutilato s |
+| Celeb ity spokesmodels |
+| Cellula  towe s |
+| Chemical wa fa e |
+| Chemt ails |
 | Child abuse |
-| Children |
-| China |
-| Chinese instructions in our electronic equipment |
-| Chris Christie |
-| Christmas |
-| Cigarette package warnings |
-| Civil War II |
-| Clones |
-| Cocaine |
+| Child e  |
+| Chi a |
+| Chi ese i st uctio s i  ou  elect o ic equipme t |
+| Ch is Ch istie |
+| Ch istmas |
+| Ciga ette package wa i gs |
+| Civil Wa  II |
+| Clo es |
+| Cocai e |
 | Coded tweets |
 | Coffee |
 | Comic books |
-| Concealed weapons |
-| Congress |
-| Console games |
-| Conspiracy theorists |
-| Convenience stores |
-| Corruption |
-| Cover bands or cover-ups, whichever |
-| Craft beer |
-| Crazy talk |
-| Creation science |
-| Cult leaders |
-| Cyborg killers |
-| Cycle gangs |
-| Day care |
-| Dead voters |
+| Co cealed weapo s |
+| Co g ess |
+| Co sole games |
+| Co spi acy theo ists |
+| Co ve ie ce sto es |
+| Co uptio  |
+| Cove  ba ds o  cove -ups, whicheve  |
+| C aft bee  |
+| C azy talk |
+| C eatio  scie ce |
+| Cult leade s |
+| Cybo g kille s |
+| Cycle ga gs |
+| Day ca e |
+| Dead vote s |
 | Death |
 | Deus Vult! |
-| Dick Cheney |
-| Direct-to-video sequels |
-| Dollar bils |
-| Donald Trump Blow Up Dolls. |
-| Drone missiles |
-| Drug factories |
+| Dick Che ey |
+| Di ect-to-video sequels |
+| Dolla  bils |
+| Do ald T ump Blow Up Dolls. |
+| D o e missiles |
+| D ug facto ies |
 | Duct tape |
-| E-cigarettes |
-| Earthquake projectors |
+| E-ciga ettes |
+| Ea thquake p ojecto s |
 | eBay® |
 | Ebola |
-| Eco-guerillas |
-| El Nino |
-| Embezzling |
-| Enemies or enemas, whichever |
-| Energy drinks |
-| England |
-| Eternal night |
-| Executive orders or execution orders, whichever |
-| Exercise or exorcism, whichever |
-| Explosive runes or runs, whichever |
+| Eco-gue illas |
+| El Ni o |
+| Embezzli g |
+| E emies o  e emas, whicheve  |
+| E e gy d i ks |
+| E gla d |
+| Ete al  ight |
+| Executive o de s o  executio  o de s, whicheve  |
+| Exe cise o  exo cism, whicheve  |
+| Explosive  u es o   u s, whicheve  |
 | Facebook® ads |
-| Fact checkers |
-| Fake charities |
-| Fake moon landings |
-| Fake news |
-| False advertising |
-| False flag operations |
+| Fact checke s |
+| Fake cha ities |
+| Fake moo  la di gs |
+| Fake  ews |
+| False adve tisi g |
+| False flag ope atio s |
 | Family values |
-| Fanatics |
+| Fa atics |
 | Fast food |
-| Federal aid |
-| Federal budgeting |
-| Federal law |
-| Files or flies, whichever |
-| Flaming apparitions |
-| Flesh-eating bacteria |
-| Flower power |
-| Flying saucers |
-| Flying submarines |
-| Flyover states |
-| Forbidden rituals |
-| foreign aid |
-| Foreign parts or foreign particles, whichever |
-| Form 1040 |
+| Fede al aid |
+| Fede al budgeti g |
+| Fede al law |
+| Files o  flies, whicheve  |
+| Flami g appa itio s |
+| Flesh-eati g bacte ia |
+| Flowe  powe  |
+| Flyi g sauce s |
+| Flyi g subma i es |
+| Flyove  states |
+| Fo bidde   ituals |
+| fo eig  aid |
+| Fo eig  pa ts o  fo eig  pa ticles, whicheve  |
+| Fo m 1040 |
 | Fox News® |
-| Fracking |
-| France |
-| Frankenfood |
-| Free beer |
-| Freud or fraud, whichever |
-| Gamers |
-| Gay marriage |
-| Gene testing |
-| Generation Xers |
-| Genetically modified organisms |
-| George H.W. Bush |
-| George W. Bush |
-| Giant killer robots |
-| Global warming |
+| F acki g |
+| F a ce |
+| F a ke food |
+| F ee bee  |
+| F eud o  f aud, whicheve  |
+| Game s |
+| Gay ma iage |
+| Ge e testi g |
+| Ge e atio  Xe s |
+| Ge etically modified o ga isms |
+| Geo ge H.W. Bush |
+| Geo ge W. Bush |
+| Gia t kille   obots |
+| Global wa mi g |
 | Google® |
-| Grassroots support |
-| Greenhouse gas |
-| Guerillas or gorillas, whichever |
-| Gun control activists |
-| Guns |
-| H. Ross Perot |
-| Hackers |
+| G ass oots suppo t |
+| G ee house gas |
+| Gue illas o  go illas, whicheve  |
+| Gu  co t ol activists |
+| Gu s |
+| H. Ross Pe ot |
+| Hacke s |
 | Hashtag activism |
-| Head transplants |
-| Heartless extortion |
-| Hillary Clinton |
-| Hints and allegations |
-| Hipsters |
-| Hitler |
-| Hitler's brain |
+| Head t a spla ts |
+| Hea tless exto tio  |
+| Hilla y Cli to  |
+| Hi ts a d allegatio s |
+| Hipste s |
+| Hitle  |
+| Hitle 's b ai  |
 | Hollywood |
-| Holy water |
-| Homeland Security |
-| Hotel room Bibles |
+| Holy wate  |
+| Homela d Secu ity |
+| Hotel  oom Bibles |
 | Huge walls |
-| Human sacrifice |
-| Human shields |
-| Hurricanes |
-| Hush money |
-| Identity theft |
+| Huma  sac ifice |
+| Huma  shields |
+| Hu ica es |
+| Hush mo ey |
+| Ide tity theft |
 | Idiots |
-| Illegal immigrants |
-| Income inequality |
-| Incriminating photos |
-| Insurance fraud |
-| Intelligence tests |
-| Intelligent design |
-| Internet porn |
-| Invasive species |
-| iPhones® |
-| Iranian nukes |
-| Israel |
+| Illegal immig a ts |
+| I come i equality |
+| I c imi ati g photos |
+| I su a ce f aud |
+| I tellige ce tests |
+| I tellige t desig  |
+| I te et po  |
+| I vasive species |
+| iPho es® |
+| I a ia   ukes |
+| Is ael |
 | Jackbooted thugs |
-| Japan |
-| Jimmy Carter |
-| Junk food |
-| Junk mail |
-| Junk science |
-| Junk websites |
-| Kiler bees |
-| Kneecapping |
-| Land mines or gold mines, whichever |
+| Japa  |
+| Jimmy Ca te  |
+| Ju k food |
+| Ju k mail |
+| Ju k scie ce |
+| Ju k websites |
+| Kile  bees |
+| K eecappi g |
+| La d mi es o  gold mi es, whicheve  |
 | Las Vegas |
-| Laser sharks |
-| Law and order |
+| Lase  sha ks |
+| Law a d o de  |
 | Lawsuits |
-| Lead in the water |
-| Lepers or leopards, whichever |
+| Lead i  the wate  |
+| Lepe s o  leopa ds, whicheve  |
 | Lies |
 | Life |
-| Lizards impersonating humans |
-| Local school boards |
-| Lone gunmen |
-| Low-carb diets |
-| Madison Avenue |
+| Liza ds impe so ati g huma s |
+| Local school boa ds |
+| Lo e gu me  |
+| Low-ca b diets |
+| Madiso  Ave ue |
 | Malicious Wikipedia® edits |
-| Market manipulation |
-| Mars rovers |
-| Martial law |
-| Mas executions |
-| Masive spam campaigns |
-| Mass deportations |
-| Mass destruction or mass distraction, whichever |
-| Mass hallucinations |
-| Mattress tags |
-| Medical marijuana clincs |
-| Medicare |
+| Ma ket ma ipulatio  |
+| Ma s  ove s |
+| Ma tial law |
+| Mas executio s |
+| Masive spam campaig s |
+| Mass depo tatio s |
+| Mass dest uctio  o  mass dist actio , whicheve  |
+| Mass halluci atio s |
+| Matt ess tags |
+| Medical ma ijua a cli cs |
+| Medica e |
 | Memes |
-| Men in Black |
-| Mercenaries |
-| Mexican cartels |
-| Microsoft® |
-| Midnight tweets |
-| Military dolphins |
+| Me  i  Black |
+| Me ce a ies |
+| Mexica  ca tels |
+| Mic osoft® |
+| Mid ight tweets |
+| Milita y dolphi s |
 | Militias |
-| Millenials |
+| Mille ials |
 | Missile silos |
-| Money laundering |
-| My pocket Constitution |
+| Mo ey lau de i g |
+| My pocket Co stitutio  |
 | NAFTA |
-| Napoleon |
+| Napoleo  |
 | NASA |
 | NATO |
-| Natural stupidity |
+| Natu al stupidity |
 | Nazis |
-| Nerve gas |
-| Nervous laughter |
-| Newsweek® or news leaks, whichever |
-| Newt Gingrich |
-| Ninjas |
-| Nobel prizes |
-| North Korea |
+| Ne ve gas |
+| Ne vous laughte  |
+| Newsweek® o   ews leaks, whicheve  |
+| Newt Gi g ich |
+| Ni jas |
+| Nobel p izes |
+| No th Ko ea |
 | NPR |
-| Nuclear testing |
-| Obamacare |
-| Obscene profits |
-| Offshore banks |
+| Nuclea  testi g |
+| Obamaca e |
+| Obsce e p ofits |
+| Offsho e ba ks |
 | Oil spills |
-| Ones and zeroes |
+| O es a d ze oes |
 | OPEC |
-| Orbital mind control lasers |
-| Organic foods |
-| Osama or Obama, whichever |
-| Paparazzi |
-| Paranoids |
-| Peanut butter |
+| O bital mi d co t ol lase s |
+| O ga ic foods |
+| Osama o  Obama, whicheve  |
+| Papa azzi |
+| Pa a oids |
+| Pea ut butte  |
 | Pesticides |
 | PETA |
-| Pi or pie, whichever |
-| Pirate radio stations |
-| Plutonium |
+| Pi o  pie, whicheve  |
+| Pi ate  adio statio s |
+| Pluto ium |
 | Polls |
-| Pollsters |
-| Prefessional sports |
-| Preppers or preppies, whichever |
-| Prince Charles |
-| Prosecutors or persecutors, whichever |
-| Psychiatrists |
-| Public libraries |
+| Pollste s |
+| P efessio al spo ts |
+| P eppe s o  p eppies, whicheve  |
+| P i ce Cha les |
+| P osecuto s o  pe secuto s, whicheve  |
+| Psychiat ists |
+| Public lib a ies |
 | Public toilets |
-| Purple states |
-| Pyramid schemes |
-| Queen Elizabeth II |
-| Radio-sensitive tooth fillings |
-| Random attacks |
+| Pu ple states |
+| Py amid schemes |
+| Quee  Elizabeth II |
+| Radio-se sitive tooth filli gs |
+| Ra dom attacks |
 | Reality TV |
-| Red and blue pills |
-| Red light cameras |
-| Red mercury |
+| Red a d blue pills |
+| Red light came as |
+| Red me cu y |
 | Red states |
-| Regime change |
-| Revolution |
-| Rigged elections |
-| Road rage |
+| Regime cha ge |
+| Revolutio  |
+| Rigged electio s |
+| Road  age |
 | Robocalls |
-| Robot sea monsters |
+| Robot sea mo ste s |
 | Russia |
-| Russian spies |
-| Sanctuary cities |
-| Sarah Palin |
-| Satanists |
-| Saturday Night Live® |
-| Scandals |
-| Scary clowns |
-| School prayer |
-| Science deniers |
-| Second Amendment activists |
-| Secret campaign donors |
-| Secret government files or flies, whichever |
-| Secret police |
-| Secret underground bunkers or debunkers, whichever |
-| Self-driving cars |
-| Serial killers |
-| Seven secret herbs and spices |
+| Russia  spies |
+| Sa ctua y cities |
+| Sa ah Pali  |
+| Sata ists |
+| Satu day Night Live® |
+| Sca dals |
+| Sca y clow s |
+| School p aye  |
+| Scie ce de ie s |
+| Seco d Ame dme t activists |
+| Sec et campaig  do o s |
+| Sec et gove me t files o  flies, whicheve  |
+| Sec et police |
+| Sec et u de g ou d bu ke s o  debu ke s, whicheve  |
+| Self-d ivi g ca s |
+| Se ial kille s |
+| Seve  sec et he bs a d spices |
 | Shock jocks |
-| Shooters or sliders, whichever |
-| Silicon Valley |
-| Skools that don't teech speling |
-| Slave-labor factories |
-| Slush funds |
-| Smart bombs or smart phones, whichever |
-| Smoking bans |
-| Smuggling tunnels |
-| Soft drinks |
-| Sovereign citizens |
-| Soy products |
-| Spin doctors |
-| Spontaneous combustion |
+| Shoote s o  slide s, whicheve  |
+| Silico  Valley |
+| Skools that do 't teech speli g |
+| Slave-labo  facto ies |
+| Slush fu ds |
+| Sma t bombs o  sma t pho es, whicheve  |
+| Smoki g ba s |
+| Smuggli g tu els |
+| Soft d i ks |
+| Sove eig  citize s |
+| Soy p oducts |
+| Spi  docto s |
+| Spo ta eous combustio  |
 | Spy satellites |
-| Stalkers |
-| Starbucks® |
-| Stem cells or STEM courses, whichever |
-| Stephen Hawking |
-| Subliminal messages |
-| Suicide bombers |
-| Suitcase nukes |
-| Superheroes |
-| Supervillians |
+| Stalke s |
+| Sta bucks® |
+| Stem cells o  STEM cou ses, whicheve  |
+| Stephe  Hawki g |
+| Sublimi al messages |
+| Suicide bombe s |
+| Suitcase  ukes |
+| Supe he oes |
+| Supe villia s |
 | Sushi |
 | SWAT teams |
-| Swine flu |
-| Tabloid papers |
-| Talk radio |
-| Targeted meteor strikes |
-| Tax "reform" |
-| Tax resisters |
-| Ted Cruz or Tom Cruise, whichever |
-| Telephone psychics |
-| Terrorists |
+| Swi e flu |
+| Tabloid pape s |
+| Talk  adio |
+| Ta geted meteo  st ikes |
+| Tax " efo m" |
+| Tax  esiste s |
+| Ted C uz o  Tom C uise, whicheve  |
+| Telepho e psychics |
+| Te o ists |
 | Texas |
 | The 1% |
 | The 1% of the 1% |
-| The administration or abomination, whichever |
-| The airlines |
-| The all-seeing eye |
-| The alt-right |
-| The Antichrist |
-| The Ark of the Covenant |
-| The Bavarian Illuminati |
-| The Better Business Bureau |
-| The billionaires |
+| The admi ist atio  o  abomi atio , whicheve  |
+| The ai li es |
+| The all-seei g eye |
+| The alt- ight |
+| The A tich ist |
+| The A k of the Cove a t |
+| The Bava ia  Illumi ati |
+| The Bette  Busi ess Bu eau |
+| The billio ai es |
 | The bomb |
 | The Boy Scouts |
-| The Centers for Disease Control |
+| The Ce te s fo  Disease Co t ol |
 | The Chief Justice |
-| The Church of Elvis |
+| The Chu ch of Elvis |
 | The CIA |
-| The conservative media |
-| The criminal justice system |
-| The Crystal Skull |
-| The Deep State or the Deep Ones, whichever |
-| The Democrats |
-| The Druids |
-| The Electoral College |
-| The end of the world |
+| The co se vative media |
+| The c imi al justice system |
+| The C ystal Skull |
+| The Deep State o  the Deep O es, whicheve  |
+| The Democ ats |
+| The D uids |
+| The Electo al College |
+| The e d of the wo ld |
 | The EPA |
-| The European Union |
+| The Eu opea  U io  |
 | The FBI |
-| The Federal Reserve |
-| The gold standard |
-| The gospel of prosperity |
-| The Green Party |
-| The gun lobby |
+| The Fede al Rese ve |
+| The gold sta da d |
+| The gospel of p ospe ity |
+| The G ee  Pa ty |
+| The gu  lobby |
 | The health food lobby |
-| The Holy Grail |
-| The idiocracy |
-| The Internet |
-| The Internet of Things |
+| The Holy G ail |
+| The idioc acy |
+| The I te et |
+| The I te et of Thi gs |
 | The IRS |
-| The liberal media |
-| The Libertarian Party |
-| The Loch Ness Monster |
+| The libe al media |
+| The Libe ta ia  Pa ty |
+| The Loch Ness Mo ste  |
 | The Mafia |
-| The Man |
+| The Ma  |
 | The medical lobby |
-| The military-industrial complex |
-| The Moral Minority |
-| The national debt |
-| The National Guard |
-| The National Security or Insecurity Advisor, whichever |
-| The Necronomicon |
-| The Northern Lights |
+| The milita y-i dust ial complex |
+| The Mo al Mi o ity |
+| The  atio al debt |
+| The Natio al Gua d |
+| The Natio al Secu ity o  I secu ity Adviso , whicheve  |
+| The Nec o omico  |
+| The No the  Lights |
 | The NSA |
-| The nuclear football |
-| The nuclear power companies |
-| The Pentagon |
-| The phone company |
+| The  uclea  football |
+| The  uclea  powe  compa ies |
+| The Pe tago  |
+| The pho e compa y |
 | The Pope |
 | The Post Office |
-| The President of the United States |
-| The recording industry |
-| The Republicans |
-| The Russian mob |
-| The secret court system |
-| The secret moon base |
-| The Secret Service |
-| The Secretary-General of the UN |
-| The shadow government |
-| The Shroud of Turin |
-| The Supreme Court |
-| The truth |
-| The U.S. Chamber of Commerce or Horrors, whichever |
-| The United Nations |
-| The Warsaw Pact |
-| Them new-fangled moving pictures |
-| Third Amendment activists |
+| The P eside t of the U ited States |
+| The  eco di g i dust y |
+| The Republica s |
+| The Russia  mob |
+| The sec et cou t system |
+| The sec et moo  base |
+| The Sec et Se vice |
+| The Sec eta y-Ge e al of the UN |
+| The shadow gove me t |
+| The Sh oud of Tu i  |
+| The Sup eme Cou t |
+| The t uth |
+| The U.S. Chambe  of Comme ce o  Ho o s, whicheve  |
+| The U ited Natio s |
+| The Wa saw Pact |
+| Them  ew-fa gled movi g pictu es |
+| Thi d Ame dme t activists |
 | This game |
-| Those bar codes on the back of highway signs |
-| Tiny but fierce aliens |
-| Tl;dr |
+| Those ba  codes o  the back of highway sig s |
+| Ti y but fie ce alie s |
+| Tl;d  |
 | Tooth decay |
 | Toxic waste |
-| Trekkies |
-| TV preachers |
-| TV repairmen |
-| Twitter® |
-| Uber® |
-| Uber® drivers |
-| Ultrasound photos |
-| Unconventional typography |
-| Unindicted co-conspirators |
-| Universal surveillance |
-| Urban legends |
-| Vaccinations |
+| T ekkies |
+| TV p eache s |
+| TV  epai me  |
+| Twitte ® |
+| Ube ® |
+| Ube ® d ive s |
+| Ult asou d photos |
+| U co ve tio al typog aphy |
+| U i dicted co-co spi ato s |
+| U ive sal su veilla ce |
+| U ba  lege ds |
+| Vacci atio s |
 | VAT |
-| Vegans |
-| Vegetarians or humanitarians, whichever |
-| Vladminir Putin |
-| Vle secretions |
+| Vega s |
+| Vegeta ia s o  huma ita ia s, whicheve  |
+| Vladmi i  Puti  |
+| Vle sec etio s |
 | Voodoo |
-| Wal-Mart® |
-| Wall Street |
-| Warren Buffett |
-| Washington |
-| Whistleblowers |
-| White cards |
+| Wal-Ma t® |
+| Wall St eet |
+| Wa e  Buffett |
+| Washi gto  |
+| Whistleblowe s |
+| White ca ds |
 | Wikipedia® |
-| Wind turbines |
-| Wiretapping |
-| World hunger |
-| World jihad |
-| World War III |
-| Wrong numbers |
-| XXX-rated movies |
-| Your local police |
-| Your reflection |
+| Wi d tu bi es |
+| Wi etappi g |
+| Wo ld hu ge  |
+| Wo ld jihad |
+| Wo ld Wa  III |
+| W o g  umbe s |
+| XXX- ated movies |
+| You  local police |
+| You   eflectio  |
 | YouTube® videos |
-| Zero tolerance |
+| Ze o tole a ce |
 | Zika |
 
 |Total amount: 468|

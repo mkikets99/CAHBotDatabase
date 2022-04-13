@@ -16,17 +16,17 @@ Answers amount: 9
 |---|
 
 ### Answers
-| Question |
+| Answers |
 |---|
 | A Bitch Slap. |
-| Chunks of food in my teeth |
-| Extremely tight trousers. |
-| One unforgettable night of passion. |
-| Strafing an Afghan shepherd and his sad, sickly goats. |
-| The boy who sucks the farts our of my sweatpants. |
-| The entire Mormon Tabernacle Chior. |
-| The few shreds of tinsel still clinging to my asshole. |
-| Throwing another pidgey in the wood chipper. |
+| Chu ks of food i  my teeth |
+| Ext emely tight t ouse s. |
+| O e u fo gettable  ight of passio . |
+| St afi g a  Afgha  shephe d a d his sad, sickly goats. |
+| The boy who sucks the fa ts ou  of my sweatpa ts. |
+| The e ti e Mo mo  Tabe acle Chio . |
+| The few sh eds of ti sel still cli gi g to my asshole. |
+| Th owi g a othe  pidgey i  the wood chippe . |
 
 |Total amount: 9|
 |---|

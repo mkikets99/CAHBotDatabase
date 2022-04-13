@@ -14,20 +14,20 @@ Answers amount: 12
 |---|
 
 ### Answers
-| Question |
+| Answers |
 |---|
-| A disappointing season of Tabletop that's just about tables. |
-| A German-style board game where you invade Poland. |
-| A marriage-destroying game of The Resistance. |
-| A Wesley Crusher blow-up doll. |
-| A zombie with a tragic backstory. |
-| An owlbear. |
-| Condensing centuries of economic exploitation into 90 minutes of gaming fun. |
+| A disappoi ti g seaso  of Tabletop that's just about tables. |
+| A Ge ma -style boa d game whe e you i vade Pola d. |
+| A ma iage-dest oyi g game of The Resista ce. |
+| A Wesley C ushe  blow-up doll. |
+| A zombie with a t agic backsto y. |
+| A  owlbea . |
+| Co de si g ce tu ies of eco omic exploitatio  i to 90 mi utes of gami g fu . |
 | SIX GOD DAMN HOURS OF FUCKING DIPLOMACY. |
-| Spending 8 years in the Himalayas becoming a master of dice-rolling and resource allocation. |
-| The pooping position. |
-| The porn set that Tabletop is filmed on. |
-| Victory points. |
+| Spe di g 8 yea s i  the Himalayas becomi g a maste  of dice- olli g a d  esou ce allocatio . |
+| The poopi g positio . |
+| The po  set that Tabletop is filmed o . |
+| Victo y poi ts. |
 
 |Total amount: 12|
 |---|

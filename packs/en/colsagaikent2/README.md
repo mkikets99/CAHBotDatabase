@@ -20,35 +20,35 @@ Answers amount: 27
 |---|
 
 ### Answers
-| Question |
+| Answers |
 |---|
-| [image of eastern gray squirrel] |
-| A $90 million, full-size replica of Noah's Ark. |
+| [image of easte  g ay squi el] |
+| A $90 millio , full-size  eplica of Noah's A k. |
 | A mouthful of cicadas. |
-| A two-liter of dip spit. |
-| All the gold in Fort Knox. |
-| An electric car with a "Friends of Coal" license plate. |
-| An entire horse. |
-| Ashley Judd's presence. |
-| Blessing everyone's heart. |
-| Calling all soda "coke." |
-| Daniel Boone's foreskin cap. |
-| Fucking Matt Bevin. |
-| Getting elbow dropped from the top rope by "Macho Man" Randy Savage-OOOH YEAH! |
-| Having sex in Mammoth Cave in order to join the "mile-low club." |
-| How my Boss Hogg looks in these Daisy Dukes. |
-| Jennifer Lawrence's endearing qualities. |
-| Johnny Depp, dancing all sexy. |
+| A two-lite  of dip spit. |
+| All the gold i  Fo t K ox. |
+| A  elect ic ca  with a "F ie ds of Coal" lice se plate. |
+| A  e ti e ho se. |
+| Ashley Judd's p ese ce. |
+| Blessi g eve yo e's hea t. |
+| Calli g all soda "coke." |
+| Da iel Boo e's fo eski  cap. |
+| Fucki g Matt Bevi . |
+| Getti g elbow d opped f om the top  ope by "Macho Ma " Ra dy Savage-OOOH YEAH! |
+| Havi g sex i  Mammoth Cave i  o de  to joi  the "mile-low club." |
+| How my Boss Hogg looks i  these Daisy Dukes. |
+| Je ife  Law e ce's e dea i g qualities. |
+| Joh y Depp, da ci g all sexy. |
 | KY Jelly. |
-| Lightning bug-flavored moonshine. |
-| Melty Dippin' Dots. |
-| Oregano, chili powder, sage, basil, marjoram, paprika, onion salt, garlic powder, salt, pepper and MSG. |
-| Pappy Van Winkle and Coke. |
-| Pawpaw flavored vape juice. |
-| Shootin' shit. |
-| Shoveling coal. |
-| Some kind of bullshit vegan burgoo. |
-| Some really sticky Kentucky Durban. |
+| Light i g bug-flavo ed moo shi e. |
+| Melty Dippi ' Dots. |
+| O ega o, chili powde , sage, basil, ma jo am, pap ika, o io  salt, ga lic powde , salt, peppe  a d MSG. |
+| Pappy Va  Wi kle a d Coke. |
+| Pawpaw flavo ed vape juice. |
+| Shooti ' shit. |
+| Shoveli g coal. |
+| Some ki d of bullshit vega  bu goo. |
+| Some  eally sticky Ke tucky Du ba . |
 
 |Total amount: 27|
 |---|

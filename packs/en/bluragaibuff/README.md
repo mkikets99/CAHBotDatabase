@@ -29,62 +29,62 @@ Answers amount: 54
 |---|
 
 ### Answers
-| Question |
+| Answers |
 |---|
-| 10 feet of snow in 2 days. |
-| A blow job from Shark Girl, with teeth. |
-| A bottle of Frank's® RedHot® Sauce emptied into the urethra. |
-| A dirty diaper filled with Lloyd taco meat. |
-| A local organized band of pirates, hijacking the Ms. Buffalo. |
-| A mustache ride from the ghost of Teddy Roosevelt. |
-| A new TV dating show called "Win a Date with Kim Pegula". |
-| A Northtowns vs. Southtowns Civil War. |
-| A physical altercation over a Buffalo Chicken Finger Sub. |
-| A Roswell treatment gone very wrong. |
-| A seriious addiction to Andersons ice cream. |
-| A sub-par Beef on Weck. |
-| A wall of snow that can be seen from miles away. |
-| An ice bike rental at Canalside. |
-| An overpopulation of rabid middle-aged Canadian women wreaking havoc on the Galleria Mall. |
-| Ani DiFranco's hairy armpits. |
-| Backstage of the theatre at UB. |
-| Biting into a Ted's Hotdog and finding veins. |
-| Blowing a line of coke off of Rick James' tombstone. |
-| Boy I Love Losing Super Bowls. |
-| Bungee jumping from the Skyway. |
-| Canisius College Football, undefeated since 2002. |
-| Checking in to a comfortable room at the Buffalo Psych Center. |
+| 10 feet of s ow i  2 days. |
+| A blow job f om Sha k Gi l, with teeth. |
+| A bottle of F a k's® RedHot® Sauce emptied i to the u eth a. |
+| A di ty diape  filled with Lloyd taco meat. |
+| A local o ga ized ba d of pi ates, hijacki g the Ms. Buffalo. |
+| A mustache  ide f om the ghost of Teddy Roosevelt. |
+| A  ew TV dati g show called "Wi  a Date with Kim Pegula". |
+| A No thtow s vs. Southtow s Civil Wa . |
+| A physical alte catio  ove  a Buffalo Chicke  Fi ge  Sub. |
+| A Roswell t eatme t go e ve y w o g. |
+| A se iious addictio  to A de so s ice c eam. |
+| A sub-pa  Beef o  Weck. |
+| A wall of s ow that ca  be see  f om miles away. |
+| A  ice bike  e tal at Ca alside. |
+| A  ove populatio  of  abid middle-aged Ca adia  wome  w eaki g havoc o  the Galle ia Mall. |
+| A i DiF a co's hai y a mpits. |
+| Backstage of the theat e at UB. |
+| Biti g i to a Ted's Hotdog a d fi di g vei s. |
+| Blowi g a li e of coke off of Rick James' tombsto e. |
+| Boy I Love Losi g Supe  Bowls. |
+| Bu gee jumpi g f om the Skyway. |
+| Ca isius College Football, u defeated si ce 2002. |
+| Checki g i  to a comfo table  oom at the Buffalo Psych Ce te . |
 | Cheektavegas. |
-| Cheerio scented air freshener, brought to you by General Mills. |
-| Cleaning the floor of the bathroom at The Pink with your tongue. |
-| Drinking Brett Hull's blood out of Lord Stanley's Cup. |
-| Every new restaurant's obsession with Poutine. |
-| Ghost pepper chicken wing shits. |
-| Going over Niagara Falls in a barrel. |
-| Loganberry flavored Jell-o wrestling. |
-| Making out with the homeless guy who's pissing on the subway tracks. |
-| Mayor Byron Brown's snarky attitude. |
+| Chee io sce ted ai  f eshe e , b ought to you by Ge e al Mills. |
+| Clea i g the floo  of the bath oom at The Pi k with you  to gue. |
+| D i ki g B ett Hull's blood out of Lo d Sta ley's Cup. |
+| Eve y  ew  estau a t's obsessio  with Pouti e. |
+| Ghost peppe  chicke  wi g shits. |
+| Goi g ove  Niaga a Falls i  a ba el. |
+| Loga be y flavo ed Jell-o w estli g. |
+| Maki g out with the homeless guy who's pissi g o  the subway t acks. |
+| Mayo  By o  B ow 's s a ky attitude. |
 | Mickey Rats' classy vibe. |
-| Motorboating Billy Fucillo's man-boobs. It's gonn be HUGE! |
+| Moto boati g Billy Fucillo's ma -boobs. It's go  be HUGE! |
 | Pegulaville! |
-| Rick Jeanneret slowly licking the side of your face. |
-| Sex in public at the Bufalo Zoo. |
-| Streaking down Elmwood. |
-| Taro Tsujimoto. |
-| The absurd amount of dog shit that appears on the sidewalk immediately after all the snow melts. |
-| The Buffalo Billion. |
-| The feeling of panic that you get about 10 minutes after eating Mighty Taco and there is no bathroom in sight. |
+| Rick Jea e et slowly licki g the side of you  face. |
+| Sex i  public at the Bufalo Zoo. |
+| St eaki g dow  Elmwood. |
+| Ta o Tsujimoto. |
+| The absu d amou t of dog shit that appea s o  the sidewalk immediately afte  all the s ow melts. |
+| The Buffalo Billio . |
+| The feeli g of pa ic that you get about 10 mi utes afte  eati g Mighty Taco a d the e is  o bath oom i  sight. |
 | The Goo Goo Dolls. |
-| The Labatt Pond Hockey Tournament. |
+| The Labatt Po d Hockey Tou ame t. |
 | The Labatty Splatties. |
-| The Lackawanna 6. |
+| The Lackawa a 6. |
 | The old Club 31. |
-| The petrified testicles of Frank Lloyd Wright. |
-| The unwashed portion of the Allentown hipster community. |
-| Tim Hortons coffee and a bag of dicks. |
-| Toothless people on Seneca St. |
-| Topless spring skiing at Holiday Valley. |
-| West Side gentrification. |
+| The pet ified testicles of F a k Lloyd W ight. |
+| The u washed po tio  of the Alle tow  hipste  commu ity. |
+| Tim Ho to s coffee a d a bag of dicks. |
+| Toothless people o  Se eca St. |
+| Topless sp i g skii g at Holiday Valley. |
+| West Side ge t ificatio . |
 
 |Total amount: 54|
 |---|

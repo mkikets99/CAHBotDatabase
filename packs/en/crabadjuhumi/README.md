@@ -8,12 +8,10 @@ Answers amount: 583
 |---|---|
 | _: Just sayin'. | 1 |
 | _: not even once. | 1 |
-| A wild _ appears!
-You used _! It's super effective! | 2 |
+| A wild _ appears!  You used _! It's super effective! | 2 |
 | According to a new UN treaty, _ now qualifies as a weapon of mass destruction. | 1 |
 | Ever since "the incident," every time I close my eyes, I still see _. | 1 |
-| Gentleman, I'm sure you're wondering why I asked you here this evening.
-It's a long story, but it all began with _. | 1 |
+| Gentleman, I'm sure you're wondering why I asked you here this evening.  It's a long story, but it all began with _. | 1 |
 | How did I get this restraining order? | 1 |
 | How did I hurt my back? | 1 |
 | How did my grandparents make it through the Great Depression? | 1 |
@@ -27,38 +25,30 @@ It's a long story, but it all began with _. | 1 |
 | In my opinion, _ is grounds for justifiable homicide. | 1 |
 | It took seven years in a remote Tibetan monastery, but I finally learned the art of _. | 1 |
 | Like Midas reborn, everything she touches turns to _. | 1 |
-| Oh my God!They killed _!
-You bastards! | 1 |
+| Oh my God! They killed _! You bastards! | 1 |
 | PornHub.com's single most popular video features _ and _. | 2 |
-| So then he says, "If you want to make this relationship work, you need to give up _ and _."
-As.  If. | 2 |
+| So then he says, "If you want to make this relationship work, you need to give up _ and _."  As.  If. | 2 |
 | Thanks to _, I now have a crippling fear of _. | 2 |
 | The best part of waking up is _. | 1 |
 | The last three items on my "bucket list": | 1 |
 | Three bullet points from my OKCupid® profile: _, _, and, (most importantly) _. | 3 |
 | Tonight on "My Super Sweet 16," Stephani's parents give her _. | 1 |
 | Tonight on "Supernatural," Sam and Dean are forced to confront _ using only _. | 2 |
-| What do we want?  _!
-When do we want it?  Now! | 1 |
+| What do we want?  _!  When do we want it?  Now! | 1 |
 | What was one of the rejected flavors for Bertie Bott's Every Flavour Beans™? | 1 |
 | When I'm dating somebody, I can overlook _ and _, but _ is a deal-breaker. | 3 |
 | Why won't they let me in Chuck E. Cheese's® anymore? | 1 |
 | William Shatner's shocking new autobiography is titled "_: The Final Frontier." | 1 |
 | _: it's magically delicious. | 1 |
-| _?
-That's what she said. | 1 |
-| "You have my sword."
-"And you have my bow."
-
-"And my _!" | 1 |
+| _?  That's what she said. | 1 |
+| "You have my sword."  "And you have my bow."  "And my _!" | 1 |
 | A new Russian dash-cam video shows _, right there in the middle of the street! | 1 |
 | An ounce of _ is worth a pound of _. | 2 |
 | Apple® has announced a new device that promises to revolutionize the way we think about _. | 1 |
 | Audiences at Sundance were traumatized by Lars von Trier's controversial new film, "_." | 1 |
 | Bentley's® latest ultra-high-end luxury sedan comes complete with _, _ and _. | 3 |
 | Dear Dan Savage, Please help.  I am unable to achieve orgasm without _. | 1 |
-| Dear, your father and I found _ and _ in your bedroom.
-I'm shocked, and frankly just a little disappointed. | 2 |
+| Dear, your father and I found _ and _ in your bedroom.  I'm shocked, and frankly just a little disappointed. | 2 |
 | Experts say that without careful management and conservation, _ will disappear within our lifetimes. | 1 |
 | From the people who brought you Sharktopus and Sharknado, Syfy's® next horror film combines sharks with _. | 1 |
 | Having abandoned his pleas for a return to the gold standard, Ron Paul is now promoting a _-based economy. | 1 |
@@ -125,19 +115,17 @@ I'm shocked, and frankly just a little disappointed. | 2 |
 | Bowing to years of pressure, the Washington Redskins have officially been renamed the Washington _. | 1 |
 | Coming soon from Pixar: "_" | 1 |
 | During the lunch meeting, we were shocked to hear the boss reveal her obsession with _. | 1 |
-| From the producers of Shark Week...
-Coming this fall, _ Week. | 1 |
+| From the producers of Shark Week...  Coming this fall, _ Week. | 1 |
 | Fuddruckers® is secretly testing a burger made with _. | 1 |
 | Go-Go-Gadget _! | 1 |
-| I am _.I speak for _. | 2 |
+| I am _. I speak for _. | 2 |
 | If laughter is the best medicine, the second best is _. | 1 |
 | If you wanna be my lover, you gotta get with _. | 1 |
 | In a groundbreaking experiment, _ has given birth to _. | 2 |
 | In a new novel by Nicholas Sparks, a young girl tragically falls in love with _. | 1 |
 | In his final interview, Robin Williams discussed his private battle with _. | 1 |
 | My psychic warns that my future is filled with _. | 1 |
-| Ooooooohh yeah, baby you know what I like.
-Gimmie _. | 1 |
+| Ooooooohh yeah, baby you know what I like.  Gimmie _. | 1 |
 | Scientists have discovered the true cause of autism: _. | 1 |
 | Sweet, I just got a Groupon for _. | 1 |
 | Thank you Mario! But _ is in another castle! | 1 |
@@ -160,19 +148,15 @@ Gimmie _. | 1 |
 | And for my final wish Genie, I want you to make me the master of _. | 1 |
 | As a staunch libertarian, I believe the only role for government is _. | 1 |
 | Back in college, my nickname was _. | 1 |
-| Code Three, request backup!
-I'm surrounded by _! | 1 |
+| Code Three, request backup!  I'm surrounded by _! | 1 |
 | Cover my eyes with _ and then pleasure me with _. | 2 |
-| Forget Fifty Shades of Grey...
-Give me Fifty Shades of _! | 1 |
+| Forget Fifty Shades of Grey...  Give me Fifty Shades of _! | 1 |
 | I never karaoke, because I always end up getting drunk and singing a song about _. | 1 |
 | I'm definitely going to hell for _. | 1 |
 | I'm finally writing that book, it's titled "Zen and the Art of _." | 1 |
 | Instructions unclear: dick stuck in _. | 1 |
 | It's all about _ - no _. | 2 |
-| Let it go!Let it go!
-
-_ never bothered me anyway... | 1 |
+| Let it go! Let it go!  _ never bothered me anyway... | 1 |
 | My therapist says I have an unhealthy attitude about _. | 1 |
 | Next on Adult Swim™: The Adventures of _ and _. | 2 |
 | Thank you Mario! But _ is in another castle! | 1 |
@@ -184,17 +168,14 @@ _ never bothered me anyway... | 1 |
 | Why do I need feminism? | 1 |
 | Why is Jon Stewart really retiring? | 1 |
 | Why so salty? | 1 |
-| Yo bro, you tried _?
-Shit's straight fire. | 1 |
-| You kids with your fancy degrees...
-They don't teach ya' nothin' 'bout _ in school. | 1 |
+| Yo bro, you tried _?  Shit's straight fire. | 1 |
+| You kids with your fancy degrees...  They don't teach ya' nothin' 'bout _ in school. | 1 |
 | _: not only, like, super gross? But like, from a feminist standpoint? Totallyproblematic. | 1 |
 | _? Thanks Obama. | 1 |
 | "The time has come," the Walrus said, "To talk of many things: Of shoes, and ships, and sealing-wax. Of cabbages, and _." | 1 |
 | Although _ provided excellent results, the ethics committee has decided that the practice can no longer continue. | 1 |
 | Amazon Prime membership now includes _. | 1 |
-| Chilean Seabass: $29Caribbean Spiny Lobster: $38
-_: Market Price | 1 |
+| Chilean Seabass: $29 Caribbean Spiny Lobster: $38 _: Market Price | 1 |
 | Citing demographics, Playboy has replaced nudity with _. | 1 |
 | Come with me on an adventure to the land of _. | 1 |
 | Concerned about diabetes? Watch for symptoms like _ and _. | 2 |
@@ -228,17 +209,13 @@ _: Market Price | 1 |
 | Fridays this fall: CSI: _. | 1 |
 | General, it appears that instead of brains, these zombies want _. | 1 |
 | Hear my words, _ will rise again! | 1 |
-| Hey, perverts!
-It's "Adam and Eve," not "_ and _". | 2 |
-| I see London,I see France,
-I see _. | 1 |
+| Hey, perverts!  It's "Adam and Eve," not "_ and _". | 2 |
+| I see London, I see France, I see _. | 1 |
 | I struggle to maintain a healthy weight, but my problem isn't glandular, it's _. | 1 |
 | If the eyes are the windows to the soul, then why are mine filled with _? | 1 |
 | In the days before her death, Maya Angelou wrote a moving essay about _. | 1 |
-| It is pitch black.
-You are likely to be eaten by _. | 1 |
-| Mother, Father: today I am a man.
-Fetch me _. | 1 |
+| It is pitch black.  You are likely to be eaten by _. | 1 |
+| Mother, Father: today I am a man.  Fetch me _. | 1 |
 | New from DC Comics®: Batman vs. _. | 1 |
 | New to the 2020 Summer Olympics, _. | 1 |
 | No stranger, here we worship _: the god of _. | 2 |
@@ -246,8 +223,7 @@ Fetch me _. | 1 |
 | Run, Toto! It's the Wicked Witch of _! | 1 |
 | Soylent Pink is _! | 1 |
 | The CIA reports that Russia is spending billions to influence _. | 1 |
-| The curse!
-The child has been born with the mark of _! | 1 |
+| The curse!  The child has been born with the mark of _! | 1 |
 | The hills are alive, with the sound of _! | 1 |
 | There's nothing to worry about, the doctor said, "it's just a simple, routine check for _." | 1 |
 | Tonight on Public Access Channel 16, _, a student film about _. | 2 |
@@ -257,598 +233,599 @@ The child has been born with the mark of _! | 1 |
 | What's Andy Serkis pretending to be now? | 1 |
 | What's Barron Trump googling at this very moment? | 1 |
 | Why don't I date online anymore? | 1 |
-| You've never seen Adam Sandler like this before!
-This summer, "_". | 1 |
+| You've never seen Adam Sandler like this before!  This summer, "_". | 1 |
 
 |Total amount: 228|
 |---|
 
 ### Answers
-| Question |
+| Answers |
 |---|
-| A $50 cup of coffee literally made from cat shit. |
-| A beard longer than 12 inches. |
-| A four-inch clit. |
-| A hamster with a throbbing erection. |
+| A $50 cup of coffee lite ally made f om cat shit. |
+| A bea d lo ge  tha  12 i ches. |
+| A fou -i ch clit. |
+| A hamste  with a th obbi g e ectio . |
 | A mazel tov cocktail. |
-| A nugget of poo roughly the size and shape of a crouton. |
-| A prehensile penis. |
-| A sexually aggressive koala. |
-| A shockingly flatulent bobcat. |
-| A strong, independent woman who don't need no man. |
+| A  ugget of poo  oughly the size a d shape of a c outo . |
+| A p ehe sile pe is. |
+| A sexually agg essive koala. |
+| A shocki gly flatule t bobcat. |
+| A st o g, i depe de t woma  who do 't  eed  o ma . |
 | A tossed salad. |
-| Affirmative action. |
-| An asexual bonobo. |
-| An entire bottle of Jagermeister®. |
-| An extra-large can of Bone Bashful™ brand Chinchilla Pudding Sauce. |
-| An Oosik, or Inuit war club made from the penis bone of a walrus. |
-| An overly-enthusiastic prostate exam. |
-| An unsurprising rash. |
+| Affi mative actio . |
+| A  asexual bo obo. |
+| A  e ti e bottle of Jage meiste ®. |
+| A  ext a-la ge ca  of Bo e Bashful™ b a d Chi chilla Puddi g Sauce. |
+| A  Oosik, o  I uit wa  club made f om the pe is bo e of a wal us. |
+| A  ove ly-e thusiastic p ostate exam. |
+| A  u su p isi g  ash. |
 | Axl Rose. |
-| Bacne. |
-| Bacon that can feel pain. |
-| Bacon-flavored lube. |
-| Being born with a tail. |
-| Being kicked in the ovaries. |
-| Being punk in drublic. |
-| Being raped to sleep by dickwolves. |
-| Belching out the lyrics to "Hey Jude." |
-| Bono.Just... Bono. |
-| Bronies. |
-| Cockasaurus rex: the horniest dinosaur of them all. |
-| Cocktimus Prime: the laser-guided dildo rocket. |
+| Bac e. |
+| Baco  that ca  feel pai . |
+| Baco -flavo ed lube. |
+| Bei g bo  with a tail. |
+| Bei g kicked i  the ova ies. |
+| Bei g pu k i  d ublic. |
+| Bei g  aped to sleep by dickwolves. |
+| Belchi g out the ly ics to "Hey Jude." |
+| Bo o.
+Just... Bo o. |
+| B o ies. |
+| Cockasau us  ex: the ho iest di osau  of them all. |
+| Cocktimus P ime: the lase -guided dildo  ocket. |
 | Costco® food samples. |
-| Death by snu-snu. |
-| Droppin' the mic. |
-| Enrolling in clown school. |
-| Erotic balloon animals. |
-| Explaining how I got the nickname "Nibbleberries." |
-| Ezekiel 23:20"There she lusted after her lovers, whose genitals were like those of donkeys and whose emission was like that of horses." |
+| Death by s u-s u. |
+| D oppi ' the mic. |
+| E olli g i  clow  school. |
+| E otic balloo  a imals. |
+| Explai i g how I got the  ick ame "Nibblebe ies." |
+| Ezekiel 23:20
+"The e she lusted afte  he  love s, whose ge itals we e like those of do keys a d whose emissio  was like that of ho ses." |
 | Flop sweat. |
-| Gilbert Gottfried's voice. |
-| Giving Anne Frank a drum kit for her birthday. |
-| Giving the tumor a cutesy name. |
-| Googling "Betty White nude." |
-| Grandma's wet, sloppy kisses. |
-| Honey Boo Boo shotgunning a 2-litre bottle of "go-go juice." |
-| Insisting that Jesus is technically a zombie. |
-| JJ Abrams putting lens flares all over everything. |
-| Joe Biden getting his freak on. |
-| Joffrey Baratheon, the loathsome little shit. |
-| LEGO® recreations of classic pornos. |
-| Lego® recreations of famous porn scenes. |
+| Gilbe t Gottf ied's voice. |
+| Givi g A e F a k a d um kit fo  he  bi thday. |
+| Givi g the tumo  a cutesy  ame. |
+| Googli g "Betty White  ude." |
+| G a dma's wet, sloppy kisses. |
+| Ho ey Boo Boo shotgu i g a 2-lit e bottle of "go-go juice." |
+| I sisti g that Jesus is tech ically a zombie. |
+| JJ Ab ams putti g le s fla es all ove  eve ythi g. |
+| Joe Bide  getti g his f eak o . |
+| Joff ey Ba atheo , the loathsome little shit. |
+| LEGO®  ec eatio s of classic po os. |
+| Lego®  ec eatio s of famous po  sce es. |
 | Logic. |
-| Michele Bachmann furiously masturbating with a coathanger. |
-| Mitt Romney doing a burlesque routine in a giant champagne glass. |
-| Monkey torture. |
-| My level 90 night elf, Leafshit Puddingsbane. |
-| Natalie Portman naked, petrified, and covered in hot grits. |
-| Officially no longer giving a shit. |
-| Plato's Allegory of the Cave or some other pretentious bullshit. |
-| Posting on www.reddit.com/r/gonewild/ |
-| Pretending to be a malfunctioning robot. |
-| Pretending to have the hiccups. |
-| Pronouncing "quinoa" properly. |
-| Racist ninjas. |
-| Raptor Jesus. |
-| Reluctant anal. |
-| S'more Schnapps. |
-| Selling out. |
+| Michele Bachma  fu iously mastu bati g with a coatha ge . |
+| Mitt Rom ey doi g a bu lesque  outi e i  a gia t champag e glass. |
+| Mo key to tu e. |
+| My level 90  ight elf, Leafshit Puddi gsba e. |
+| Natalie Po tma   aked, pet ified, a d cove ed i  hot g its. |
+| Officially  o lo ge  givi g a shit. |
+| Plato's Allego y of the Cave o  some othe  p ete tious bullshit. |
+| Posti g o  www. eddit.com/ /go ewild/ |
+| P ete di g to be a malfu ctio i g  obot. |
+| P ete di g to have the hiccups. |
+| P o ou ci g "qui oa" p ope ly. |
+| Racist  i jas. |
+| Rapto  Jesus. |
+| Relucta t a al. |
+| S'mo e Sch apps. |
+| Selli g out. |
 | Sexy witches. |
-| Slightly more than 3 ounces of cum. |
-| Steaming hot lemonade. |
-| Struggle snuggles. |
-| That "not-so-fresh" feeling. |
-| The combined fat from all of the Kardashian's liposuction procedures. |
-| The combined fat from all the Kardashian family liposuctions. |
-| The fabled Mongolian Death Worm. |
-| The green apple splatters. |
-| The Slender Man. |
+| Slightly mo e tha  3 ou ces of cum. |
+| Steami g hot lemo ade. |
+| St uggle s uggles. |
+| That " ot-so-f esh" feeli g. |
+| The combi ed fat f om all of the Ka dashia 's liposuctio  p ocedu es. |
+| The combi ed fat f om all the Ka dashia  family liposuctio s. |
+| The fabled Mo golia  Death Wo m. |
+| The g ee  apple splatte s. |
+| The Sle de  Ma . |
 | The TARDIS. |
-| Thirty pieces of silver. |
-| Touching each other's butts. |
-| Using teeth. |
-| Van Gogh's severed ear. |
-| Weaponized ebola. |
-| Wielding a toddler as a weapon. |
+| Thi ty pieces of silve . |
+| Touchi g each othe 's butts. |
+| Usi g teeth. |
+| Va  Gogh's seve ed ea . |
+| Weapo ized ebola. |
+| Wieldi g a toddle  as a weapo . |
 | WINNING!! |
-| Yoga to the Sorrowful Mysteries. |
-| A 5 lb. bag of gummy bears. |
-| A bachelor's degree in communication. |
-| A bit o' the ol' slap and tickle. |
-| A bitchin' Camaro. |
-| A blanket with a hole in it. |
-| A breakfast sausage with serious emotional problems. |
-| A chair that likes to rape people. |
-| A cunning stunt. |
-| A good schtupping. |
-| A gratuitous claymation sequence. |
-| A hairshirt. |
-| A husband bulge. |
-| A jury of your peers. |
-| A sense of resignation. |
+| Yoga to the So owful Myste ies. |
+| A 5 lb. bag of gummy bea s. |
+| A bachelo 's deg ee i  commu icatio . |
+| A bit o' the ol' slap a d tickle. |
+| A bitchi ' Cama o. |
+| A bla ket with a hole i  it. |
+| A b eakfast sausage with se ious emotio al p oblems. |
+| A chai  that likes to  ape people. |
+| A cu i g stu t. |
+| A good schtuppi g. |
+| A g atuitous claymatio  seque ce. |
+| A hai shi t. |
+| A husba d bulge. |
+| A ju y of you  pee s. |
+| A se se of  esig atio . |
 | A slack-jawed yokel. |
-| A stinky pinky. |
-| A tender rodgering. |
-| A warm, gently fragrant biscuit. |
-| A were-salmon. |
-| A younger, vastly more attractive spouse. |
-| Agent Orange. |
-| An angry little man. |
-| An effeminate southern homophobe. |
-| Applying to a new guild. |
-| Barfing into a tiny, bejeweled handbag. |
-| Being able to name all of the different kinds of olives. |
-| Being able to name all the different kinds of olives. |
-| Being circumcised with a deli slicer. |
-| Being small but perfectly well formed. |
+| A sti ky pi ky. |
+| A te de   odge i g. |
+| A wa m, ge tly f ag a t biscuit. |
+| A we e-salmo . |
+| A you ge , vastly mo e att active spouse. |
+| Age t O a ge. |
+| A  a g y little ma . |
+| A  effemi ate southe  homophobe. |
+| Applyi g to a  ew guild. |
+| Ba fi g i to a ti y, bejeweled ha dbag. |
+| Bei g able to  ame all of the diffe e t ki ds of olives. |
+| Bei g able to  ame all the diffe e t ki ds of olives. |
+| Bei g ci cumcised with a deli slice . |
+| Bei g small but pe fectly well fo med. |
 | Bitch tits. |
-| Biting my toenails. |
-| Blistering barnacles! |
-| Bourbon pong. |
-| Choking. |
-| Cockissimo Fantastico, the legendary lover with the wondrous wang. |
-| Cockulous Maximus, tremendous tallywacker of Tripoli. |
-| Firm buttocks. |
+| Biti g my toe ails. |
+| Bliste i g ba acles! |
+| Bou bo  po g. |
+| Choki g. |
+| Cockissimo Fa tastico, the lege da y love  with the wo d ous wa g. |
+| Cockulous Maximus, t eme dous tallywacke  of T ipoli. |
+| Fi m buttocks. |
 | Gazpacho tactics. |
-| Giving your pet lamb a Brazilian. |
-| Hakuna matata, motherfucker. |
-| Her dry, scaly hands. |
-| Hiroshima. |
-| Hooking up at a Tegan & Sarah concert. |
-| Hooking up at a Tegan and Sara concert. |
-| Japanese rope technique. |
-| Kentucky Fried Children. |
-| Killing hobos. |
-| Making vigorous love to a Taco Bell® Beefy 5-Layer Burrito™. |
+| Givi g you  pet lamb a B azilia . |
+| Haku a matata, mothe fucke . |
+| He  d y, scaly ha ds. |
+| Hi oshima. |
+| Hooki g up at a Tega  & Sa ah co ce t. |
+| Hooki g up at a Tega  a d Sa a co ce t. |
+| Japa ese  ope tech ique. |
+| Ke tucky F ied Child e . |
+| Killi g hobos. |
+| Maki g vigo ous love to a Taco Bell® Beefy 5-Laye  Bu ito™. |
 | Mesothelioma. |
-| Mining accidents. |
-| Mongolian "beef." |
-| More dots! |
-| My evil twin. |
-| Not being too smelly, you know, in the cellar.  Down Below. |
-| One Direction. |
-| One whose nether regions are vast and beckoning, like unto a corridor down which a frankfurter might be thrown. |
-| Opening for Sigur Ros. |
-| Painal. |
-| Paula Deen's dietitian. |
+| Mi i g accide ts. |
+| Mo golia  "beef." |
+| Mo e dots! |
+| My evil twi . |
+| Not bei g too smelly, you k ow, i  the cella .  Dow  Below. |
+| O e Di ectio . |
+| O e whose  ethe   egio s a e vast a d becko i g, like u to a co ido  dow  which a f a kfu te  might be th ow . |
+| Ope i g fo  Sigu  Ros. |
+| Pai al. |
+| Paula Dee 's dietitia . |
 | Poop soup. |
-| Pooping in public. |
-| Reptilians. |
-| Rich Corinthian leather. |
+| Poopi g i  public. |
+| Reptilia s. |
+| Rich Co i thia  leathe . |
 | Rock bottom. |
-| Running around like a guy with his chicken cut off. |
-| Self-medicating. |
-| Self-replicating fudge. |
-| Slowly waving an oversized Jamaican flag. |
-| Some minor bruising. |
-| Something Elon Musk thought up while floating six inches above the floor in a meditative trance. |
-| Spiking the juice at AA. |
+| Ru i g a ou d like a guy with his chicke  cut off. |
+| Self-medicati g. |
+| Self- eplicati g fudge. |
+| Slowly wavi g a  ove sized Jamaica  flag. |
+| Some mi o  b uisi g. |
+| Somethi g Elo  Musk thought up while floati g six i ches above the floo  i  a meditative t a ce. |
+| Spiki g the juice at AA. |
 | Sploosh! |
-| Swallowing a cue ball. |
+| Swallowi g a cue ball. |
 | Tacos. |
-| Ted Nugent's cold, dead hands. |
-| That thing with the spoon. |
-| The cliterati. |
-| The creative use of a pool noodle. |
-| The Friend Zone |
-| The reek of shame. |
-| The smooth, unblemished skin of a child. |
-| The soft love-honks of a lusty goose. |
-| The whole goddamned thing. |
+| Ted Nuge t's cold, dead ha ds. |
+| That thi g with the spoo . |
+| The clite ati. |
+| The c eative use of a pool  oodle. |
+| The F ie d Zo e |
+| The  eek of shame. |
+| The smooth, u blemished ski  of a child. |
+| The soft love-ho ks of a lusty goose. |
+| The whole goddam ed thi g. |
 | The WNBA. |
-| Those creamy atheist thighs. |
-| Titty sprinkles. |
-| Treason. |
-| Tufted ears. |
-| Uncontrollably retching at the mere mention of mayonnaise. |
-| Using a zip-tie as an impromptu cock-ring. |
-| Using tears as lubricant. |
-| Wearing a blue fox fursuit on Casual Friday. |
-| Wearing your IUD into an MRI. |
+| Those c eamy atheist thighs. |
+| Titty sp i kles. |
+| T easo . |
+| Tufted ea s. |
+| U co t ollably  etchi g at the me e me tio  of mayo aise. |
+| Usi g a zip-tie as a  imp omptu cock- i g. |
+| Usi g tea s as lub ica t. |
+| Wea i g a blue fox fu suit o  Casual F iday. |
+| Wea i g you  IUD i to a  MRI. |
 | A ball pit filled with testicles. |
-| A banana.  You know, for scale. |
-| A Benedict Cumberbatch RealDoll™. |
-| A black fly in your chardonnay. |
-| A braille vajazzling. |
-| A bunch of snot-nosed, know-it-all twentysomethings. |
-| A butt-plug in the shape of a rolled-up copy of the U.S. Constitution. |
+| A ba a a.  You k ow, fo  scale. |
+| A Be edict Cumbe batch RealDoll™. |
+| A black fly i  you  cha do ay. |
+| A b aille vajazzli g. |
+| A bu ch of s ot- osed, k ow-it-all twe tysomethi gs. |
+| A butt-plug i  the shape of a  olled-up copy of the U.S. Co stitutio . |
 | A cage fight with Nicolas Cage. |
-| A combination bounce house and fumigation tent. |
-| A donkey show. |
-| A Fleshlight™ knock-off from China.* |
+| A combi atio  bou ce house a d fumigatio  te t. |
+| A do key show. |
+| A Fleshlight™ k ock-off f om Chi a.* |
 | A fluffy little butt. |
-| A literal shaved beaver. |
-| A meat raffle! |
-| A silly old sea captain who's just full of stories. |
-| A song about how great Nebraska is. |
-| A stripper named "Anchovy." |
-| A tongue punch in the ol' fart box. |
-| A whole lot of donuts. |
-| An emergency root canal. |
-| An emperor penguin with no sense of shame. |
-| An erotic novel about the Loch Ness Monster. |
-| An unexpected finger in the anus. |
-| Baby carrots. |
-| Being heteroflexible. |
-| Being so far in the closet, you can see Narnia. |
-| Being waterboarded with Wild Turkey® 101. |
-| Charles Darwin. |
-| Chasing waterfalls. |
-| Cher |
-| Chloroform. |
-| Combing out the dingleberries. |
-| Crabs Adjust Humidity. |
-| Dennis Rodman, professional diplomat. |
-| Double vaginal, double anal. |
-| Erotic Star Trek fan fiction where all the characters are furries, like Kirk is an ocelot or something. |
-| Gettin' down there and bein' all like "this shit is nasty, yo.  Fuck this, yo." |
-| Getting ganked. |
-| Hookers and blow. |
-| Jennifer Lawrence's endearing qualities. |
+| A lite al shaved beave . |
+| A meat  affle! |
+| A silly old sea captai  who's just full of sto ies. |
+| A so g about how g eat Neb aska is. |
+| A st ippe   amed "A chovy." |
+| A to gue pu ch i  the ol' fa t box. |
+| A whole lot of do uts. |
+| A  eme ge cy  oot ca al. |
+| A  empe o  pe gui  with  o se se of shame. |
+| A  e otic  ovel about the Loch Ness Mo ste . |
+| A  u expected fi ge  i  the a us. |
+| Baby ca ots. |
+| Bei g hete oflexible. |
+| Bei g so fa  i  the closet, you ca  see Na ia. |
+| Bei g wate boa ded with Wild Tu key® 101. |
+| Cha les Da wi . |
+| Chasi g wate falls. |
+| Che  |
+| Chlo ofo m. |
+| Combi g out the di glebe ies. |
+| C abs Adjust Humidity. |
+| De is Rodma , p ofessio al diplomat. |
+| Double vagi al, double a al. |
+| E otic Sta  T ek fa  fictio  whe e all the cha acte s a e fu ies, like Ki k is a  ocelot o  somethi g. |
+| Getti ' dow  the e a d bei ' all like "this shit is  asty, yo.  Fuck this, yo." |
+| Getti g ga ked. |
+| Hooke s a d blow. |
+| Je ife  Law e ce's e dea i g qualities. |
 | Juggalos. |
-| Korean Jesus. |
-| LeBron James' vast, enveloping hands. |
-| Living among us... Learning our ways.  Watching.  Waiting. |
-| Low-hanging fruit. |
-| Lt. Worf's naturally-ribbed Klingon schlong. |
-| Lucky Pierre. |
-| Making airplane noises. |
-| Mr. Right Now. |
-| My apparent inability to read a few simple words out loud. |
-| Nazi unicorns. |
-| Neil deGrasse Tyson. |
+| Ko ea  Jesus. |
+| LeB o  James' vast, e velopi g ha ds. |
+| Livi g amo g us... Lea i g ou  ways.  Watchi g.  Waiti g. |
+| Low-ha gi g f uit. |
+| Lt. Wo f's  atu ally- ibbed Kli go  schlo g. |
+| Lucky Pie e. |
+| Maki g ai pla e  oises. |
+| M . Right Now. |
+| My appa e t i ability to  ead a few simple wo ds out loud. |
+| Nazi u ico s. |
+| Neil deG asse Tyso . |
 | Obese sex. |
-| Peanut free zones |
-| Primo shlick material. |
-| Rainbow cumdrops. |
-| Realistic expectations. |
-| Robin Thicke. |
-| Scissoring. |
-| September 11th. |
-| Six pounds of raw, peeled garlic. |
-| Some punk-ass little bitch. |
-| Sriracha. |
-| Susan, that bitch. |
-| The (technically) Virgin Mary. |
-| The crotches of strangers. |
-| The express written consent of Major League Baseball. |
-| The few shreds of tinsel still clinging to my asshole. |
-| The Irish. |
-| The ol' reach-around. |
-| The sound of one hand fapping. |
+| Pea ut f ee zo es |
+| P imo shlick mate ial. |
+| Rai bow cumd ops. |
+| Realistic expectatio s. |
+| Robi  Thicke. |
+| Scisso i g. |
+| Septembe  11th. |
+| Six pou ds of  aw, peeled ga lic. |
+| Some pu k-ass little bitch. |
+| S i acha. |
+| Susa , that bitch. |
+| The (tech ically) Vi gi  Ma y. |
+| The c otches of st a ge s. |
+| The exp ess w itte  co se t of Majo  League Baseball. |
+| The few sh eds of ti sel still cli gi g to my asshole. |
+| The I ish. |
+| The ol'  each-a ou d. |
+| The sou d of o e ha d fappi g. |
 | The sticky icky. |
-| The sweet release of death. |
-| The taste of human flesh. |
-| Turning it all into a sexy dance. |
+| The sweet  elease of death. |
+| The taste of huma  flesh. |
+| Tu i g it all i to a sexy da ce. |
 | TWENTY MILLION U.S. DOLLARS. |
-| Using a live squid as a condom. |
-| Wanghis Kahn, cocklord of the Mongols. |
-| What looked like a chemical weapons facility but turned out to be a children's hospital. |
-| Wiggling. |
+| Usi g a live squid as a co dom. |
+| Wa ghis Kah , cocklo d of the Mo gols. |
+| What looked like a chemical weapo s facility but tu ed out to be a child e 's hospital. |
+| Wiggli g. |
 | Wuv. |
-| Yiffing. |
-| You know, one of them sorts of things. |
-| A burning sensation. |
-| A Category 5 assnado. |
-| A crusty old sock. |
-| A fear-boner. |
+| Yiffi g. |
+| You k ow, o e of them so ts of thi gs. |
+| A bu i g se satio . |
+| A Catego y 5 ass ado. |
+| A c usty old sock. |
+| A fea -bo e . |
 | A fishy taste. |
-| A history of abuse. |
+| A histo y of abuse. |
 | A moist towlette. |
-| A pineapple with chlamydia. |
-| A powerful gag reflex. |
-| A purple nurple. |
-| A really bad yeast infection. |
-| A secret blend of eleven herbs and spices. |
-| A shit-ton of glitter. |
-| A single, shiny Bitcoin. |
-| A thirsty, sperm-jacking wanna-be baby mama. |
-| A tip of my fedora. |
-| A urine-filled bong. |
-| A Waco, Texas-themed novelty barbecue pit and smoker. |
-| Africans, the racist white kind. |
-| An absinthe enema. |
-| An actual gravy train. |
-| An actual invisible knapsack. |
-| An adorable baby sloth. |
-| An itsy-bitsy teeny weenie. |
-| An obscene amount of butter. |
-| An orcgasm. |
-| Anything with a hole. |
-| Asian girls with names like "Christina" or "Elizabeth". |
-| Auto-erotic asphyxiation. |
-| Bitchy resting face. |
-| Cake farts. |
+| A pi eapple with chlamydia. |
+| A powe ful gag  eflex. |
+| A pu ple  u ple. |
+| A  eally bad yeast i fectio . |
+| A sec et ble d of eleve  he bs a d spices. |
+| A shit-to  of glitte . |
+| A si gle, shi y Bitcoi . |
+| A thi sty, spe m-jacki g wa a-be baby mama. |
+| A tip of my fedo a. |
+| A u i e-filled bo g. |
+| A Waco, Texas-themed  ovelty ba becue pit a d smoke . |
+| Af ica s, the  acist white ki d. |
+| A  absi the e ema. |
+| A  actual g avy t ai . |
+| A  actual i visible k apsack. |
+| A  ado able baby sloth. |
+| A  itsy-bitsy tee y wee ie. |
+| A  obsce e amou t of butte . |
+| A  o cgasm. |
+| A ythi g with a hole. |
+| Asia  gi ls with  ames like "Ch isti a" o  "Elizabeth". |
+| Auto-e otic asphyxiatio . |
+| Bitchy  esti g face. |
+| Cake fa ts. |
 | Chesticles. |
-| Child-sized coffins. |
+| Child-sized coffi s. |
 | Cumalot. |
-| Curb-stomping. |
-| Danger pheromones. |
+| Cu b-stompi g. |
+| Da ge  phe omo es. |
 | DOOOOOMM!!!!!!! |
-| Dr. Jellyfinger. |
-| Duchess Von Fingerbang. |
-| Fat Man and Little Boy. |
-| Felching. |
-| Front row seats to the Shit Show. |
-| Gargling noises. |
-| Ham night! |
+| D . Jellyfi ge . |
+| Duchess Vo  Fi ge ba g. |
+| Fat Ma  a d Little Boy. |
+| Felchi g. |
+| F o t  ow seats to the Shit Show. |
+| Ga gli g  oises. |
+| Ham  ight! |
 | Hey, fuck you buddy. |
-| Hilarious foreigners! |
-| Hulking out. |
-| Long Schlong Silver. |
+| Hila ious fo eig e s! |
+| Hulki g out. |
+| Lo g Schlo g Silve . |
 | M'lady. |
-| Making sweet, sweet love all night long. |
+| Maki g sweet, sweet love all  ight lo g. |
 | My big juicy fuck potatoes. |
-| My silent twin, the afterbirth. |
+| My sile t twi , the afte bi th. |
 | OH EM GEE, TOTES ADORBS!!! |
-| Origami erotica. |
-| Pelvic sorcery. |
-| Protective custody. |
-| Putting Baby in a corner. |
-| Romantic cancer. |
-| Something so offensive, I don't even want to say it. |
-| State-of-the-art animatronics. |
-| Taking one for the team. |
-| Tampons in every hole. |
-| The age of consent. |
-| The Chronicles of Red-Dick. |
-| The echoing silence left by SIDS. |
-| The Gaza Strip. |
-| The graveyard shift at 7-Eleven®. |
-| The hole in my chest where my heart used to be. |
-| The Large Hard-On Collider. |
-| The love that dare not speak its name. |
-| The noise a cat makes before vomiting. |
-| The patriarchal social construct of physical genitalia. |
-| Trickle-down economics. |
-| Trouser chili. |
-| Welfare. |
-| What happens in Vegas. |
-| Whatever is left. |
-| www.clownpenis.fart |
-| Zatopeepee, the Blind Fucksman. |
-| Ze Germans. |
-| A bag of doorknobs. |
+| O igami e otica. |
+| Pelvic so ce y. |
+| P otective custody. |
+| Putti g Baby i  a co e . |
+| Roma tic ca ce . |
+| Somethi g so offe sive, I do 't eve  wa t to say it. |
+| State-of-the-a t a imat o ics. |
+| Taki g o e fo  the team. |
+| Tampo s i  eve y hole. |
+| The age of co se t. |
+| The Ch o icles of Red-Dick. |
+| The echoi g sile ce left by SIDS. |
+| The Gaza St ip. |
+| The g aveya d shift at 7-Eleve ®. |
+| The hole i  my chest whe e my hea t used to be. |
+| The La ge Ha d-O  Collide . |
+| The love that da e  ot speak its  ame. |
+| The  oise a cat makes befo e vomiti g. |
+| The pat ia chal social co st uct of physical ge italia. |
+| T ickle-dow  eco omics. |
+| T ouse  chili. |
+| Welfa e. |
+| What happe s i  Vegas. |
+| Whateve  is left. |
+| www.clow pe is.fa t |
+| Zatopeepee, the Bli d Fucksma . |
+| Ze Ge ma s. |
+| A bag of doo k obs. |
 | A bag of pickled socks. |
 | A bucket of dicks. |
-| A few sharp tugs. |
-| A girl-child. |
-| A lemon-stealing whore. |
-| A meat tornado. |
-| A miscarriage. |
-| A nice boy who never did anyone any harm. |
-| A pattern of defensive wounds. |
-| A racist toddler. |
-| A shallow grave. |
+| A few sha p tugs. |
+| A gi l-child. |
+| A lemo -steali g who e. |
+| A meat to ado. |
+| A misca iage. |
+| A  ice boy who  eve  did a yo e a y ha m. |
+| A patte  of defe sive wou ds. |
+| A  acist toddle . |
+| A shallow g ave. |
 | A soggy biscuit. |
-| A special snowflake. |
-| A sternly-worded letter. |
-| A tablespoon of thick, custardy puss. |
-| A turbo-encabulator, complete with pre-famulated amulite surmounted by a malleable logarithmic casing. |
+| A special s owflake. |
+| A ste ly-wo ded lette . |
+| A tablespoo  of thick, custa dy puss. |
+| A tu bo-e cabulato , complete with p e-famulated amulite su mou ted by a malleable loga ithmic casi g. |
 | A whole baby. |
 | ALLAH HU AKBAR! |
-| Alzheimer's. |
-| An Amber Alert. |
-| An asshole that tastes like vanilla ice cream. |
-| Area 69. |
-| Battle-tested period panties. |
-| Being a size queen. |
-| Being catfished. |
-| Being judged not by the color of your skin, but by the content of your character. |
-| Being really unprepared for Picture Day. |
-| Bill Cosby's chocolate pudding pop. |
-| Booklearnin'. |
-| Brojobs. |
-| Crotchfruit. |
-| Crushing your enemies, seeing them driven before you, and hearing the lamentations of their women. |
-| Diamond-studded tampons. |
-| Dick nipples. |
-| Dickbutt. [A chibi drawing of Dickbutt] |
-| Doggy-style with a real doggy. |
-| Doing the waffle stomp. |
-| Freedom. |
-| Getting White Girl Wasted. |
-| Going potty. |
-| Hillary Clinton's triumphant patriotic cock. |
-| Hot singles in your area. |
+| Alzheime 's. |
+| A  Ambe  Ale t. |
+| A  asshole that tastes like va illa ice c eam. |
+| A ea 69. |
+| Battle-tested pe iod pa ties. |
+| Bei g a size quee . |
+| Bei g catfished. |
+| Bei g judged  ot by the colo  of you  ski , but by the co te t of you  cha acte . |
+| Bei g  eally u p epa ed fo  Pictu e Day. |
+| Bill Cosby's chocolate puddi g pop. |
+| Booklea i '. |
+| B ojobs. |
+| C otchf uit. |
+| C ushi g you  e emies, seei g them d ive  befo e you, a d hea i g the lame tatio s of thei  wome . |
+| Diamo d-studded tampo s. |
+| Dick  ipples. |
+| Dickbutt. [A chibi d awi g of Dickbutt] |
+| Doggy-style with a  eal doggy. |
+| Doi g the waffle stomp. |
+| F eedom. |
+| Getti g White Gi l Wasted. |
+| Goi g potty. |
+| Hilla y Cli to 's t iumpha t pat iotic cock. |
+| Hot si gles i  you  a ea. |
 | Iggy Azalea. |
-| Irony. |
+| I o y. |
 | It. |
-| Kinky fuckery. |
-| Me Lucky Charms®! |
+| Ki ky fucke y. |
+| Me Lucky Cha ms®! |
 | MORTAL KOMBAT™. |
 | Nutella®. |
-| One more fucking word. |
-| Only traveling by rickshaw. |
-| Poking it with a stick. |
-| Quietly ovulating. |
-| Santorum, everywhere. |
-| Sharia law. |
-| Shenanigans. |
-| Shit-filled raviolis. |
-| Shub-Niggurath, The Black Goat of the Woods with a Thousand Young. |
-| Sitting alone in the dark, listening to Drake. |
-| Skanky Smurf. |
-| Spelunking. |
-| Stank dick. |
-| Sugar and spice and everything nice. |
+| O e mo e fucki g wo d. |
+| O ly t aveli g by  ickshaw. |
+| Poki g it with a stick. |
+| Quietly ovulati g. |
+| Sa to um, eve ywhe e. |
+| Sha ia law. |
+| She a iga s. |
+| Shit-filled  aviolis. |
+| Shub-Niggu ath, The Black Goat of the Woods with a Thousa d You g. |
+| Sitti g alo e i  the da k, liste i g to D ake. |
+| Ska ky Smu f. |
+| Spelu ki g. |
+| Sta k dick. |
+| Suga  a d spice a d eve ythi g  ice. |
 | The Cockpocalypse. |
-| The difference between "good touch" and "bad touch." |
-| The muffled cries of an Asian baby girl. |
+| The diffe e ce betwee  "good touch" a d "bad touch." |
+| The muffled c ies of a  Asia  baby gi l. |
 | The poophole loophole. |
-| The scientific method. |
-| The sound of a toddler's skull cracking against the pavement. |
-| The third trimester. |
+| The scie tific method. |
+| The sou d of a toddle 's skull c acki g agai st the paveme t. |
+| The thi d t imeste . |
 | The wet spot. |
 | The Yellow Dick Road. |
-| These strange human urges. |
-| This motherfucker right here. |
-| Tinder™. |
+| These st a ge huma  u ges. |
+| This mothe fucke   ight he e. |
+| Ti de ™. |
 | Type 2 diabetes. |
-| Wink wink, nudge nudge! |
-| You Know Who. |
-| Your bourgeois morality. |
-| 3.7 billion women. |
-| A 3-1/2 pound shit baby. |
+| Wi k wi k,  udge  udge! |
+| You K ow Who. |
+| You  bou geois mo ality. |
+| 3.7 billio  wome . |
+| A 3-1/2 pou d shit baby. |
 | A blue waffle. |
-| A chronic colonic. |
-| A Cleveland Steamer. |
-| A cock-gobbling cock-goblin. |
-| A dumpster fire. |
-| A hoo-hoo that bites your ding-dong. |
-| A lemon party. |
+| A ch o ic colo ic. |
+| A Clevela d Steame . |
+| A cock-gobbli g cock-gobli . |
+| A dumpste  fi e. |
+| A hoo-hoo that bites you  di g-do g. |
+| A lemo  pa ty. |
 | A little bit of spit-up. |
 | A NEWWWW CAR! |
-| A Planned Parenthood® clinic and non-kosher deli. |
-| A positive pregnancy test from Craigslist. |
-| Acknowledging that none of the dreams that you had as a child have come true. |
+| A Pla ed Pa e thood® cli ic a d  o -koshe  deli. |
+| A positive p eg a cy test f om C aigslist. |
+| Ack owledgi g that  o e of the d eams that you had as a child have come t ue. |
 | Adele. |
-| Agreeing with Donald Trump. |
-| An ancient, malevolent entity. |
-| Ariana Grande and her sisters Ariana Tall and Ariana Venti. |
-| Asparagus pee. |
-| Barbecuing what's left of the fetus. |
-| Being a "gold star" lesbian. |
-| Benghazi! |
-| Bernie Sanders' sexy tickles! |
-| Bristol Palin. |
-| Brovaries. |
-| Burning my neighbor's house down to keep the rent low. |
-| Cock cancer |
-| Dank memes. |
-| Dem lil' critters. |
-| Dickin'. |
-| Eating pussy with a knife and fork. |
-| El Nino. |
-| Getting head from Kevin Spacey. |
+| Ag eei g with Do ald T ump. |
+| A  a cie t, malevole t e tity. |
+| A ia a G a de a d he  siste s A ia a Tall a d A ia a Ve ti. |
+| Aspa agus pee. |
+| Ba becui g what's left of the fetus. |
+| Bei g a "gold sta " lesbia . |
+| Be ghazi! |
+| Be ie Sa de s' sexy tickles! |
+| B istol Pali . |
+| B ova ies. |
+| Bu i g my  eighbo 's house dow  to keep the  e t low. |
+| Cock ca ce  |
+| Da k memes. |
+| Dem lil' c itte s. |
+| Dicki '. |
+| Eati g pussy with a k ife a d fo k. |
+| El Ni o. |
+| Getti g head f om Kevi  Spacey. |
 | Ghost babies. |
 | Hepatitis C. |
-| Hillary Clinton's Kevlar-lined pantsuit. |
-| Hitler? Hitler! Hitler Hitler Hitler Hitler Hitler [last five "Hitler"s are in decreasing font size] |
-| Huge, wobbly meat-curtains. |
-| I would like to add you to my professional network on LinkedIn®. |
-| Jared's six-inch kiddie meal. |
-| Jesus H. Christ. |
+| Hilla y Cli to 's Kevla -li ed pa tsuit. |
+| Hitle ? Hitle ! Hitle  Hitle  Hitle  Hitle  Hitle  [last five "Hitle "s a e i  dec easi g fo t size] |
+| Huge, wobbly meat-cu tai s. |
+| I would like to add you to my p ofessio al  etwo k o  Li kedI ®. |
+| Ja ed's six-i ch kiddie meal. |
+| Jesus H. Ch ist. |
 | Jihotties. |
-| Literally, anything else. |
-| Making America great again. |
-| Manspreading. |
-| Mouth sounds. |
-| My own two hands. |
-| Nonstop helicoptering. |
-| Nuking gay baby whales for Jesus. |
-| Nun chunks. |
-| Pegging. |
-| Pissing in the popcorn. |
-| Placenta polenta. |
-| Profound autism. |
-| Pungent butt-burps. |
-| Pure evil. |
-| Putting the pussy on the chainwax. |
-| Releasing the Kraken. |
-| Riding the struggles bus. |
-| Rough, anonymous sex. |
-| Scrotemeal. |
+| Lite ally, a ythi g else. |
+| Maki g Ame ica g eat agai . |
+| Ma sp eadi g. |
+| Mouth sou ds. |
+| My ow  two ha ds. |
+| No stop helicopte i g. |
+| Nuki g gay baby whales fo  Jesus. |
+| Nu  chu ks. |
+| Peggi g. |
+| Pissi g i  the popco . |
+| Place ta pole ta. |
+| P ofou d autism. |
+| Pu ge t butt-bu ps. |
+| Pu e evil. |
+| Putti g the pussy o  the chai wax. |
+| Releasi g the K ake . |
+| Ridi g the st uggles bus. |
+| Rough, a o ymous sex. |
+| Sc otemeal. |
 | Shia LeBeouf. |
-| Sleep fapnia. |
-| Smirnoff® the Wizard. |
-| Someone who isn't me. |
-| Sweater puppies. |
-| Ten points for Gryffindor! |
-| That woman. |
-| The Academy of Fine Farts. |
+| Sleep fap ia. |
+| Smi off® the Wiza d. |
+| Someo e who is 't me. |
+| Sweate  puppies. |
+| Te  poi ts fo  G yffi do ! |
+| That woma . |
+| The Academy of Fi e Fa ts. |
 | The Dewey Decimal System. |
 | The hostages. |
-| The other, other, otherwhite meat. |
-| The person Mr. Rogers thought I could be. |
-| The shortbus. |
-| This. This right here. So. Much. This. |
-| Touching the poop. |
-| Trademark infringement. |
-| Twincest. |
-| Unspeakable atrocities. |
-| Waiting for the bar to open. |
-| A 5-gallon bucket of used condoms. |
-| A bull dyke in a china shop. |
-| A bulldog eating mayonnaise. |
-| A burkini. |
-| A county fair goldfish who has seen things no goldfish should ever see. |
-| A cry for help. |
-| A Hasidic hillbilly with a snootful of honeybees. |
-| A journey of self-exploration. |
-| A pale rider, and his name was Death. |
-| A pickup truck, a good dog, and my woman. |
-| A really stupid mustache. |
-| A Schlong of Ice and Fire. |
-| A shoehorn, the kind with teeth. |
+| The othe , othe , othe white meat. |
+| The pe so  M . Roge s thought I could be. |
+| The sho tbus. |
+| This. This  ight he e. So. Much. This. |
+| Touchi g the poop. |
+| T adema k i f i geme t. |
+| Twi cest. |
+| U speakable at ocities. |
+| Waiti g fo  the ba  to ope . |
+| A 5-gallo  bucket of used co doms. |
+| A bull dyke i  a chi a shop. |
+| A bulldog eati g mayo aise. |
+| A bu ki i. |
+| A cou ty fai  goldfish who has see  thi gs  o goldfish should eve  see. |
+| A c y fo  help. |
+| A Hasidic hillbilly with a s ootful of ho eybees. |
+| A jou ey of self-explo atio . |
+| A pale  ide , a d his  ame was Death. |
+| A pickup t uck, a good dog, a d my woma . |
+| A  eally stupid mustache. |
+| A Schlo g of Ice a d Fi e. |
+| A shoeho , the ki d with teeth. |
 | A Twatadile. |
-| A well-regulated militia. |
-| A-rabs. |
-| Additional lubrication, stat! |
-| All my worldly possessions, piled in the street and set alight. |
-| All that and a bag of chips. |
-| Alternative uses for Icy Hot and Gold Bond Medicated Powder. |
-| Balthus, the blue-balled barbarian. |
+| A well- egulated militia. |
+| A- abs. |
+| Additio al lub icatio , stat! |
+| All my wo ldly possessio s, piled i  the st eet a d set alight. |
+| All that a d a bag of chips. |
+| Alte ative uses fo  Icy Hot a d Gold Bo d Medicated Powde . |
+| Balthus, the blue-balled ba ba ia . |
 | Behold! The majestic sequoia. |
 | BOOM SHAKALAKA. |
-| Bursting through the back door. |
-| Canned tuna with extra dolphin. |
-| Casu marzu, the famed Sardinian maggot cheese. |
-| Clowns that lure children into the woods. |
-| Cockhenge. |
+| Bu sti g th ough the back doo . |
+| Ca ed tu a with ext a dolphi . |
+| Casu ma zu, the famed Sa di ia  maggot cheese. |
+| Clow s that lu e child e  i to the woods. |
+| Cockhe ge. |
 | Dick cheese cheesecake. |
-| Dildo Saggins. |
-| Dropping warheads on foreheads. |
-| Falling into the zoo enclosure. |
-| Family fun fecal face painting. |
-| Fidget spinners. |
-| Fracking. |
-| Fruit leather bondage gear. |
-| Getting a bit "rapey" at night sometimes. |
-| Good Boy Points. |
-| Grab-ass. |
-| Grabbing them by the pussy. |
-| Granny's nooks and crannies. |
-| Gravity. |
-| Harambe. |
-| Having so little hope for your child's future that you name him "Jathan." |
+| Dildo Saggi s. |
+| D oppi g wa heads o  fo eheads. |
+| Falli g i to the zoo e closu e. |
+| Family fu  fecal face pai ti g. |
+| Fidget spi e s. |
+| F acki g. |
+| F uit leathe  bo dage gea . |
+| Getti g a bit " apey" at  ight sometimes. |
+| Good Boy Poi ts. |
+| G ab-ass. |
+| G abbi g them by the pussy. |
+| G a y's  ooks a d c a ies. |
+| G avity. |
+| Ha ambe. |
+| Havi g so little hope fo  you  child's futu e that you  ame him "Jatha ." |
 | Hot Topic®. |
-| Impeachment. |
-| Jack the Stripper. |
-| Just doing my fucking job, asshole. |
-| Leaving the European Union. |
-| Lord Xenu. |
-| Mesonychoteuthis hamiltoni, the Colossal Squid and one hell of a fucking metaphor. |
-| My druncle. |
+| Impeachme t. |
+| Jack the St ippe . |
+| Just doi g my fucki g job, asshole. |
+| Leavi g the Eu opea  U io . |
+| Lo d Xe u. |
+| Meso ychoteuthis hamilto i, the Colossal Squid a d o e hell of a fucki g metapho . |
+| My d u cle. |
 | My will to live. |
-| Not knowing when to stop. |
-| Obsessive Compulsive Disorder. |
-| Optional lumbar support. |
-| Prescription drugs. |
-| Repressed scout-leader memories. |
-| Ringo, the last surviving Beatle. |
-| Safe, low-voltage stimulation. |
-| Sharron's shitty, seashell-shaped, chartreuse she-shed by the seashore. |
-| Some kind of infestation. |
-| Steve from Blue's Clues. |
-| The fear that senpai will never notice me. |
-| The great black wolf Fenrir, eater of Odin and harbinger of Ragnarok. |
-| The ladies of the women's auxiliary. |
-| The maddening CLICK CLICK CLICK of fingernails on iPhone®. |
-| The naughty nuns of north Nottingham. |
+| Not k owi g whe  to stop. |
+| Obsessive Compulsive Diso de . |
+| Optio al lumba  suppo t. |
+| P esc iptio  d ugs. |
+| Rep essed scout-leade  memo ies. |
+| Ri go, the last su vivi g Beatle. |
+| Safe, low-voltage stimulatio . |
+| Sha o 's shitty, seashell-shaped, cha t euse she-shed by the seasho e. |
+| Some ki d of i festatio . |
+| Steve f om Blue's Clues. |
+| The fea  that se pai will  eve   otice me. |
+| The g eat black wolf Fe i , eate  of Odi  a d ha bi ge  of Rag a ok. |
+| The ladies of the wome 's auxilia y. |
+| The madde i g CLICK CLICK CLICK of fi ge ails o  iPho e®. |
+| The  aughty  u s of  o th Notti gham. |
 | The smell. |
-| The sound of my vagina. |
+| The sou d of my vagi a. |
 | The yakuza. |
-| Thinkin' 'bout them beans. |
-| This silly "consent" nonsense. |
-| Throwing another pidgey in the wood chipper. |
-| Throwing shade. |
-| Turning it off and on again. |
-| Vaping. |
-| Weasels ripping my flesh. |
-| White girl dreads. |
-| Yanking on the clitoris. |
+| Thi ki ' 'bout them bea s. |
+| This silly "co se t"  o se se. |
+| Th owi g a othe  pidgey i  the wood chippe . |
+| Th owi g shade. |
+| Tu i g it off a d o  agai . |
+| Vapi g. |
+| Weasels  ippi g my flesh. |
+| White gi l d eads. |
+| Ya ki g o  the clito is. |
 
 |Total amount: 583|
 |---|

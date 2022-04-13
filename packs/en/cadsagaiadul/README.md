@@ -111,358 +111,358 @@ Answers amount: 350
 |---|
 
 ### Answers
-| Question |
+| Answers |
 |---|
 | 420 |
-| $10 bills defaced with anarchist propaganda. |
-| 10 minute sof decent sex. |
-| 50 dollars' worth of cereal. |
-| 64 slices of American cheese. |
-| A Confederate Flag tattoo. |
-| A giant clusterfuck in the center of the galaxy. |
+| $10 bills defaced with a a chist p opaga da. |
+| 10 mi ute sof dece t sex. |
+| 50 dolla s' wo th of ce eal. |
+| 64 slices of Ame ica  cheese. |
+| A Co fede ate Flag tattoo. |
+| A gia t cluste fuck i  the ce te  of the galaxy. |
 | A sausage betwixt the cheeks. |
-| Abandoning all my hopes and dreams. |
-| Absolutely nothing. |
-| Abusing public figures on Twitter. |
-| Accidental dick pics. |
-| Accidentally posting a nude to my story. |
-| Actually saying my partner's name during sex. |
-| Adding "and shit" to sentences to sound less white. |
-| Adulting classes. |
-| Almost experiencing consequences. |
-| Anchovies. |
-| Another goddamn rustic-looking brewpub. |
-| Antimalarial-induced hallucinations |
-| Apologizing without knowing what I'm apologizing for. |
-| Arming the homeless. |
-| Armpit herpes. |
-| Artificial insemination. |
-| Assmebling an IKEA wardrobe. |
-| Attending a North Korea summit with the President and Dennis Rodman. |
-| Attracting literally the worst people. |
-| Attractive men with insubstantial dicks. |
-| Avoiding eye contact unless it will lead to fucking. |
-| Backpacking in New Zealand, fucking a Hobbit. |
-| Banana milk. |
-| Barron Trump. |
-| Being a male and needing constant reassurance that I'm not acting gay. |
-| Being a motherfucking mermaid. |
-| Being completely unemployable. |
-| Being in a bad mood for so long that this is just who I am now. |
-| Being kinkshamed on social media. |
-| Being passively-aggressive on social media. |
-| Being proud of taking a long nap. |
-| Big dick energy. |
-| Binge-shopping. |
-| Biting nipples. |
-| Blaming all salty text messages on autocorrect. |
-| Blaming everyone else for everything. |
-| Blissfully ignorant. |
-| Blowing bubbles in the bath with a straw instead of forking out for real bubbles. |
-| Boko Haram. |
-| Bonding with my Roomba. |
-| Bonding with someone over our desire to bang a member of the Royal Family. |
-| Bracing for heartbreak before opening the fridge to see if my roommate ate my leftovers. |
-| Bragging about easting ass but refusing to eat pineapple on pizza. |
-| Bringing cocaine to a baby shower. |
-| Building a nuclear bunker at my parents' house. |
-| Burning in Adulthood Hell. |
-| Burning my neighbor's house down to keep the rent low. |
-| Busting a nut. |
-| Calling the cops on my own party because I'm tired. |
-| Cashiers talking to me about their stepchildren. |
-| Celebrating personal achievements with video games. |
-| Changing my bedsheets. |
-| Charging my dog back rent. |
-| Checking my bank balance. |
-| Checking out of life. |
-| Climbing a mountain. |
-| Clocking out of work. |
-| Closing my eyes and thinking about dick. |
-| Coming home, unwinding, and binge-watching an entire TV series. |
-| Commenting with aggressive memes on Mark Zuckerberg's posts. |
-| Competitive eating. |
-| Complimenting someone's dress sense in person while blasting their poor taste on social media. |
-| Constantly consuming content. |
-| Constantly making plans with my partner to psotpone breaking up. |
-| Convincing my friend I watched the video he shared. |
-| Convincing my roommate I'm not a slob ass piece of shit. |
-| Cooking, serving, and smoking meth. |
+| Aba do i g all my hopes a d d eams. |
+| Absolutely  othi g. |
+| Abusi g public figu es o  Twitte . |
+| Accide tal dick pics. |
+| Accide tally posti g a  ude to my sto y. |
+| Actually sayi g my pa t e 's  ame du i g sex. |
+| Addi g "a d shit" to se te ces to sou d less white. |
+| Adulti g classes. |
+| Almost expe ie ci g co seque ces. |
+| A chovies. |
+| A othe  goddam   ustic-looki g b ewpub. |
+| A timala ial-i duced halluci atio s |
+| Apologizi g without k owi g what I'm apologizi g fo . |
+| A mi g the homeless. |
+| A mpit he pes. |
+| A tificial i semi atio . |
+| Assmebli g a  IKEA wa d obe. |
+| Atte di g a No th Ko ea summit with the P eside t a d De is Rodma . |
+| Att acti g lite ally the wo st people. |
+| Att active me  with i substa tial dicks. |
+| Avoidi g eye co tact u less it will lead to fucki g. |
+| Backpacki g i  New Zeala d, fucki g a Hobbit. |
+| Ba a a milk. |
+| Ba o  T ump. |
+| Bei g a male a d  eedi g co sta t  eassu a ce that I'm  ot acti g gay. |
+| Bei g a mothe fucki g me maid. |
+| Bei g completely u employable. |
+| Bei g i  a bad mood fo  so lo g that this is just who I am  ow. |
+| Bei g ki kshamed o  social media. |
+| Bei g passively-agg essive o  social media. |
+| Bei g p oud of taki g a lo g  ap. |
+| Big dick e e gy. |
+| Bi ge-shoppi g. |
+| Biti g  ipples. |
+| Blami g all salty text messages o  autoco ect. |
+| Blami g eve yo e else fo  eve ythi g. |
+| Blissfully ig o a t. |
+| Blowi g bubbles i  the bath with a st aw i stead of fo ki g out fo   eal bubbles. |
+| Boko Ha am. |
+| Bo di g with my Roomba. |
+| Bo di g with someo e ove  ou  desi e to ba g a membe  of the Royal Family. |
+| B aci g fo  hea tb eak befo e ope i g the f idge to see if my  oommate ate my leftove s. |
+| B aggi g about easti g ass but  efusi g to eat pi eapple o  pizza. |
+| B i gi g cocai e to a baby showe . |
+| Buildi g a  uclea  bu ke  at my pa e ts' house. |
+| Bu i g i  Adulthood Hell. |
+| Bu i g my  eighbo 's house dow  to keep the  e t low. |
+| Busti g a  ut. |
+| Calli g the cops o  my ow  pa ty because I'm ti ed. |
+| Cashie s talki g to me about thei  stepchild e . |
+| Celeb ati g pe so al achieveme ts with video games. |
+| Cha gi g my bedsheets. |
+| Cha gi g my dog back  e t. |
+| Checki g my ba k bala ce. |
+| Checki g out of life. |
+| Climbi g a mou tai . |
+| Clocki g out of wo k. |
+| Closi g my eyes a d thi ki g about dick. |
+| Comi g home, u wi di g, a d bi ge-watchi g a  e ti e TV se ies. |
+| Comme ti g with agg essive memes o  Ma k Zucke be g's posts. |
+| Competitive eati g. |
+| Complime ti g someo e's d ess se se i  pe so  while blasti g thei  poo  taste o  social media. |
+| Co sta tly co sumi g co te t. |
+| Co sta tly maki g pla s with my pa t e  to psotpo e b eaki g up. |
+| Co vi ci g my f ie d I watched the video he sha ed. |
+| Co vi ci g my  oommate I'm  ot a slob ass piece of shit. |
+| Cooki g, se vi g, a d smoki g meth. |
 | Covfefe. |
-| Creating perfect camel toe. |
-| Crying in the fetal position. |
-| cunninglus |
-| Cutting coupons for ramen noodles. |
-| Danny DeVito. |
-| Day-drinking and using power tools. |
-| Deep-frying leftover pizza. |
-| Describing my beer belly as "thicc". |
-| Destigmatizing alcoholism. |
-| Disappointment. |
-| Discussing coconuts' migratory patterns. |
+| C eati g pe fect camel toe. |
+| C yi g i  the fetal positio . |
+| cu i glus |
+| Cutti g coupo s fo   ame   oodles. |
+| Da y DeVito. |
+| Day-d i ki g a d usi g powe  tools. |
+| Deep-f yi g leftove  pizza. |
+| Desc ibi g my bee  belly as "thicc". |
+| Destigmatizi g alcoholism. |
+| Disappoi tme t. |
+| Discussi g coco uts' mig ato y patte s. |
 | Dope. |
-| Downplaying my hilariousness. |
-| Dreaming about Obama. |
-| Drinking a whole bottle of red wine for the antioxidants. |
-| Drinking wine in bed while watching cartoons. |
-| Driving off a bridge in the hopes of getting a few days off. |
-| Driving without swearing. |
-| Dwayne "The Rock" Johnson's acting career. |
-| Dying from a preventable illness. |
-| Eaing gluten unapologetically. |
-| Earwax sculpting. |
-| Eating a $2 McDonald's meal. |
-| Eating a moldy fruit because it's still organic. |
-| Eating a single tomato in the dark. |
-| Eating a whole head of lettuce like an apple. |
-| Eating anxiety sandwiches. |
-| Eating magic mushrooms and laughing at my dad watching Fox News. |
-| Eating my best friend's placenta. |
-| Eating my partenr's fries even though I could have odered my own. |
-| Eating Nutella for breakfast. |
-| Eating squirrels. |
-| Eating sushi in a dance pit. |
-| Edible porcupines. |
+| Dow playi g my hila ious ess. |
+| D eami g about Obama. |
+| D i ki g a whole bottle of  ed wi e fo  the a tioxida ts. |
+| D i ki g wi e i  bed while watchi g ca too s. |
+| D ivi g off a b idge i  the hopes of getti g a few days off. |
+| D ivi g without swea i g. |
+| Dway e "The Rock" Joh so 's acti g ca ee . |
+| Dyi g f om a p eve table ill ess. |
+| Eai g glute  u apologetically. |
+| Ea wax sculpti g. |
+| Eati g a $2 McDo ald's meal. |
+| Eati g a moldy f uit because it's still o ga ic. |
+| Eati g a si gle tomato i  the da k. |
+| Eati g a whole head of lettuce like a  apple. |
+| Eati g a xiety sa dwiches. |
+| Eati g magic mush ooms a d laughi g at my dad watchi g Fox News. |
+| Eati g my best f ie d's place ta. |
+| Eati g my pa te 's f ies eve  though I could have ode ed my ow . |
+| Eati g Nutella fo  b eakfast. |
+| Eati g squi els. |
+| Eati g sushi i  a da ce pit. |
+| Edible po cupi es. |
 | Edibles. |
-| Endless fidget spinning. |
-| Erection sword fighting. |
-| Erotic asphyxiation. |
-| Establishing communism. |
-| Experiencing horrible hormonal side-effects from birth control that are still better than using condoms. |
-| Expressing my existential hell through memes. |
-| Extinguishing fires with vodka. |
-| Facebooking while drinking. |
-| Faith in humanity. |
-| Falling pregnant. |
-| Fantasizing about Ruth Bader Ginsberg. |
-| Fantasizing more about seleep than sex. |
-| Feeling a sense of futility while shaving my pubes. |
-| Feeling over the hill at 22. |
-| Feigning interest in others. |
-| Fellowship in Christ. |
-| Female ejaculation. |
-| Finding a small family of racoons living in my sink. |
-| Finding a sugar daddy. |
-| Finding my keys. |
-| Finding my old scene pics from MySpace. |
-| Finding out that fabric softener isn't detergent. |
-| Finding snacks in my cleavage. |
-| Finding thin layers of grease on all of my devices. |
-| Fishing for compliments. |
-| Five shots of coffee mixed with 100g of sugar and two shots of liquor. |
-| Flinging myself from a cliff overlooking the sea. |
-| Food trucks. |
+| E dless fidget spi i g. |
+| E ectio  swo d fighti g. |
+| E otic asphyxiatio . |
+| Establishi g commu ism. |
+| Expe ie ci g ho ible ho mo al side-effects f om bi th co t ol that a e still bette  tha  usi g co doms. |
+| Exp essi g my existe tial hell th ough memes. |
+| Exti guishi g fi es with vodka. |
+| Facebooki g while d i ki g. |
+| Faith i  huma ity. |
+| Falli g p eg a t. |
+| Fa tasizi g about Ruth Bade  Gi sbe g. |
+| Fa tasizi g mo e about seleep tha  sex. |
+| Feeli g a se se of futility while shavi g my pubes. |
+| Feeli g ove  the hill at 22. |
+| Feig i g i te est i  othe s. |
+| Fellowship i  Ch ist. |
+| Female ejaculatio . |
+| Fi di g a small family of  acoo s livi g i  my si k. |
+| Fi di g a suga  daddy. |
+| Fi di g my keys. |
+| Fi di g my old sce e pics f om MySpace. |
+| Fi di g out that fab ic softe e  is 't dete ge t. |
+| Fi di g s acks i  my cleavage. |
+| Fi di g thi  laye s of g ease o  all of my devices. |
+| Fishi g fo  complime ts. |
+| Five shots of coffee mixed with 100g of suga  a d two shots of liquo . |
+| Fli gi g myself f om a cliff ove looki g the sea. |
+| Food t ucks. |
 | Fuckboys. |
-| Furiously masturbating. |
-| Furiously pirating movies and music. |
-| Gender-neutral pronouns. |
-| Getting action at the TSA. |
-| Getting all the good dick. |
-| Getting in a knockout fight in Walmart. |
-| Getting in a Twitter beef with the president. |
-| Getting mad at people for not responding within 12 minutes. |
-| Getting my dominatrix career off the ground. |
-| Getting no likes on what I thought was an incredibly on-point post. |
-| Getting pulled over for sexting and driving. |
-| Getting roasted by a distant relative on social media. |
-| Getting together with old friends and masturbating together. |
-| Getting turnt up. |
-| Going for a hike while watching YouTube on my phone. |
-| Going to a festival and watching absolutely zero bands. |
-| Going to extreme lengths to convince my boss I'm in hospital. |
-| Gonorrhoea... gift wrapped |
-| Harvesting lint from bodily crevices. |
-| Having a great work ethic in video games and nothing else. |
-| Having a house to myself. |
-| Having a panic attack in a grocery store. |
-| Having a relaxing night deciding what show to watch and choosing nothing. |
-| Having my credit card declined. |
-| Hiding hotdogs in my pocket as a treat for later. |
-| Hillary Clinton's death stare. |
+| Fu iously mastu bati g. |
+| Fu iously pi ati g movies a d music. |
+| Ge de - eut al p o ou s. |
+| Getti g actio  at the TSA. |
+| Getti g all the good dick. |
+| Getti g i  a k ockout fight i  Walma t. |
+| Getti g i  a Twitte  beef with the p eside t. |
+| Getti g mad at people fo   ot  espo di g withi  12 mi utes. |
+| Getti g my domi at ix ca ee  off the g ou d. |
+| Getti g  o likes o  what I thought was a  i c edibly o -poi t post. |
+| Getti g pulled ove  fo  sexti g a d d ivi g. |
+| Getti g  oasted by a dista t  elative o  social media. |
+| Getti g togethe  with old f ie ds a d mastu bati g togethe . |
+| Getti g tu t up. |
+| Goi g fo  a hike while watchi g YouTube o  my pho e. |
+| Goi g to a festival a d watchi g absolutely ze o ba ds. |
+| Goi g to ext eme le gths to co vi ce my boss I'm i  hospital. |
+| Go o hoea... gift w apped |
+| Ha vesti g li t f om bodily c evices. |
+| Havi g a g eat wo k ethic i  video games a d  othi g else. |
+| Havi g a house to myself. |
+| Havi g a pa ic attack i  a g oce y sto e. |
+| Havi g a  elaxi g  ight decidi g what show to watch a d choosi g  othi g. |
+| Havi g my c edit ca d decli ed. |
+| Hidi g hotdogs i  my pocket as a t eat fo  late . |
+| Hilla y Cli to 's death sta e. |
 | Hot jizz. |
-| Hunting unicorns in Alaska. |
-| Ignoring emails but instantly reponding to texts. |
-| Imagining scenarios in which I'm funny. |
-| Inexplicable bruises. |
-| Injecting my insecure chihuahua with steroids. |
-| Inspecting my own asshole with a mirror. |
-| Instagram husbands. |
-| Intense staring contests with cats. |
-| Inventing new curse words. |
-| Jeff Price. |
-| Jesus and tequila. |
-| Joining a book club. |
-| Joining ISIS for the job security. |
-| Joyriding onto a traffic island. |
-| Judging someone called Kyle just because his name is Kyle... |
-| Justin Bieber's secret toupee. |
-| Knowing every detail from Harry Potter but not knowing how to boil an egg. |
-| Kony 2012. |
-| Lacking in major cognitive function. |
-| Learning a language just so the Duolingo owl can keep me company. |
-| Leaving MDMA out for Santa. |
-| Leftover food showing signs of snetience. |
-| Lending my parents money to pay for meds. |
-| Liking a comment my ex tagged their new partner in. |
-| Limiting all sensory experiences to chocolate and YouTube. |
-| Listening to my nephew's abysmal singing. |
+| Hu ti g u ico s i  Alaska. |
+| Ig o i g emails but i sta tly  epo di g to texts. |
+| Imagi i g sce a ios i  which I'm fu y. |
+| I explicable b uises. |
+| I jecti g my i secu e chihuahua with ste oids. |
+| I specti g my ow  asshole with a mi o . |
+| I stag am husba ds. |
+| I te se sta i g co tests with cats. |
+| I ve ti g  ew cu se wo ds. |
+| Jeff P ice. |
+| Jesus a d tequila. |
+| Joi i g a book club. |
+| Joi i g ISIS fo  the job secu ity. |
+| Joy idi g o to a t affic isla d. |
+| Judgi g someo e called Kyle just because his  ame is Kyle... |
+| Justi  Biebe 's sec et toupee. |
+| K owi g eve y detail f om Ha y Potte  but  ot k owi g how to boil a  egg. |
+| Ko y 2012. |
+| Lacki g i  majo  cog itive fu ctio . |
+| Lea i g a la guage just so the Duoli go owl ca  keep me compa y. |
+| Leavi g MDMA out fo  Sa ta. |
+| Leftove  food showi g sig s of s etie ce. |
+| Le di g my pa e ts mo ey to pay fo  meds. |
+| Liki g a comme t my ex tagged thei   ew pa t e  i . |
+| Limiti g all se so y expe ie ces to chocolate a d YouTube. |
+| Liste i g to my  ephew's abysmal si gi g. |
 | Lit AF. |
-| Long-distance squirting. |
-| Lying about literally everything on a rental application. |
-| Lying in my own filth. |
-| Making a list of people to kill. |
-| Making a shameless knockoff card game. |
-| Making fun of pumpkin spice but lowkey still enjoying it. |
-| Making sex eyes at a police officer. |
-| Masturbating like nobody's watching. |
-| Masturbating to profile pictures. |
+| Lo g-dista ce squi ti g. |
+| Lyi g about lite ally eve ythi g o  a  e tal applicatio . |
+| Lyi g i  my ow  filth. |
+| Maki g a list of people to kill. |
+| Maki g a shameless k ockoff ca d game. |
+| Maki g fu  of pumpki  spice but lowkey still e joyi g it. |
+| Maki g sex eyes at a police office . |
+| Mastu bati g like  obody's watchi g. |
+| Mastu bati g to p ofile pictu es. |
 | Medicated all the time. |
-| Meditation classes. |
-| Mentally undressing my therapist. |
-| Microbreweries. |
-| Microwaving whole cans of soup. |
-| Miniature horses. |
-| Mompreneurs. |
-| Mosquitoes sucking my will to live. |
-| Motorcycle training. |
-| Moving to Serbia and living off $3 a day. |
-| My coping mechanisms creating more problems than the thing I'm trying to cope with. |
-| Nodding and shouting "Yeah!" at my parent's advice while knowing I'll ignore it. |
-| Not having to deal with people's shit. |
-| Offering emotional support then cutting off all contact. |
-| Optimus Prime having sex with a dishwasher. |
-| Ordering a $200 watch because of the free shipping. |
-| Our Dear Supreme Leader. |
-| Overactive glands. |
-| Overanalyzing everything. |
-| Overthrowing capitalism. |
-| Paranormal activity. |
-| Patriotically standing during the national anthem. |
-| Peace and quiet. |
+| Meditatio  classes. |
+| Me tally u d essi g my the apist. |
+| Mic ob ewe ies. |
+| Mic owavi g whole ca s of soup. |
+| Mi iatu e ho ses. |
+| Momp e eu s. |
+| Mosquitoes sucki g my will to live. |
+| Moto cycle t ai i g. |
+| Movi g to Se bia a d livi g off $3 a day. |
+| My copi g mecha isms c eati g mo e p oblems tha  the thi g I'm t yi g to cope with. |
+| Noddi g a d shouti g "Yeah!" at my pa e t's advice while k owi g I'll ig o e it. |
+| Not havi g to deal with people's shit. |
+| Offe i g emotio al suppo t the  cutti g off all co tact. |
+| Optimus P ime havi g sex with a dishwashe . |
+| O de i g a $200 watch because of the f ee shippi g. |
+| Ou  Dea  Sup eme Leade . |
+| Ove active gla ds. |
+| Ove a alyzi g eve ythi g. |
+| Ove th owi g capitalism. |
+| Pa a o mal activity. |
+| Pat iotically sta di g du i g the  atio al a them. |
+| Peace a d quiet. |
 | Pee-pee juice. |
-| Peeing in my shower. |
-| Peeing in someone else's shower. |
-| Plunging my head into a vat of organic coconut oil. |
-| Pointing out insignificant inaccuracies in people's jokes. |
-| Post Malone. |
-| Pre-existing conditions. |
-| Premature foreclosure. |
-| Preparing the guillotine. |
-| Pretending I'm not one accident away from complete bankruptcy. |
-| Pretending to agree then quietly seeing myself out. |
-| Pretending to be broke to get out of social events. |
-| Pretending to give a fuck. |
-| Pretending work is crazy to get oput of social events. |
-| Pronouncing the p in raspberry. |
-| Psoting selfies with my uglier friends. |
-| Putting on a serious voice. |
-| Putting on pants before noon. |
-| Putting other people's problems before my own. |
-| Pyramid schemes. |
-| Raging hormones. |
-| Ramen noodles. |
-| Reaching sexual climax. |
-| Reading a headline about a trophy hunter being eaten by hyenas. |
-| Realizing I won't be able to retire until I'm 85. |
-| Realizing that today will require underwear. |
-| Receiving participation trophies. |
-| Receiving the weinering of a lifetime. |
-| Recommending self-help books I've never read. |
-| Reevaluating everything every day. |
-| Referring to Avril Lavigne as "classic rock". |
-| Renewable dick energy. |
-| Rereading my own hilarious posts. |
-| Responding to everything I hear with "Yeet". |
-| Resting my balls on the table. |
-| Resting my balls on the table. |
-| Resurfacing in a new country with a foreign name. |
-| Riding a dildo with the door open. |
-| Riding my menstraul cycle. |
-| Rimming. |
-| Ripping fat vapes. |
-| Rubbing my crotch up and down a street pole for change. |
-| Saying I'm too tired to go out, but then staying up till 4 a.m. on my phone. |
-| Saying no to drugs. |
-| Saying yes to drugs. |
-| Screaming at my barista. |
-| Screaming at my pile of dirty clothes. |
-| Scrolling on my phone until my eyes bleed. |
-| Seeing my Professor on PornHub. |
+| Peei g i  my showe . |
+| Peei g i  someo e else's showe . |
+| Plu gi g my head i to a vat of o ga ic coco ut oil. |
+| Poi ti g out i sig ifica t i accu acies i  people's jokes. |
+| Post Malo e. |
+| P e-existi g co ditio s. |
+| P ematu e fo eclosu e. |
+| P epa i g the guilloti e. |
+| P ete di g I'm  ot o e accide t away f om complete ba k uptcy. |
+| P ete di g to ag ee the  quietly seei g myself out. |
+| P ete di g to be b oke to get out of social eve ts. |
+| P ete di g to give a fuck. |
+| P ete di g wo k is c azy to get oput of social eve ts. |
+| P o ou ci g the p i   aspbe y. |
+| Psoti g selfies with my uglie  f ie ds. |
+| Putti g o  a se ious voice. |
+| Putti g o  pa ts befo e  oo . |
+| Putti g othe  people's p oblems befo e my ow . |
+| Py amid schemes. |
+| Ragi g ho mo es. |
+| Rame   oodles. |
+| Reachi g sexual climax. |
+| Readi g a headli e about a t ophy hu te  bei g eate  by hye as. |
+| Realizi g I wo 't be able to  eti e u til I'm 85. |
+| Realizi g that today will  equi e u de wea . |
+| Receivi g pa ticipatio  t ophies. |
+| Receivi g the wei e i g of a lifetime. |
+| Recomme di g self-help books I've  eve   ead. |
+| Reevaluati g eve ythi g eve y day. |
+| Refe i g to Av il Lavig e as "classic  ock". |
+| Re ewable dick e e gy. |
+| Re eadi g my ow  hila ious posts. |
+| Respo di g to eve ythi g I hea  with "Yeet". |
+| Resti g my balls o  the table. |
+| Resti g my balls o  the table. |
+| Resu faci g i  a  ew cou t y with a fo eig   ame. |
+| Ridi g a dildo with the doo  ope . |
+| Ridi g my me st aul cycle. |
+| Rimmi g. |
+| Rippi g fat vapes. |
+| Rubbi g my c otch up a d dow  a st eet pole fo  cha ge. |
+| Sayi g I'm too ti ed to go out, but the  stayi g up till 4 a.m. o  my pho e. |
+| Sayi g  o to d ugs. |
+| Sayi g yes to d ugs. |
+| Sc eami g at my ba ista. |
+| Sc eami g at my pile of di ty clothes. |
+| Sc olli g o  my pho e u til my eyes bleed. |
+| Seei g my P ofesso  o  Po Hub. |
 | Self-pity. |
-| Selling a kidney to pay for a doctor's appointment. |
-| Selling my used underwear on Craigslist. |
-| Sexting while eating a tuna sandwich. |
-| Sexual urges at inappropriate times. |
-| Shaving appendages. |
-| Shaving eyebrows, drawing new eyebrows on. |
-| Shoplifting, but only from Walmart. |
-| Showering more than once a week. |
-| Shrouding my human frailties with Snapchat puppy filters. |
-| Singing "Wheels On The Bus" 31 times. |
-| Sitting on someone's face. |
-| Sleeping as deeply as God did during the Holocaust. |
-| Sloppy and sensual handshakes. |
-| Small dick energy. |
-| Smoking weed out of various fruits. |
-| Smoking weed with Elon Musk. |
-| Spending all my money on avocado toast. |
-| Spending September to November sleeping with a pumpkin at night. |
-| Staining my t-shirt from sweating while eating. |
-| Stealing Taco Bell hot sauce packets. |
-| Student loans. |
-| Surrounding myself with idiots to feel more mature. |
-| Taco crumbs. |
-| Tagging my ex in memes against their will. |
-| Taking a bath with my dog. |
-| Taking a deep breath, going for a walk, and never coming back. |
-| Taking an unrequested vow of celibacy. |
-| Taking the high road when I really want to punch you in the face. |
-| Talking smack about everything I see. |
-| Talking to myself. |
-| Tall, dark, and hung. |
-| Tangling my headphones before they're even out of the box. |
-| Teaching a Baby Boomer to internet. |
-| Ted Cruz's warm, trustworthy smile. |
-| Telling friends I'm "working on a screenplay". |
-| Texting "lol" to express self-consciousness. |
-| The Impossible Burger. |
-| The next Great Recession. |
-| The President's mushroomy genitals. |
-| The Second Amendment. |
+| Selli g a kid ey to pay fo  a docto 's appoi tme t. |
+| Selli g my used u de wea  o  C aigslist. |
+| Sexti g while eati g a tu a sa dwich. |
+| Sexual u ges at i app op iate times. |
+| Shavi g appe dages. |
+| Shavi g eyeb ows, d awi g  ew eyeb ows o . |
+| Shoplifti g, but o ly f om Walma t. |
+| Showe i g mo e tha  o ce a week. |
+| Sh oudi g my huma  f ailties with S apchat puppy filte s. |
+| Si gi g "Wheels O  The Bus" 31 times. |
+| Sitti g o  someo e's face. |
+| Sleepi g as deeply as God did du i g the Holocaust. |
+| Sloppy a d se sual ha dshakes. |
+| Small dick e e gy. |
+| Smoki g weed out of va ious f uits. |
+| Smoki g weed with Elo  Musk. |
+| Spe di g all my mo ey o  avocado toast. |
+| Spe di g Septembe  to Novembe  sleepi g with a pumpki  at  ight. |
+| Stai i g my t-shi t f om sweati g while eati g. |
+| Steali g Taco Bell hot sauce packets. |
+| Stude t loa s. |
+| Su ou di g myself with idiots to feel mo e matu e. |
+| Taco c umbs. |
+| Taggi g my ex i  memes agai st thei  will. |
+| Taki g a bath with my dog. |
+| Taki g a deep b eath, goi g fo  a walk, a d  eve  comi g back. |
+| Taki g a  u equested vow of celibacy. |
+| Taki g the high  oad whe  I  eally wa t to pu ch you i  the face. |
+| Talki g smack about eve ythi g I see. |
+| Talki g to myself. |
+| Tall, da k, a d hu g. |
+| Ta gli g my headpho es befo e they' e eve  out of the box. |
+| Teachi g a Baby Boome  to i te et. |
+| Ted C uz's wa m, t ustwo thy smile. |
+| Telli g f ie ds I'm "wo ki g o  a sc ee play". |
+| Texti g "lol" to exp ess self-co scious ess. |
+| The Impossible Bu ge . |
+| The  ext G eat Recessio . |
+| The P eside t's mush oomy ge itals. |
+| The Seco d Ame dme t. |
 | The smell of pussy. |
-| Thinking a stomach ache might be cancer. |
-| Throwing expired greens in the trash. |
-| Throwing silverware at a waitress. |
+| Thi ki g a stomach ache might be ca ce . |
+| Th owi g expi ed g ee s i  the t ash. |
+| Th owi g silve wa e at a wait ess. |
 | Tide pods. |
-| Totaling a manual-transmission car two seconds after trying to drive it. |
-| Training crows to collect change. |
-| Trying to figure out how the fuck I hurt my back. |
-| Trying to make it as a SoundCloud rapper. |
-| Underachieving. |
-| Unfollowing people in real life. |
-| Upcycling my DivaCup. |
-| Using food stamps on steak and lobster. |
-| Using insults on the internet that I'd never dream of saying out loud. |
-| Using internet slang that's been out of date for five months now. |
-| Vaginal weightlifting. |
-| Vanilla lattes. |
-| Vomiting in my best friend's hair. |
-| Voting got a thrid-party. |
-| Waiting for the apocalypse to run its course. |
-| Washing dishes and sobbing. |
-| Watching my mom's mind unravel as she folds laundry. |
-| Watching yoga and  eating cookies. |
-| Watermelon and collard greens. |
-| Wearing a hazmat suit to wash the dishes. |
-| Wearing a necklace above my enormous breast implants. |
-| Wearing matching outfits with my cat. |
-| Wearing matching socks. |
-| Wearing the same clothes for a week. |
-| Weed stores. |
-| Whatever, who even gives a shit. |
-| Winning. |
+| Totali g a ma ual-t a smissio  ca  two seco ds afte  t yi g to d ive it. |
+| T ai i g c ows to collect cha ge. |
+| T yi g to figu e out how the fuck I hu t my back. |
+| T yi g to make it as a Sou dCloud  appe . |
+| U de achievi g. |
+| U followi g people i   eal life. |
+| Upcycli g my DivaCup. |
+| Usi g food stamps o  steak a d lobste . |
+| Usi g i sults o  the i te et that I'd  eve  d eam of sayi g out loud. |
+| Usi g i te et sla g that's bee  out of date fo  five mo ths  ow. |
+| Vagi al weightlifti g. |
+| Va illa lattes. |
+| Vomiti g i  my best f ie d's hai . |
+| Voti g got a th id-pa ty. |
+| Waiti g fo  the apocalypse to  u  its cou se. |
+| Washi g dishes a d sobbi g. |
+| Watchi g my mom's mi d u avel as she folds lau d y. |
+| Watchi g yoga a d  eati g cookies. |
+| Wate melo  a d colla d g ee s. |
+| Wea i g a hazmat suit to wash the dishes. |
+| Wea i g a  ecklace above my e o mous b east impla ts. |
+| Wea i g matchi g outfits with my cat. |
+| Wea i g matchi g socks. |
+| Wea i g the same clothes fo  a week. |
+| Weed sto es. |
+| Whateve , who eve  gives a shit. |
+| Wi i g. |
 | Witty comebacks. |
-| Wondering why everyone's farts smell bad except mine. |
+| Wo de i g why eve yo e's fa ts smell bad except mi e. |
 
 |Total amount: 350|
 |---|

@@ -43,88 +43,88 @@ Answers amount: 80
 |---|
 
 ### Answers
-| Question |
+| Answers |
 |---|
-| A bag of hammers. |
-| A bag of tainted shrimp |
+| A bag of hamme s. |
+| A bag of tai ted sh imp |
 | A bucket of fish heads. |
-| A fig tree. |
-| A girl. |
-| A lemur |
+| A fig t ee. |
+| A gi l. |
+| A lemu  |
 | A meat whistle. |
-| A miscarried deployment pregnancy. |
-| A nice cup of tea. |
-| A peanut butter and KY Jelly sandwich. |
-| A racist uncle |
-| A Shamrock Shake |
-| A soggy bowl of corn flakes |
-| A specially trained robot that tortures annoying family members. |
-| A Stetson and set of spurs. |
-| a tacky fashion sense |
-| A turd burglar |
-| A whole cheese pizza just for me. |
-| Allahu Akbar! |
-| Am man crush. |
-| An amber necklace. |
-| An asshole with dreadlocks. |
-| Argentine Tango. |
-| Battlefield amputations. |
-| Being a sore loser |
-| Being caught masturbating by your Mum |
-| Being just dark enough to be labeled a terrorist. |
-| Being really unprepared for Picture Day. |
-| Bill Fucking Murray. |
-| Books I'll never read |
-| Broken condoms |
-| Crotchless knickers |
-| Crusty Boogers |
-| Diaper blowouts |
+| A misca ied deployme t p eg a cy. |
+| A  ice cup of tea. |
+| A pea ut butte  a d KY Jelly sa dwich. |
+| A  acist u cle |
+| A Sham ock Shake |
+| A soggy bowl of co  flakes |
+| A specially t ai ed  obot that to tu es a oyi g family membe s. |
+| A Stetso  a d set of spu s. |
+| a tacky fashio  se se |
+| A tu d bu gla  |
+| A whole cheese pizza just fo  me. |
+| Allahu Akba ! |
+| Am ma  c ush. |
+| A  ambe   ecklace. |
+| A  asshole with d eadlocks. |
+| A ge ti e Ta go. |
+| Battlefield amputatio s. |
+| Bei g a so e lose  |
+| Bei g caught mastu bati g by you  Mum |
+| Bei g just da k e ough to be labeled a te o ist. |
+| Bei g  eally u p epa ed fo  Pictu e Day. |
+| Bill Fucki g Mu ay. |
+| Books I'll  eve   ead |
+| B oke  co doms |
+| C otchless k icke s |
+| C usty Booge s |
+| Diape  blowouts |
 | Dick pics. |
 | Dickbutt. |
 | Dogs |
-| Doing things to Ma, in front of Pa. |
-| Freeing a fart from its butt prison. |
-| Getting white girl wasted. |
-| going solo |
-| Hillary Clinton's wig. |
-| Hot Sister Thursdays at the Lackland BX. |
-| Iggy Azalea's appropriation of black cultre. |
-| Irrational optimism. |
-| it'll look big in your hands |
-| Kinky porn |
-| Me luck Charms! |
+| Doi g thi gs to Ma, i  f o t of Pa. |
+| F eei g a fa t f om its butt p iso . |
+| Getti g white gi l wasted. |
+| goi g solo |
+| Hilla y Cli to 's wig. |
+| Hot Siste  Thu sdays at the Lackla d BX. |
+| Iggy Azalea's app op iatio  of black cult e. |
+| I atio al optimism. |
+| it'll look big i  you  ha ds |
+| Ki ky po  |
+| Me luck Cha ms! |
 | MORTAL KOMBAT. |
 | Nutella. |
-| One Night in Paris. |
+| O e Night i  Pa is. |
 | ONLY WRITING IN ALL CAPS. |
 | Police 10 7 |
-| Quietly tucking my penis under my belt. |
-| Santorum: a frothy mixture of semen and fecal matter. |
-| Sharing a bank account. |
-| Sheriff Joe Arpaio. |
+| Quietly tucki g my pe is u de  my belt. |
+| Sa to um: a f othy mixtu e of seme  a d fecal matte . |
+| Sha i g a ba k accou t. |
+| She iff Joe A paio. |
 | Shit. |
-| Shut the fuck up, Carl! |
-| Sitting at the end of the pew so late people can't get in. |
-| Skateboard road rash. |
-| Spending $12,000 a year on dildos |
-| Stank Dick. |
-| Sugar Bear™ |
+| Shut the fuck up, Ca l! |
+| Sitti g at the e d of the pew so late people ca 't get i . |
+| Skateboa d  oad  ash. |
+| Spe di g $12,000 a yea  o  dildos |
+| Sta k Dick. |
+| Suga  Bea ™ |
 | The cockpocalypse. |
-| The diminishing purity of the white race. |
-| The MWR tour you're no longer allowed to join. |
-| The pooping position. |
-| The scientific theory that gayness is caused by being bitten by a radioactive gay guy. |
-| The sound of Adam Vaughan giving birth to a child |
-| The Thong Song. |
-| the wetter, the better |
+| The dimi ishi g pu ity of the white  ace. |
+| The MWR tou  you' e  o lo ge  allowed to joi . |
+| The poopi g positio . |
+| The scie tific theo y that gay ess is caused by bei g bitte  by a  adioactive gay guy. |
+| The sou d of Adam Vaugha  givi g bi th to a child |
+| The Tho g So g. |
+| the wette , the bette  |
 | The youth. |
-| they don't pay me enough for this |
-| This old lady next to me who won't stop farting. |
-| Tinder. |
-| Tyra Bank's fat years. |
-| Winking arseholes |
-| You know, one of them sorts of things. |
-| Your boyfriend revealing Cupid isn't the only fairy on Valentine's Day. |
+| they do 't pay me e ough fo  this |
+| This old lady  ext to me who wo 't stop fa ti g. |
+| Ti de . |
+| Ty a Ba k's fat yea s. |
+| Wi ki g a seholes |
+| You k ow, o e of them so ts of thi gs. |
+| You  boyf ie d  eveali g Cupid is 't the o ly fai y o  Vale ti e's Day. |
 
 |Total amount: 80|
 |---|

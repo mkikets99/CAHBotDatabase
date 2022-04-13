@@ -20,29 +20,29 @@ Answers amount: 21
 |---|
 
 ### Answers
-| Question |
+| Answers |
 |---|
-| A complete inability to understand anyone else's perspective. |
-| A fun, sexy time at the nude beach. |
-| A man from Craigslist. |
-| A night of Taco Bell and anal sex. |
-| A respectful discussion of race and gender on the Internet. |
+| A complete i ability to u de sta d a yo e else's pe spective. |
+| A fu , sexy time at the  ude beach. |
+| A ma  f om C aigslist. |
+| A  ight of Taco Bell a d a al sex. |
+| A  espectful discussio  of  ace a d ge de  o  the I te et. |
 | Cat massage. |
-| Destroying Dick Cheney's last horcrux. |
-| Game of Thrones spoilers. |
-| Getting teabagged by a fifth grader in Call of Duty. |
-| Goats screaming like people. |
-| Googling. |
-| Internet porn analysis paralysis. |
-| Matching with Mom on Tinder. |
-| My browser history. |
-| My privileged white penis. |
-| Pretending to be black. |
+| Dest oyi g Dick Che ey's last ho c ux. |
+| Game of Th o es spoile s. |
+| Getti g teabagged by a fifth g ade  i  Call of Duty. |
+| Goats sc eami g like people. |
+| Googli g. |
+| I te et po  a alysis pa alysis. |
+| Matchi g with Mom o  Ti de . |
+| My b owse  histo y. |
+| My p ivileged white pe is. |
+| P ete di g to be black. |
 | Smash Mouth. |
-| Taking a shit while running at full speed. |
-| That thing on the Internet everyone's talking about. |
-| Three years of semen in a shoebox. |
-| Youtube comments. |
+| Taki g a shit while  u i g at full speed. |
+| That thi g o  the I te et eve yo e's talki g about. |
+| Th ee yea s of seme  i  a shoebox. |
+| Youtube comme ts. |
 
 |Total amount: 21|
 |---|

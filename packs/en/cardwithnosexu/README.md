@@ -36,83 +36,83 @@ Answers amount: 75
 |---|
 
 ### Answers
-| Question |
+| Answers |
 |---|
-| [Player to your left]'s reproductive organ. |
-| A 100-pound teenager who thinks she's fat. |
-| A busty toddler. |
-| A concussed football player doing his best not to hit his wife. |
-| A constant, deafening queef. |
-| A crusty used Playboy. |
-| A heavy-set 14-year-old in yoga pants. |
-| A hickey right on the ball sack. |
-| A high-school dropout who knows he's a fucking idiot who'll never amount to anything. |
+| [Playe  to you  left]'s  ep oductive o ga . |
+| A 100-pou d tee age  who thi ks she's fat. |
+| A busty toddle . |
+| A co cussed football playe  doi g his best  ot to hit his wife. |
+| A co sta t, deafe i g queef. |
+| A c usty used Playboy. |
+| A heavy-set 14-yea -old i  yoga pa ts. |
+| A hickey  ight o  the ball sack. |
+| A high-school d opout who k ows he's a fucki g idiot who'll  eve  amou t to a ythi g. |
 | A lubed-up Wiffle Ball bat. |
-| A non-consensual boob touch that's acknowledged and awkwardly apologized for. |
-| A priest that's been molested. (Ironically not the other way around for once.) |
-| A wet dream nightmare. |
-| An angry gay man. |
-| An extremely up-close, high resolution picture of Will Smith's asshole. |
-| An industrial-grade fart. |
-| An overly sexualized cartoon character. |
-| Attempting to masturbate to ABC Family because you've already exhausted all the porn on the Internet. |
-| Averting your eyes from a naked toddler because you're afraid you'll like it. |
-| Being physically, mentally, and sexually addicted to Fruit Roll-Ups. |
-| Being so addicted to Cards Against Humanity that you buy third-party expansions because you got bored with the eleven hundred cards the game already has. |
-| Bits of history that were never recorded and therefore no one will ever know. Like Abraham Lincoln's penis size. |
-| Black guys that are just asking to be shot by police. |
-| Contracting HIV just to spread it. |
-| Cutting a hole out of the middle of your Bible to hide your condoms. |
-| Deep spanks. |
-| Dick so good, you have to crawl to work the next day. |
-| Douching your penis for equality. |
-| Fingering your girlfriend under the dinner table while meeting her parents for the first time. |
-| Gauging your foreskin. |
-| Getting sexual with the hole at the tip of a gun. |
-| Getting so excited from the joy of seeing your child on their first day of school that you get an erection. |
-| Getting turned on by the mystery of drinking milk without checking the expiration date. |
-| Giving your son hand jobs because your biggest fear as a dad is raising a homophobe. |
-| Having your middle-school boyfriend stick his tongue in your bellybutton to see if it feels like sex. |
-| Hiding your cum because you hear your parents pulling in. |
-| ISIS sympathizing. |
-| Jacking off. Going to sleep. Waking up. Jacking off again. |
-| Just doing hands stuff because you're waiting to turn 13 to have sex. |
-| Justin Bieber's naturally bald pubic area. |
-| Misshapen breasts. |
-| National Nude Hiking Day. |
-| Not being able to hear your porno because your parents are doing it too loud in the other room. |
-| Not deleting all your ex-girlfriend's nudes in case you get back together... at least that's what you tell yourself. |
+| A  o -co se sual boob touch that's ack owledged a d awkwa dly apologized fo . |
+| A p iest that's bee  molested. (I o ically  ot the othe  way a ou d fo  o ce.) |
+| A wet d eam  ightma e. |
+| A  a g y gay ma . |
+| A  ext emely up-close, high  esolutio  pictu e of Will Smith's asshole. |
+| A  i dust ial-g ade fa t. |
+| A  ove ly sexualized ca too  cha acte . |
+| Attempti g to mastu bate to ABC Family because you've al eady exhausted all the po  o  the I te et. |
+| Ave ti g you  eyes f om a  aked toddle  because you' e af aid you'll like it. |
+| Bei g physically, me tally, a d sexually addicted to F uit Roll-Ups. |
+| Bei g so addicted to Ca ds Agai st Huma ity that you buy thi d-pa ty expa sio s because you got bo ed with the eleve  hu d ed ca ds the game al eady has. |
+| Bits of histo y that we e  eve   eco ded a d the efo e  o o e will eve  k ow. Like Ab aham Li col 's pe is size. |
+| Black guys that a e just aski g to be shot by police. |
+| Co t acti g HIV just to sp ead it. |
+| Cutti g a hole out of the middle of you  Bible to hide you  co doms. |
+| Deep spa ks. |
+| Dick so good, you have to c awl to wo k the  ext day. |
+| Douchi g you  pe is fo  equality. |
+| Fi ge i g you  gi lf ie d u de  the di e  table while meeti g he  pa e ts fo  the fi st time. |
+| Gaugi g you  fo eski . |
+| Getti g sexual with the hole at the tip of a gu . |
+| Getti g so excited f om the joy of seei g you  child o  thei  fi st day of school that you get a  e ectio . |
+| Getti g tu ed o  by the myste y of d i ki g milk without checki g the expi atio  date. |
+| Givi g you  so  ha d jobs because you  biggest fea  as a dad is  aisi g a homophobe. |
+| Havi g you  middle-school boyf ie d stick his to gue i  you  bellybutto  to see if it feels like sex. |
+| Hidi g you  cum because you hea  you  pa e ts pulli g i . |
+| ISIS sympathizi g. |
+| Jacki g off. Goi g to sleep. Waki g up. Jacki g off agai . |
+| Just doi g ha ds stuff because you' e waiti g to tu  13 to have sex. |
+| Justi  Biebe 's  atu ally bald pubic a ea. |
+| Misshape  b easts. |
+| Natio al Nude Hiki g Day. |
+| Not bei g able to hea  you  po o because you  pa e ts a e doi g it too loud i  the othe   oom. |
+| Not deleti g all you  ex-gi lf ie d's  udes i  case you get back togethe ... at least that's what you tell you self. |
 | Nudes. |
 | Obese sex. |
-| Offensive 9/11 jokes. |
-| Performing gender reassignment surgeries with only YouTube as a guide. |
-| Performing sexual favors for the cashier because you forgot your coupons at home and they let you have the savings anyway. |
-| Purposely pooping a little during anal and then getting all embarrassed and acting like it was an accident. |
-| Purposely putting the empty milk gallon back into the fridge in hopes it'll finally push your suicidal roommate over the edge. |
-| Putting off your suicide because you can only think of 12 reasons. |
-| Saving a marriage with breast implants. |
-| Sharing a fetish with Hitler. |
-| Sleeping naked. |
-| Sleeping only with virgins because your penis is so small, you want to make sure they have nothing to compare it to. |
-| Spanking front to back. |
-| Taking so long to poop that your ass falls asleep and starts to tingle. |
-| Tasting your wife's boob milk. |
-| Taylor Swift trying to remember which boyfriend took her virginity. |
-| That one ISIS member who was put out of a job by the Samsung Galaxy Note 3. |
-| That one white card that sucks and sits in your hand the whole game. |
-| That thing where closet gay guys act like they hate gays because they really hate themselves. |
-| The 38,000 anal fisting videos on Porn Hub. |
-| The periodic table of elements, except all the little squares are replaced with dog porn. |
-| The scientific theory that gayness is caused by being bitten by a radioactive gay guy. |
-| The sexualization of disciplinary spanking. |
-| The straight agenda. |
-| The sturdy belief that Bigfoot is more likely to exist than a straight man vaping. |
-| The trash can where the doctor collects foreskins after circumcising babies. |
-| Tinkerbell's Tic-Tac tampons. |
-| Unintentional sexual abstinence. |
-| Using revenge porn to teach your dog not to piss on the carpet. |
-| Using the 15% you saved by switching to Geico to buy crack. |
-| Washing and reselling tampons. |
+| Offe sive 9/11 jokes. |
+| Pe fo mi g ge de   eassig me t su ge ies with o ly YouTube as a guide. |
+| Pe fo mi g sexual favo s fo  the cashie  because you fo got you  coupo s at home a d they let you have the savi gs a yway. |
+| Pu posely poopi g a little du i g a al a d the  getti g all emba assed a d acti g like it was a  accide t. |
+| Pu posely putti g the empty milk gallo  back i to the f idge i  hopes it'll fi ally push you  suicidal  oommate ove  the edge. |
+| Putti g off you  suicide because you ca  o ly thi k of 12  easo s. |
+| Savi g a ma iage with b east impla ts. |
+| Sha i g a fetish with Hitle . |
+| Sleepi g  aked. |
+| Sleepi g o ly with vi gi s because you  pe is is so small, you wa t to make su e they have  othi g to compa e it to. |
+| Spa ki g f o t to back. |
+| Taki g so lo g to poop that you  ass falls asleep a d sta ts to ti gle. |
+| Tasti g you  wife's boob milk. |
+| Taylo  Swift t yi g to  emembe  which boyf ie d took he  vi gi ity. |
+| That o e ISIS membe  who was put out of a job by the Samsu g Galaxy Note 3. |
+| That o e white ca d that sucks a d sits i  you  ha d the whole game. |
+| That thi g whe e closet gay guys act like they hate gays because they  eally hate themselves. |
+| The 38,000 a al fisti g videos o  Po  Hub. |
+| The pe iodic table of eleme ts, except all the little squa es a e  eplaced with dog po . |
+| The scie tific theo y that gay ess is caused by bei g bitte  by a  adioactive gay guy. |
+| The sexualizatio  of discipli a y spa ki g. |
+| The st aight age da. |
+| The stu dy belief that Bigfoot is mo e likely to exist tha  a st aight ma  vapi g. |
+| The t ash ca  whe e the docto  collects fo eski s afte  ci cumcisi g babies. |
+| Ti ke bell's Tic-Tac tampo s. |
+| U i te tio al sexual absti e ce. |
+| Usi g  eve ge po  to teach you  dog  ot to piss o  the ca pet. |
+| Usi g the 15% you saved by switchi g to Geico to buy c ack. |
+| Washi g a d  eselli g tampo s. |
 
 |Total amount: 75|
 |---|

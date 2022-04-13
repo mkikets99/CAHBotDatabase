@@ -41,98 +41,98 @@ Answers amount: 90
 |---|
 
 ### Answers
-| Question |
+| Answers |
 |---|
-| $20,000 trip from Honduras to Texas hiding in the back of the troka. |
-| 5 de Mayo celebrations. |
-| A drug-filled pinata. |
-| A fully equipped tunnel under the border. |
-| A new movie by Alejandro Gonzalez Inarritu about the Bad Hombres. |
-| A new shining Trump tower in Mexico. |
-| A pillow fight between Bad Hombres. |
-| A really bad Mexican soup opera. |
-| All kind of children are indeed left behind. |
-| An economy without Mexican labor. |
-| Bad Hombres infiltrating the border patrol. |
-| Bad Hombres offensive comments. |
-| Bad Hombres willing to work 80 hours a week. |
-| Baked beans. |
-| Beefy empanadas for 25 cents. |
-| Being afraid of the worm at the bottom of the tequila bottle. |
-| Being deported to Mexico after living 20 years in the U.S. |
-| Blaming the 1% for everything. |
-| Bloody Bull Fights with lots of celebration and tequila. |
-| Border Tax. |
-| Building a door in the wall. |
-| Building bridges rather than walls. |
-| Burrito masturbation technique. |
-| Cabron de mierda. |
-| Cheap Mexican porn. |
+| $20,000 t ip f om Ho du as to Texas hidi g i  the back of the t oka. |
+| 5 de Mayo celeb atio s. |
+| A d ug-filled pi ata. |
+| A fully equipped tu el u de  the bo de . |
+| A  ew movie by Aleja d o Go zalez I a itu about the Bad Homb es. |
+| A  ew shi i g T ump towe  i  Mexico. |
+| A pillow fight betwee  Bad Homb es. |
+| A  eally bad Mexica  soup ope a. |
+| All ki d of child e  a e i deed left behi d. |
+| A  eco omy without Mexica  labo . |
+| Bad Homb es i filt ati g the bo de  pat ol. |
+| Bad Homb es offe sive comme ts. |
+| Bad Homb es willi g to wo k 80 hou s a week. |
+| Baked bea s. |
+| Beefy empa adas fo  25 ce ts. |
+| Bei g af aid of the wo m at the bottom of the tequila bottle. |
+| Bei g depo ted to Mexico afte  livi g 20 yea s i  the U.S. |
+| Blami g the 1% fo  eve ythi g. |
+| Bloody Bull Fights with lots of celeb atio  a d tequila. |
+| Bo de  Tax. |
+| Buildi g a doo  i  the wall. |
+| Buildi g b idges  athe  tha  walls. |
+| Bu ito mastu batio  tech ique. |
+| Cab o  de mie da. |
+| Cheap Mexica  po . |
 | Cheap tequila. |
-| Cheap Viagra® hecha en casa. |
-| Confronting deportation fears. |
-| Confusing Taco Bell® with good Mexican food. |
-| Confusing Tijuana with North Korea. |
-| Coyote services inflation. |
-| Criminals, drug dealers, rapists, etc. |
-| Declaring Spanish as second official language of the U.S. |
-| Discrimination. |
-| Dreamers hiding from deportation. |
-| Eating tamales in Thanksgiving. |
-| El Chapo unleashing a Bad Hombre revolution from jail. |
-| El Rio Grande. |
-| Fake Green Cards being sold at the border. |
-| Fear of being killed. |
+| Cheap Viag a® hecha e  casa. |
+| Co f o ti g depo tatio  fea s. |
+| Co fusi g Taco Bell® with good Mexica  food. |
+| Co fusi g Tijua a with No th Ko ea. |
+| Coyote se vices i flatio . |
+| C imi als, d ug deale s,  apists, etc. |
+| Decla i g Spa ish as seco d official la guage of the U.S. |
+| Disc imi atio . |
+| D eame s hidi g f om depo tatio . |
+| Eati g tamales i  Tha ksgivi g. |
+| El Chapo u leashi g a Bad Homb e  evolutio  f om jail. |
+| El Rio G a de. |
+| Fake G ee  Ca ds bei g sold at the bo de . |
+| Fea  of bei g killed. |
 | Food Stamps. |
 | Fox News.® |
-| Fucking south of the border. |
-| Getting laid with a sweaty Bad Hombre. |
-| Getting paid below minimum wage. |
-| Having Cementos Mexicanos build the wall. |
-| Having sex with Mildred, Arnold Schwarzenegger's nanny and girlfriend. |
-| Having to send dinero to Chiapas. |
-| Hijo de la chingada. |
-| Huge political inexperience. |
-| Human rights abuses at the border. |
-| Insulting Bad Hombres for fun. |
-| It's all about the money. |
-| Ivanka Trump's maids. |
-| Jennifer Lopez. |
-| Kidnappings in Mexico. |
-| Los Tres Amigos. |
-| Making Mexico great again since the Aztecs and Mayans. |
-| Mango enchilado. |
-| Meros tacos. |
-| Mexican revolution in the U.S. |
-| Mexicans taking all the good jobs. |
-| Molesting a Mexican boy. |
-| Multiple hotel sex in Acapulco. |
-| Naked Lucha Libre. |
-| Nationalist officials at the border who voted for Trump. |
-| No "law and order" building the wall. |
-| Not all Bad Hombres are created equal. |
-| Not having enough Bad Hombres in the U.S. to build the wall. |
-| Pitbull as president of the new Bad Hombres political party. |
-| Potentially having free college tuition for all immigrants. |
-| Pretending to give immigrants equal opportunity. |
-| Proud to be Mexican. |
-| Putting a condom in a burrito to practice. |
+| Fucki g south of the bo de . |
+| Getti g laid with a sweaty Bad Homb e. |
+| Getti g paid below mi imum wage. |
+| Havi g Ceme tos Mexica os build the wall. |
+| Havi g sex with Mild ed, A old Schwa ze egge 's  a y a d gi lf ie d. |
+| Havi g to se d di e o to Chiapas. |
+| Hijo de la chi gada. |
+| Huge political i expe ie ce. |
+| Huma   ights abuses at the bo de . |
+| I sulti g Bad Homb es fo  fu . |
+| It's all about the mo ey. |
+| Iva ka T ump's maids. |
+| Je ife  Lopez. |
+| Kid appi gs i  Mexico. |
+| Los T es Amigos. |
+| Maki g Mexico g eat agai  si ce the Aztecs a d Maya s. |
+| Ma go e chilado. |
+| Me os tacos. |
+| Mexica   evolutio  i  the U.S. |
+| Mexica s taki g all the good jobs. |
+| Molesti g a Mexica  boy. |
+| Multiple hotel sex i  Acapulco. |
+| Naked Lucha Lib e. |
+| Natio alist officials at the bo de  who voted fo  T ump. |
+| No "law a d o de " buildi g the wall. |
+| Not all Bad Homb es a e c eated equal. |
+| Not havi g e ough Bad Homb es i  the U.S. to build the wall. |
+| Pitbull as p eside t of the  ew Bad Homb es political pa ty. |
+| Pote tially havi g f ee college tuitio  fo  all immig a ts. |
+| P ete di g to give immig a ts equal oppo tu ity. |
+| P oud to be Mexica . |
+| Putti g a co dom i  a bu ito to p actice. |
 | Real News. |
-| Really lost in translation. |
-| Reusing condoms. |
-| Saying "No Mas" before even starting. |
-| Spanglish. |
-| Spending $20 billion on the stupid wall. |
-| Such a nasty group of people. |
-| Thinking tequila is an expensive drink. |
-| Three days without eating in the Arizona desert to reach the American Dream. |
-| Too many Bad Hombres with working visas. |
-| Translating the U.S. Constitution to Spanish. |
-| Treating Good Hombres like Bad Hombres. |
-| Trump neglecting the U.S. inner cities where Bad Hombres live. |
-| Trump's deportation machine terror tactics. |
-| Unsafe sex. |
-| White supremacy ideas. |
+| Really lost i  t a slatio . |
+| Reusi g co doms. |
+| Sayi g "No Mas" befo e eve  sta ti g. |
+| Spa glish. |
+| Spe di g $20 billio  o  the stupid wall. |
+| Such a  asty g oup of people. |
+| Thi ki g tequila is a  expe sive d i k. |
+| Th ee days without eati g i  the A izo a dese t to  each the Ame ica  D eam. |
+| Too ma y Bad Homb es with wo ki g visas. |
+| T a slati g the U.S. Co stitutio  to Spa ish. |
+| T eati g Good Homb es like Bad Homb es. |
+| T ump  eglecti g the U.S. i e  cities whe e Bad Homb es live. |
+| T ump's depo tatio  machi e te o  tactics. |
+| U safe sex. |
+| White sup emacy ideas. |
 
 |Total amount: 90|
 |---|

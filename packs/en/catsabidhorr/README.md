@@ -141,15 +141,13 @@ Answers amount: 370
 | I will vote for any politician that promises me an unlimited supply of _. | 1 |
 | If you were the Grand Mufti of Saudia Arabia, who or what would you issue a fatwa against? | 1 |
 | In ancient Sparta, boys became men only after killing and eating _. | 1 |
-| It's a bird!It's a plane!
-No, it's _! | 1 |
+| It's a bird! It's a plane! No, it's _! | 1 |
 | Me a racist? I don't think so. You know how many of my friends are _? | 1 |
 | My addcition was so out of control, there was nothing I wouldn't do for just a whiff of _. | 1 |
 | My vacation to the Amazon ended with me sucking out venom from _. | 1 |
 | One of Prince's lesser known names was "_ formerly known as _" | 2 |
 | People always see me as this successful, happy-go-lucky guy who has everything he wants. What they don't know is that deep down, I feel like _. | 1 |
-| Princess, there is no more food left in the kingdom, the peasants are starving and a revolt is imminent. What should we do? 
-Let them eat _. | 1 |
+| Princess, there is no more food left in the kingdom, the peasants are starving and a revolt is imminent. What should we do?   Let them eat _. | 1 |
 | SHOCKING! Undercover report reveals how refugee Syrian children are exposed to _, supposedly to calm them down. | 1 |
 | Spiderman senses danger with his spider sense. I have a similar ability, except I sense _ wherever I go. | 1 |
 | That's easy for you to say, Mr. Born With A Golden Spoon In My Mouth, but for me, _ is all I got. | 1 |
@@ -168,377 +166,377 @@ Let them eat _. | 1 |
 |---|
 
 ### Answers
-| Question |
+| Answers |
 |---|
 | A selfie stick. |
-| Beheading kafirs. |
-| Butt enhancement surgery. |
-| Performing the Cleveland Steamer on my dying grandpa. |
-| The Donald. |
-| Accidental anal. |
-| Everyone getting a trophy. |
-| The Founding Fathers. |
-| The white male patriarchy. |
-| Warmongering. |
-| A bowl of primordial soup. |
-| A dildo so big it won't fit anywhere. |
-| A dried up vagina. |
-| A dried-up vagina. |
-| A good ol' TSA pat down. |
-| A good ol' TSA pat-down. |
-| A lack of respect for personal space. |
-| A mildly retarded seahorse. |
-| A power bottom. |
-| A sex change operation gone horribly wrong. |
-| A slender, pasty vampire that sparkles in the sun named Edward. |
-| A slender, pasty vampire that sparkles in the sun. |
-| A stud muffin. |
-| Accidentally getting jizzed on in a threesome. |
-| Allahu Akbar! |
-| Allahu akbar. |
-| An irrational hatred for midgets. |
-| An irrational hatred of midgets. |
-| An openly gay living statue. |
-| An overworked Chippendales® dancer. |
-| An uninspiring make out session with a Mexican. |
-| An uninspiring make-out session with a Mexican. |
-| Attending a lemon party. |
-| Being at the center of a golden shower. |
-| Being politically correct all the time. |
-| Black on black violence. |
-| Black-on-Black violence. |
-| Booking a flight just for the anal cavity search. |
-| Brangelina. |
-| Cankles. |
+| Beheadi g kafi s. |
+| Butt e ha ceme t su ge y. |
+| Pe fo mi g the Clevela d Steame  o  my dyi g g a dpa. |
+| The Do ald. |
+| Accide tal a al. |
+| Eve yo e getti g a t ophy. |
+| The Fou di g Fathe s. |
+| The white male pat ia chy. |
+| Wa mo ge i g. |
+| A bowl of p imo dial soup. |
+| A dildo so big it wo 't fit a ywhe e. |
+| A d ied up vagi a. |
+| A d ied-up vagi a. |
+| A good ol' TSA pat dow . |
+| A good ol' TSA pat-dow . |
+| A lack of  espect fo  pe so al space. |
+| A mildly  eta ded seaho se. |
+| A powe  bottom. |
+| A sex cha ge ope atio  go e ho ibly w o g. |
+| A sle de , pasty vampi e that spa kles i  the su   amed Edwa d. |
+| A sle de , pasty vampi e that spa kles i  the su . |
+| A stud muffi . |
+| Accide tally getti g jizzed o  i  a th eesome. |
+| Allahu Akba ! |
+| Allahu akba . |
+| A  i atio al hat ed fo  midgets. |
+| A  i atio al hat ed of midgets. |
+| A  ope ly gay livi g statue. |
+| A  ove wo ked Chippe dales® da ce . |
+| A  u i spi i g make out sessio  with a Mexica . |
+| A  u i spi i g make-out sessio  with a Mexica . |
+| Atte di g a lemo  pa ty. |
+| Bei g at the ce te  of a golde  showe . |
+| Bei g politically co ect all the time. |
+| Black o  black viole ce. |
+| Black-o -Black viole ce. |
+| Booki g a flight just fo  the a al cavity sea ch. |
+| B a geli a. |
+| Ca kles. |
 | Chicks with dicks. |
-| Creationism. |
-| Cutting in line at the local glory hole. |
-| Cyber bullying. |
-| Cyberbullying. |
-| Dieing a virgin. |
-| Doing taxes while jerking off. |
-| Drinking the tears of cancer patients. |
-| Driving around schools in a black windowless van. |
-| Dry humping a pillow while listening to Sting. |
-| Dry-humping a pillow while listening to Sting. |
-| Dying a virgin. |
-| Erotic karaoke. |
-| Euthanizing old people. |
-| Feeding Munchkins to a Great White shark. |
-| Feeding Munchkins to a great white shark. |
-| Forgiving my parents for the sexual abuse. |
-| Forgiving parents for sexual abuse. |
-| Getting an enema just for fun. |
-| Getting eaten alive by puppies. |
-| Giving out free hand jobs at the homeless shelter. |
-| Glorious leader Kim Jong-un riding Godzilla. |
-| Grannies gone wild. |
-| Having an uncontrollable orgasm while talking to animals. |
-| Having sexual thoughts about that hot cousin. |
-| Hearing my parents have sex through the ceiling. |
-| His Holiness, the intergalactic space lord Xenu. |
-| Holocaust denial. |
-| Hysterically laughing at poor people. |
-| Inappropriately touching a dead body. |
-| Infected nipples. |
-| Interracial gay porn. |
-| James Spader staring right into your soul. |
-| Jar Jar Binks being all clumsy and shit. |
-| John Travolta putting on his toupee. |
-| Joining ISIS for the adventure. |
-| Kicking kittens when nobody's watching. |
-| Liberal propaganda. |
-| Literally taking candy from a baby. |
-| Living out loud and proud. |
-| Mark Wahlberg's rap career. |
-| Matt Damon's beady eyes. |
-| Mother's buxom bosom. |
-| Mother's buxom bosoms. |
-| My burqa fetish. |
-| My lack of humanity. |
-| No respect for personal space. |
-| Oiled up bodybuilders wearing only a thong. |
-| Oiled-up bodybuilders wearing nothing but thongs. |
-| Pale Irish people. |
-| Pale, red-headed, Irish people. |
-| Paying your fair share. |
-| People that consider themselves Pastafarians. |
-| Posting on Facebook while sitting on the toilet. |
-| Power Puff Girls® cosplay. |
-| Powerpuff Girls™ cosplay. |
-| Pretending to care about third world problems |
-| Pro slavery activists. |
-| Pro-slavery activists. |
-| Rednecks with to much mascara on. |
-| Rednecks with too much mascara on. |
-| Referring to black people as darkies. |
-| Robert De Niro doing a poor impression of himself. |
-| Robin Williams' ghost. |
-| Ruined childhood dreams. |
-| Sacrificing your first born to Satan. |
-| Sacrificing your firstborn to Satan. |
-| Seducing an annoyed hobo. |
-| Seeing dead people. |
-| Selling your virginity for $19.99. |
-| Sloppily French kissing my hand. |
-| Sloppily French kissing my own hand. |
-| Someone who mildly resembles John Cusack. |
-| Sub-Saharan cannibals. |
-| Swallowing a grown man whole. |
-| Switching bodies with mom for a day. |
-| The AIDS Bunny. |
-| The average American. |
-| The Boston bombers. |
-| The Chippendales®. |
-| The confusing sounds of WRFL. |
-| The current Card Czar. |
-| The guy that all trainers hate. |
+| C eatio ism. |
+| Cutti g i  li e at the local glo y hole. |
+| Cybe  bullyi g. |
+| Cybe bullyi g. |
+| Diei g a vi gi . |
+| Doi g taxes while je ki g off. |
+| D i ki g the tea s of ca ce  patie ts. |
+| D ivi g a ou d schools i  a black wi dowless va . |
+| D y humpi g a pillow while liste i g to Sti g. |
+| D y-humpi g a pillow while liste i g to Sti g. |
+| Dyi g a vi gi . |
+| E otic ka aoke. |
+| Eutha izi g old people. |
+| Feedi g Mu chki s to a G eat White sha k. |
+| Feedi g Mu chki s to a g eat white sha k. |
+| Fo givi g my pa e ts fo  the sexual abuse. |
+| Fo givi g pa e ts fo  sexual abuse. |
+| Getti g a  e ema just fo  fu . |
+| Getti g eate  alive by puppies. |
+| Givi g out f ee ha d jobs at the homeless shelte . |
+| Glo ious leade  Kim Jo g-u   idi g Godzilla. |
+| G a ies go e wild. |
+| Havi g a  u co t ollable o gasm while talki g to a imals. |
+| Havi g sexual thoughts about that hot cousi . |
+| Hea i g my pa e ts have sex th ough the ceili g. |
+| His Holi ess, the i te galactic space lo d Xe u. |
+| Holocaust de ial. |
+| Hyste ically laughi g at poo  people. |
+| I app op iately touchi g a dead body. |
+| I fected  ipples. |
+| I te acial gay po . |
+| James Spade  sta i g  ight i to you  soul. |
+| Ja  Ja  Bi ks bei g all clumsy a d shit. |
+| Joh  T avolta putti g o  his toupee. |
+| Joi i g ISIS fo  the adve tu e. |
+| Kicki g kitte s whe   obody's watchi g. |
+| Libe al p opaga da. |
+| Lite ally taki g ca dy f om a baby. |
+| Livi g out loud a d p oud. |
+| Ma k Wahlbe g's  ap ca ee . |
+| Matt Damo 's beady eyes. |
+| Mothe 's buxom bosom. |
+| Mothe 's buxom bosoms. |
+| My bu qa fetish. |
+| My lack of huma ity. |
+| No  espect fo  pe so al space. |
+| Oiled up bodybuilde s wea i g o ly a tho g. |
+| Oiled-up bodybuilde s wea i g  othi g but tho gs. |
+| Pale I ish people. |
+| Pale,  ed-headed, I ish people. |
+| Payi g you  fai  sha e. |
+| People that co side  themselves Pastafa ia s. |
+| Posti g o  Facebook while sitti g o  the toilet. |
+| Powe  Puff Gi ls® cosplay. |
+| Powe puff Gi ls™ cosplay. |
+| P ete di g to ca e about thi d wo ld p oblems |
+| P o slave y activists. |
+| P o-slave y activists. |
+| Red ecks with to much masca a o . |
+| Red ecks with too much masca a o . |
+| Refe i g to black people as da kies. |
+| Robe t De Ni o doi g a poo  imp essio  of himself. |
+| Robi  Williams' ghost. |
+| Rui ed childhood d eams. |
+| Sac ifici g you  fi st bo  to Sata . |
+| Sac ifici g you  fi stbo  to Sata . |
+| Seduci g a  a oyed hobo. |
+| Seei g dead people. |
+| Selli g you  vi gi ity fo  $19.99. |
+| Sloppily F e ch kissi g my ha d. |
+| Sloppily F e ch kissi g my ow  ha d. |
+| Someo e who mildly  esembles Joh  Cusack. |
+| Sub-Saha a  ca ibals. |
+| Swallowi g a g ow  ma  whole. |
+| Switchi g bodies with mom fo  a day. |
+| The AIDS Bu y. |
+| The ave age Ame ica . |
+| The Bosto  bombe s. |
+| The Chippe dales®. |
+| The co fusi g sou ds of WRFL. |
+| The cu e t Ca d Cza . |
+| The guy that all t ai e s hate. |
 | The Hollywood elite. |
-| The Illuminati. |
-| The liberal bubble. |
-| The Manson family. |
-| The Most Interesting Man in the World©. |
-| The Most Interesting Man in the World®. |
-| The obligatory black guy. |
-| The realest nigga ever. |
-| The souls of children that died to young. |
-| The souls of children that died too young. |
-| The Third Reich 2.0. |
-| The voices in my head. |
+| The Illumi ati. |
+| The libe al bubble. |
+| The Ma so  family. |
+| The Most I te esti g Ma  i  the Wo ld©. |
+| The Most I te esti g Ma  i  the Wo ld®. |
+| The obligato y black guy. |
+| The  ealest  igga eve . |
+| The souls of child e  that died to you g. |
+| The souls of child e  that died too you g. |
+| The Thi d Reich 2.0. |
+| The voices i  my head. |
 | TIMMEH!!! |
-| Trigger happy cops. |
-| Trigger-happy cops. |
-| Turning straight men gay. |
-| Twitter stalking. |
-| Uncle Fester. |
-| Unisex children. |
-| Visible-Man, the most useless superhero of them all. |
-| Vladimir Putin riding a bear. |
-| Wearing gym shorts several sizes to small to accentuate the bulge. |
-| Wearing gym shorts several sizes too small to accentuate the bulge. |
+| T igge  happy cops. |
+| T igge -happy cops. |
+| Tu i g st aight me  gay. |
+| Twitte  stalki g. |
+| U cle Feste . |
+| U isex child e . |
+| Visible-Ma , the most useless supe he o of them all. |
+| Vladimi  Puti   idi g a bea . |
+| Wea i g gym sho ts seve al sizes to small to acce tuate the bulge. |
+| Wea i g gym sho ts seve al sizes too small to acce tuate the bulge. |
 | White guilt. |
-| Wiggers. |
-| Winning the Eurovision Song Contest three times in a row. |
-| Winning the Eurovision Song Contest® three times in a row. |
-| A 9/11 truther. |
+| Wigge s. |
+| Wi i g the Eu ovisio  So g Co test th ee times i  a  ow. |
+| Wi i g the Eu ovisio  So g Co test® th ee times i  a  ow. |
+| A 9/11 t uthe . |
 | A baby daddy. |
 | A basic bitch. |
-| A bloodthirsty Arab. |
-| A butterface. |
-| A Christian Science scientist. |
-| A counselor at gay rehabilitation camp. |
-| A door-to-door Bible salesman. |
-| A fancy suit made out of human skin. |
-| A gay-for-pay pornstar. |
-| A handjob that feels like sandpaper. |
-| A Hooters® waitress. |
-| A human toilet. |
-| A jizz mopper at the local smut theater. |
-| A male feminist. |
-| A man born with two vaginas. |
-| A men's rights activist. |
-| A millenial. |
-| A Nigerian prince. |
-| A paranoid schizophrenic |
-| A pervert. |
-| A rad dude with long hair. |
-| A renegade cop with a talking car for a partner. |
-| A Russian mail-order bride. |
-| A section 8 tenant. |
-| A shirtless Channing Tatum poster. |
-| A sugar daddy. |
-| A Wall Street fat cat. |
-| Accidentally sending Mom a dick pic. |
+| A bloodthi sty A ab. |
+| A butte face. |
+| A Ch istia  Scie ce scie tist. |
+| A cou selo  at gay  ehabilitatio  camp. |
+| A doo -to-doo  Bible salesma . |
+| A fa cy suit made out of huma  ski . |
+| A gay-fo -pay po sta . |
+| A ha djob that feels like sa dpape . |
+| A Hoote s® wait ess. |
+| A huma  toilet. |
+| A jizz moppe  at the local smut theate . |
+| A male femi ist. |
+| A ma  bo  with two vagi as. |
+| A me 's  ights activist. |
+| A mille ial. |
+| A Nige ia  p i ce. |
+| A pa a oid schizoph e ic |
+| A pe ve t. |
+| A  ad dude with lo g hai . |
+| A  e egade cop with a talki g ca  fo  a pa t e . |
+| A Russia  mail-o de  b ide. |
+| A sectio  8 te a t. |
+| A shi tless Cha i g Tatum poste . |
+| A suga  daddy. |
+| A Wall St eet fat cat. |
+| Accide tally se di g Mom a dick pic. |
 | ALF. |
-| An anchor baby. |
-| Attending the funeral of a fallen homie. |
-| Bernie Sanders. |
-| Bombing an abortion clinic. |
-| Bringing democracy to faraway lands. |
-| Chatting with lonely, bored and desperately horny housewives on Ashley Madison®. |
-| Cheating with the 16-year-old babysitter. |
-| Choking on a hippo dick. |
-| Chugging down a bucket of giraffe cum. |
-| Confiscating and burning books. |
-| Curb-stomping some fool. |
-| Daddies big disappointment. |
-| Dirty Dancing. |
-| Doctor Mengele. |
-| Dodging alimony payments. |
-| Double-crossing the Mob. |
-| Dropping the soap in the prison shower, on purpose. |
-| Eating the umbilical cord of a newborn. |
+| A  a cho  baby. |
+| Atte di g the fu e al of a falle  homie. |
+| Be ie Sa de s. |
+| Bombi g a  abo tio  cli ic. |
+| B i gi g democ acy to fa away la ds. |
+| Chatti g with lo ely, bo ed a d despe ately ho y housewives o  Ashley Madiso ®. |
+| Cheati g with the 16-yea -old babysitte . |
+| Choki g o  a hippo dick. |
+| Chuggi g dow  a bucket of gi affe cum. |
+| Co fiscati g a d bu i g books. |
+| Cu b-stompi g some fool. |
+| Daddies big disappoi tme t. |
+| Di ty Da ci g. |
+| Docto  Me gele. |
+| Dodgi g alimo y payme ts. |
+| Double-c ossi g the Mob. |
+| D oppi g the soap i  the p iso  showe , o  pu pose. |
+| Eati g the umbilical co d of a  ewbo . |
 | Fat Elvis. |
-| Floating aimlessly through life. |
-| Fluffing on an underground, German bestiality porn set. |
-| Fucking the delivery guy instead of simply giving him a tip. |
-| Full-on socialism. |
-| Gary Busey's drinking problem. |
-| Getting high on bath salts and eating someone's face off. |
-| Getting pooped on and laughed at. |
-| Getting slapped in the face by multiple dicks. |
-| Giving birth to a stillborn. |
-| Giving out free shit to everyone. |
-| Going on a bloody killing spree. |
-| Grinding on a greasy stripper pole. |
-| Howling at the moon. |
-| Inbreeding. |
-| Jewbacka, Chewbacca's rich Hollywood uncle. |
-| Kanye talking about himself. |
+| Floati g aimlessly th ough life. |
+| Fluffi g o  a  u de g ou d, Ge ma  bestiality po  set. |
+| Fucki g the delive y guy i stead of simply givi g him a tip. |
+| Full-o  socialism. |
+| Ga y Busey's d i ki g p oblem. |
+| Getti g high o  bath salts a d eati g someo e's face off. |
+| Getti g pooped o  a d laughed at. |
+| Getti g slapped i  the face by multiple dicks. |
+| Givi g bi th to a stillbo . |
+| Givi g out f ee shit to eve yo e. |
+| Goi g o  a bloody killi g sp ee. |
+| G i di g o  a g easy st ippe  pole. |
+| Howli g at the moo . |
+| I b eedi g. |
+| Jewbacka, Chewbacca's  ich Hollywood u cle. |
+| Ka ye talki g about himself. |
 | Kim Davis. |
-| Livin' the thug life. |
-| Living in a car. |
-| Making obscene amounts of money. |
-| Micheal J. Fox performing open-heart surgery. |
-| Microwaving a cat. |
-| Motorboating Katy Perry. |
+| Livi ' the thug life. |
+| Livi g i  a ca . |
+| Maki g obsce e amou ts of mo ey. |
+| Micheal J. Fox pe fo mi g ope -hea t su ge y. |
+| Mic owavi g a cat. |
+| Moto boati g Katy Pe y. |
 | My bad boy image. |
-| My confusing sexuality. |
-| My gold-digging wife. |
+| My co fusi g sexuality. |
+| My gold-diggi g wife. |
 | My high school bully. |
-| My one black friend. |
-| One of those hot teachers that has sex with her underage students. |
-| Papa Smurf. |
+| My o e black f ie d. |
+| O e of those hot teache s that has sex with he  u de age stude ts. |
+| Papa Smu f. |
 | Peaceful Islam. |
-| Pimp-slapping a hoe. |
-| Purposely sending Mom a dick pick. |
-| Rachel Maddow's boyish charm. |
-| Receiving the death sentence. |
-| Refusing to marry the gays. |
-| Saying "eh" and "aboot" every other word. |
-| Selling drugs to sixth graders. |
-| Shoving a straw through someone's eyeball and sucking their soul out. |
-| Soliciting sex from an undercover cop in drag. |
-| Spreading Christianity by force. |
-| Stealing my best friend's boyfriend. |
-| That crazy Baldwin brother. |
-| The creepy family friend who fondled my buttocks as a child. |
-| The donkey that chewed off my daughter's arm. |
-| The Grand Wizard of the KKK. |
-| The Jewish conspiracies all around us. |
-| The leader of Boko Haram. |
-| The mailman that conceived me. |
-| The Reverend Al Sharpton. |
-| The star quarterback. |
-| The target in a bukkake video. |
-| The toothless, destitute gentleman who gave me AIDS. |
-| The unidentifiable human remains in my refrigerator. |
-| The void my dad left behind when he abandoned us. |
-| The whimpering cries for mercy from a conquered enemy. |
-| Travelling back in time and hooking up with Young Mom. |
-| Turning into animals and impregnating women. |
-| Twerking in a Speedo®. |
-| Wearing a headscarf so as not to piss off Allah. |
-| Wearing a short skirt without any panties. |
-| A babbling idiot. |
-| A basement dweller. |
-| A bear. |
-| A Black Lives Matter protestor. |
-| A bottom feeder. |
-| A chronically upset feminist. |
-| A computer full of porn. |
-| A convent full of sexy nuns. |
-| A crippling birth defect. |
-| A deadbeat parent. |
-| A dullard. |
-| A gender studies teacher. |
-| A hairy diesel dyke. |
-| A Hare Krishna disciple. |
-| A hollering frat bro. |
-| A human ashtray. |
-| A Japanese loli. |
-| A life of involuntary servitude. |
-| A male cheerleader. |
-| A Marxist Kenyan Muslim. |
-| A merry old queen. |
-| A Mexican gangbanger. |
-| A misplaced sense of entitlement. |
-| A missing hamster. |
-| A mouth breather. |
-| A murder-suicide just waiting to happen. |
-| A neck beard. |
-| A North Korean hacker. |
-| A peckerwood. |
-| A pencil-neck geek. |
-| A person of low stock. |
-| A rent boy. |
-| A rude waitress. |
-| A rugged individualist. |
+| Pimp-slappi g a hoe. |
+| Pu posely se di g Mom a dick pick. |
+| Rachel Maddow's boyish cha m. |
+| Receivi g the death se te ce. |
+| Refusi g to ma y the gays. |
+| Sayi g "eh" a d "aboot" eve y othe  wo d. |
+| Selli g d ugs to sixth g ade s. |
+| Shovi g a st aw th ough someo e's eyeball a d sucki g thei  soul out. |
+| Soliciti g sex f om a  u de cove  cop i  d ag. |
+| Sp eadi g Ch istia ity by fo ce. |
+| Steali g my best f ie d's boyf ie d. |
+| That c azy Baldwi  b othe . |
+| The c eepy family f ie d who fo dled my buttocks as a child. |
+| The do key that chewed off my daughte 's a m. |
+| The G a d Wiza d of the KKK. |
+| The Jewish co spi acies all a ou d us. |
+| The leade  of Boko Ha am. |
+| The mailma  that co ceived me. |
+| The Reve e d Al Sha pto . |
+| The sta  qua te back. |
+| The ta get i  a bukkake video. |
+| The toothless, destitute ge tlema  who gave me AIDS. |
+| The u ide tifiable huma   emai s i  my  ef ige ato . |
+| The void my dad left behi d whe  he aba do ed us. |
+| The whimpe i g c ies fo  me cy f om a co que ed e emy. |
+| T avelli g back i  time a d hooki g up with You g Mom. |
+| Tu i g i to a imals a d imp eg ati g wome . |
+| Twe ki g i  a Speedo®. |
+| Wea i g a headsca f so as  ot to piss off Allah. |
+| Wea i g a sho t ski t without a y pa ties. |
+| A babbli g idiot. |
+| A baseme t dwelle . |
+| A bea . |
+| A Black Lives Matte  p otesto . |
+| A bottom feede . |
+| A ch o ically upset femi ist. |
+| A compute  full of po . |
+| A co ve t full of sexy  u s. |
+| A c ippli g bi th defect. |
+| A deadbeat pa e t. |
+| A dulla d. |
+| A ge de  studies teache . |
+| A hai y diesel dyke. |
+| A Ha e K ish a disciple. |
+| A holle i g f at b o. |
+| A huma  asht ay. |
+| A Japa ese loli. |
+| A life of i volu ta y se vitude. |
+| A male chee leade . |
+| A Ma xist Ke ya  Muslim. |
+| A me y old quee . |
+| A Mexica  ga gba ge . |
+| A misplaced se se of e titleme t. |
+| A missi g hamste . |
+| A mouth b eathe . |
+| A mu de -suicide just waiti g to happe . |
+| A  eck bea d. |
+| A No th Ko ea  hacke . |
+| A pecke wood. |
+| A pe cil- eck geek. |
+| A pe so  of low stock. |
+| A  e t boy. |
+| A  ude wait ess. |
+| A  ugged i dividualist. |
 | A school bus full of dead kids. |
-| A self-immolating Buddhist. |
-| A size queen. |
-| A special needs child eating a pillow. |
+| A self-immolati g Buddhist. |
+| A size quee . |
+| A special  eeds child eati g a pillow. |
 | A Thai ladyboy. |
-| A third-world dictator. |
-| A Tumblr drama queen. |
-| A used car salesman. |
-| A white, straight, cis male. |
-| A Woody Allen movie marathon. |
-| A wrongly amputated limb. |
-| Accepting a drink from Bill Cosby. |
-| An anti-vaxxer. |
-| An Asian driver. |
-| An embarrassment to the human race. |
-| An indigo child. |
-| An unwashed hippie. |
-| Anarchists. |
-| Being all alone on a Friday night. |
-| Being out on parole. |
-| Bjork's stalker. |
+| A thi d-wo ld dictato . |
+| A Tumbl  d ama quee . |
+| A used ca  salesma . |
+| A white, st aight, cis male. |
+| A Woody Alle  movie ma atho . |
+| A w o gly amputated limb. |
+| Accepti g a d i k f om Bill Cosby. |
+| A  a ti-vaxxe . |
+| A  Asia  d ive . |
+| A  emba assme t to the huma   ace. |
+| A  i digo child. |
+| A  u washed hippie. |
+| A a chists. |
+| Bei g all alo e o  a F iday  ight. |
+| Bei g out o  pa ole. |
+| Bjo k's stalke . |
 | Bloated baby feet. |
-| Carpet munching. |
-| Conducting unethical science experiments. |
-| Crossing swords. |
-| Danny DeVito's bald, shiny head. |
-| Drinking Mexican tap water. |
-| Faking cancer to get chemotherapy. |
-| Force-feeding the elderly. |
-| Freedom of speech. |
-| Freeloading. |
-| Getting cuckolded. |
-| Getting photobombed by Gian Gomeshii |
-| Good, clean fun. |
-| hemorroidal abcesses |
-| Living in squalor. |
-| Making it rain. |
-| Man tits. |
+| Ca pet mu chi g. |
+| Co ducti g u ethical scie ce expe ime ts. |
+| C ossi g swo ds. |
+| Da y DeVito's bald, shi y head. |
+| D i ki g Mexica  tap wate . |
+| Faki g ca ce  to get chemothe apy. |
+| Fo ce-feedi g the elde ly. |
+| F eedom of speech. |
+| F eeloadi g. |
+| Getti g cuckolded. |
+| Getti g photobombed by Gia  Gomeshii |
+| Good, clea  fu . |
+| hemo oidal abcesses |
+| Livi g i  squalo . |
+| Maki g it  ai . |
+| Ma  tits. |
 | My God complex. |
-| My liberal arts degree. |
-| My open marriage. |
-| Pigging out. |
-| Pitying the fool. |
-| Roid rage. |
-| Running a red light. |
-| Rupert, my imaginary friend. |
-| Scatting, and not the singing kind. |
-| Shanking a fellow inmate. |
-| Shitting an adult diaper. |
-| Shooting semen all over the place. |
-| Shopping on Black Friday. |
+| My libe al a ts deg ee. |
+| My ope  ma iage. |
+| Piggi g out. |
+| Pityi g the fool. |
+| Roid  age. |
+| Ru i g a  ed light. |
+| Rupe t, my imagi a y f ie d. |
+| Scatti g, a d  ot the si gi g ki d. |
+| Sha ki g a fellow i mate. |
+| Shitti g a  adult diape . |
+| Shooti g seme  all ove  the place. |
+| Shoppi g o  Black F iday. |
 | Slave Leia. |
-| Snowballing. |
-| Sporting a thick '70s bush. |
-| Streaking. |
-| Sword swallowing. |
-| Talking through a movie. |
-| The 101st "Airborne" Division. |
+| S owballi g. |
+| Spo ti g a thick '70s bush. |
+| St eaki g. |
+| Swo d swallowi g. |
+| Talki g th ough a movie. |
+| The 101st "Ai bo e" Divisio . |
 | The 99%. |
-| The barely legal intern. |
-| The crazy cat lady from across the street. |
-| The Elephant Man. |
+| The ba ely legal i te . |
+| The c azy cat lady f om ac oss the st eet. |
+| The Elepha t Ma . |
 | The local UFO cult. |
-| The Pilgrims. |
-| The Second Coming of Jesus. |
-| The Statue of Liberty. |
+| The Pilg ims. |
+| The Seco d Comi g of Jesus. |
+| The Statue of Libe ty. |
 | The White Devil. |
-| Torturing small animals. |
-| Tossing salad. |
-| Totally dreamy guys. |
-| Trigglypuff. |
-| Whiteknighting. |
-| Wincest. |
-| Winning a karate tournament by crane kick. |
-| Working for minimum wage. |
+| To tu i g small a imals. |
+| Tossi g salad. |
+| Totally d eamy guys. |
+| T igglypuff. |
+| Whitek ighti g. |
+| Wi cest. |
+| Wi i g a ka ate tou ame t by c a e kick. |
+| Wo ki g fo  mi imum wage. |
 | Yellow teeth. |
 
 |Total amount: 370|

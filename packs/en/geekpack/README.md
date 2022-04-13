@@ -17,32 +17,32 @@ Answers amount: 24
 |---|
 
 ### Answers
-| Question |
+| Answers |
 |---|
-| A fully-dressed female videogame character. |
-| A grumpy old Harrison Ford who'd rather be doing anything else. |
-| A homemade, cum-stained Star Trek Uniform. |
-| Achieving 500 actions per minute. |
-| Charging up all the way. |
-| Eating a pizza that's lying in the street to gain health. |
-| Endless ninjas. |
-| Forgetting to eat, and consequently dying. |
-| Getting bitten by a radioactive spider and then battling leukemia for 30 years. |
-| Getting bitten by a radioactive spider and then battling leukimia for 30 years. |
+| A fully-d essed female videogame cha acte . |
+| A g umpy old Ha iso  Fo d who'd  athe  be doi g a ythi g else. |
+| A homemade, cum-stai ed Sta  T ek U ifo m. |
+| Achievi g 500 actio s pe  mi ute. |
+| Cha gi g up all the way. |
+| Eati g a pizza that's lyi g i  the st eet to gai  health. |
+| E dless  i jas. |
+| Fo getti g to eat, a d co seque tly dyi g. |
+| Getti g bitte  by a  adioactive spide  a d the  battli g leukemia fo  30 yea s. |
+| Getti g bitte  by a  adioactive spide  a d the  battli g leukimia fo  30 yea s. |
 | KHAAAAAAAAN! |
-| Loading from a previous save. |
-| Offering sexual favors for an ore and a sheep. |
-| Running out of stamina. |
-| Separate drinking fountains for dark elves. |
-| Ser Jorah Mormont's cerulean-blue balls. |
-| Sharpening a foam broadsword on a foam whetstone. |
-| Stuffing my balls into a Sega Genesis and pressing the power button. |
-| Taking 2d6 emotional damage. |
-| Tapping Serra Angel. |
-| The Cock Ring of Alacrity. |
-| The collective wail of every Magic player suddenly realizing that they've spent hundreds of dollars on pieces of cardboard. |
-| The depression that ensues after catching 'em all. |
-| Yoshi's huge egg-laying cloaca. |
+| Loadi g f om a p evious save. |
+| Offe i g sexual favo s fo  a  o e a d a sheep. |
+| Ru i g out of stami a. |
+| Sepa ate d i ki g fou tai s fo  da k elves. |
+| Se  Jo ah Mo mo t's ce ulea -blue balls. |
+| Sha pe i g a foam b oadswo d o  a foam whetsto e. |
+| Stuffi g my balls i to a Sega Ge esis a d p essi g the powe  butto . |
+| Taki g 2d6 emotio al damage. |
+| Tappi g Se a A gel. |
+| The Cock Ri g of Alac ity. |
+| The collective wail of eve y Magic playe  sudde ly  ealizi g that they've spe t hu d eds of dolla s o  pieces of ca dboa d. |
+| The dep essio  that e sues afte  catchi g 'em all. |
+| Yoshi's huge egg-layi g cloaca. |
 
 |Total amount: 24|
 |---|

@@ -15,19 +15,19 @@ Answers amount: 11
 |---|
 
 ### Answers
-| Question |
+| Answers |
 |---|
-| Bank bailouts |
-| Brexit |
+| Ba k bailouts |
+| B exit |
 | Covfefe |
-| Furries |
-| Gerrymandering |
-| Kickstarter® |
-| Loan sharks or left sharks, whichever |
+| Fu ies |
+| Ge yma de i g |
+| Kicksta te ® |
+| Loa  sha ks o  left sha ks, whicheve  |
 | Mexico |
-| Moon rocks |
+| Moo   ocks |
 | Pizzagate |
-| Yoga pants |
+| Yoga pa ts |
 
 |Total amount: 11|
 |---|

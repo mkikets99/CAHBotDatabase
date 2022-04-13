@@ -65,169 +65,169 @@ Answers amount: 161
 |---|
 
 ### Answers
-| Question |
+| Answers |
 |---|
-| 9/11: Forgive and forget. |
-| A bathtub full of Jared from Subway's lost fat that he used as lube with underage girls. (I'm sorry.) |
-| A cat named Magic beating feline AIDS. |
-| A concetration camp counsellor. |
+| 9/11: Fo give a d fo get. |
+| A bathtub full of Ja ed f om Subway's lost fat that he used as lube with u de age gi ls. (I'm so y.) |
+| A cat  amed Magic beati g feli e AIDS. |
+| A co cet atio  camp cou sello . |
 | A dick made out of hot sauce. |
 | A dick so old it cums dust. |
-| A flask that doubles as a dildo so your alcoholism can finally finish fucking you. |
-| A fun-filled suicide pact. |
-| A lady in a wheelchair racing a Slinky® down a staircase. |
-| A lubed up butthole that sings like James Taylor instead of farting. |
-| A magical horse with a horn that you fuck called a Screwnicorn. |
-| A mommy blogger seconds away from drowning her children in the bathtub. |
+| A flask that doubles as a dildo so you  alcoholism ca  fi ally fi ish fucki g you. |
+| A fu -filled suicide pact. |
+| A lady i  a wheelchai   aci g a Sli ky® dow  a stai case. |
+| A lubed up butthole that si gs like James Taylo  i stead of fa ti g. |
+| A magical ho se with a ho  that you fuck called a Sc ew ico . |
+| A mommy blogge  seco ds away f om d ow i g he  child e  i  the bathtub. |
 | A mouth full of soft dick. |
-| A new assault rifle called the JFK-47. |
-| A smaller, whiter vagina. |
-| A tanning bed that makes you racist. |
-| A wilderness survivalist who sucks his own dick for protein. |
-| Adding a landing strip to your ass. |
-| Aggressively maintaining eye contact with my gynocologist. |
-| Airbnb but for people who need to shit. |
-| American't. |
-| An abused circus elephant named Donald Trunk. |
-| An awkward father daughter dance boner. |
-| An NRA member blowing a gun through a glory hole. |
-| Being racist only towards those pesky Native Americans. |
-| Big titties OR little titties, I don't give a fuck! |
-| Bigfoot's underwhelming penis. |
-| Breast implants made from crumpled newspaper. |
-| Captain Sandy Hook (a bunch of dead children dressed in a trench coat trying to pass as a sea captain). |
-| Child porn, meaning porn starring adults but written and directed by children. |
-| Clearing Eric Clapton's son off of the sidewalk. |
-| Clitoral paper cuts. |
-| Colonic chronic: Poo that gets you high. |
-| Covering up the tattoo of a past lover with a c-setion scar. |
-| Dick tears. |
-| Dressing up as a baby and fighting everyone at Planned Parenthood. |
-| Eating out Harriet Tubman for the password to the Underground Railroad. |
-| Explaining the dick on your friend's face to his mother when you hadn't realized he died of alcohol posioning. |
-| Explaining to the court why it's really the Jews who should be on trial here. |
-| Farting on a ranom baby. |
-| Finding a condom at the very center of the turducken. |
-| Finding your dad's paraplegic porn collection and realizing why he beats your mom. |
-| George Zimmerman auctioning off his gun to buy Skittles® and hoodies. |
-| Googling "how many dick warts is too many dick warts?" |
-| Having wet nightmares. |
-| Hitting another person with another person. |
-| House strippers ruining your zucchini. |
-| Instagramming your abortion #blessed. |
-| Jizzing on the wrong kid and not knowing what to say to the guy you paid. |
-| Kissing Hillary Clinton's thighs after running a 5K. |
-| Lip gloss for the labia. |
-| Lucy in the sky with diseases. |
-| Masturbatinhg to pictures of your mom's tits when you're hungry. |
-| Meeting your birth father through Tinder. |
-| Nut skin frozen to a steel pipe. |
-| O.J. Simpson's application for Uber. |
-| Obama's nickname for his wife's vagina: "The Oval Orifice." |
-| Pixar's first snuff film. |
-| Pubes held together in a little ponytail holder. |
-| Quietly tucking my penis under my belt. |
-| Realizing she's dead, but finishing anyway. |
-| Referring to your vagina as "The Wage Gap." |
-| Roofying her just for some god damn peace and quiet. |
-| Rubbing my period pussy on Steve Harvey's teeth. |
-| Scuba poopin'. |
-| Seriously fighting your shadow because you suffer from dementia and racism. |
-| Sniffing the bike seats at a women's gym. |
-| Spanx for your personality. |
-| Squirting after eating asparagus. |
-| Standing there knowing you could fuck that kid back to life. |
-| Sucking a dick so small you have to fake choke and gag just to be nice. |
-| Sucking on titties like you're trying to get the cancer out. |
-| Summer School II: Still Can't Read. |
-| Taking a friend's kid on a walk and coming back with a dog instead. |
-| Taking your daughter on a trip to Africa to get rid of that pesky clit. |
-| Tampons for squirrels. |
-| That floating plastic bag from American Beauty, but full of diarrhea. |
-| The cigar Donald Trump keeps in his daughters. |
-| The country where people die from gun violence all the time but people still want more guns. |
-| The dark secret behind the Special Olympics that nobody talks about. |
-| The scent of an excited Oprah. |
-| The smooth, creamy taste of Neverland Ranch Dressing. |
-| The tiny slave owner that lives under Pharrell's hat. |
-| Throwing cats into ceiling fans. |
-| Traveling back in time to find Hitler and suck his dick. |
-| Trying incest because she's such a good cook. |
-| Twinkies®. |
-| Voting with my vagina by mashing it against all the buttons. |
-| Wolverine's ever-regenerating foreskin. |
-| 300 days of sunshine, 365 days of white people. |
-| A forest fire that finally destroys that finally destroys Colorado Springs. |
-| A group of nuns on Ecstasy finger blasting themselves outside of The Church. |
-| A redneck finding out the hard way The Wrangler isn't a jeans store. |
-| A vagina that tastes like the bathroom floors at Tom's Diner. |
-| Accidentally showing your homemade porno at Film on the Rocks. |
-| Adele Arakawa: Providing informed, reliable boners weekdays at 6, 10, and 11pm. |
-| American Furniture Whorehouse. |
-| An asshole with dreadlocks. |
-| An atheist going to Garden of the Gods. |
-| Assuming anything with "Rocky Mountain" in the name is made with bull balls. |
-| Blucifer? I barely know'cifer! |
-| Breaking out your winter mirkin. |
-| Casa Bonita's even shittier location, Casa Vomita. |
-| Cheesman Park: where you can bury a bone AND uncover one. |
-| Columbine High School's new mascot, the Fightin' Early-Intervention Peer Mediator. |
-| Confusing Denver Health with a dispensary. |
-| Dealin' Doug, dealin' drugs. |
-| Denver turning down the Olympics so that it could focus on its band. |
-| Drunk Frank Azar trying to show you his "Strong Arm" again. |
-| Electing Snoop Dogg as District Comptroller of the Cannabis Cup. |
-| Farting on the MallRide. |
-| Getting fisted at First Friday. |
-| Getting in trouble for referring to your wife as "Kegs and Eggs." |
-| Getting the first bloody diarrhea at the first Chipotle®. |
-| Getting your period in the hallway at The Stanley Hotel aftr drinking too much rum. |
-| Giving your kid a B-Cycle™ for Christmas. |
-| Going to the Bluebird to see indie rock band Nippless Cage. |
-| Greeley: where if it doesn't smell like shit, you're not in Greeley. |
-| Hate fucking a Subaru™. |
-| Having your favorite chilldhood memory replaced by a mixed-use condo. |
-| Hotboxing the Balloon Boy. |
-| Jenga® made with breakfast burritos. |
-| Jizz in the Park. |
-| John Elway and Peyton Manning's huge headed love child. |
-| John Elway's football shaped cock. |
-| JonBenet Ramsey's cold, dead future. |
-| Leaving a trail of crushed Dale's Pale Ale cans when hiking to find your way back home. |
-| Letting Patrick Roy hit your wife because you're SUCH A HUGE FAN. |
-| Mistaking the Zombie Crawl for a homeless uprising. |
-| North Commerce City After Dark. |
-| Ordering the 7lb Jack-n-Grill burrito because you miss your dead baby. |
-| Organizing a pedal bar event for the handicapped. |
-| Panning for gold in Aurora (robbing your neighbor's house). |
-| Playing the pianos on the 16th St Mall with your genitals. |
-| Pueblo: Colorado's grundle. |
-| Punch Bowl Social®: where Tinder comes to life. |
-| Realizing Colorado natives were actually the Native Americans. |
-| Remembering Chubby's when it was flaccid. |
-| Screaming "JESUS! FUCK, NOT AGAIN!" while at the Denver Aquarium Shipwreck exhibit. |
-| Sending $3,000 on ski equipment that sits in the front hall closet for 15 years. |
-| Serving jail time for making eight-year-olds reenact THAT South Park episode. |
-| Shannon Shart Adult Diapers™. |
-| Stringing piano wire across a street right before the Denver Cruisers turn the corner. |
-| Taking dick pics at Tiny Town so it looks HUGE. |
-| Taking the kids to Lakeside because you don't love them anymore. |
-| That unmistakable Colfax itch. |
-| The 3 Jamaicans at Reggae on the Rocks. |
-| The Brown Palace: A place and a rich guy sex move! |
-| The Denver Satanic Gardens. |
-| The DIA Devil Horse having a field day with your butt. |
-| The only black guy in Aspen. |
-| The popular local sex move, the Steamboat Spring. |
-| The Ryan Gosling of Commerce City. |
-| The underrepresentation of African-American dancers at Blues events. |
-| The unshaved undercarriage of a Boulder Trustafarian. |
+| A  ew assault  ifle called the JFK-47. |
+| A smalle , white  vagi a. |
+| A ta i g bed that makes you  acist. |
+| A wilde ess su vivalist who sucks his ow  dick fo  p otei . |
+| Addi g a la di g st ip to you  ass. |
+| Agg essively mai tai i g eye co tact with my gy ocologist. |
+| Ai b b but fo  people who  eed to shit. |
+| Ame ica 't. |
+| A  abused ci cus elepha t  amed Do ald T u k. |
+| A  awkwa d fathe  daughte  da ce bo e . |
+| A  NRA membe  blowi g a gu  th ough a glo y hole. |
+| Bei g  acist o ly towa ds those pesky Native Ame ica s. |
+| Big titties OR little titties, I do 't give a fuck! |
+| Bigfoot's u de whelmi g pe is. |
+| B east impla ts made f om c umpled  ewspape . |
+| Captai  Sa dy Hook (a bu ch of dead child e  d essed i  a t e ch coat t yi g to pass as a sea captai ). |
+| Child po , mea i g po  sta i g adults but w itte  a d di ected by child e . |
+| Clea i g E ic Clapto 's so  off of the sidewalk. |
+| Clito al pape  cuts. |
+| Colo ic ch o ic: Poo that gets you high. |
+| Cove i g up the tattoo of a past love  with a c-setio  sca . |
+| Dick tea s. |
+| D essi g up as a baby a d fighti g eve yo e at Pla ed Pa e thood. |
+| Eati g out Ha iet Tubma  fo  the passwo d to the U de g ou d Rail oad. |
+| Explai i g the dick o  you  f ie d's face to his mothe  whe  you had 't  ealized he died of alcohol posio i g. |
+| Explai i g to the cou t why it's  eally the Jews who should be o  t ial he e. |
+| Fa ti g o  a  a om baby. |
+| Fi di g a co dom at the ve y ce te  of the tu ducke . |
+| Fi di g you  dad's pa aplegic po  collectio  a d  ealizi g why he beats you  mom. |
+| Geo ge Zimme ma  auctio i g off his gu  to buy Skittles® a d hoodies. |
+| Googli g "how ma y dick wa ts is too ma y dick wa ts?" |
+| Havi g wet  ightma es. |
+| Hitti g a othe  pe so  with a othe  pe so . |
+| House st ippe s  ui i g you  zucchi i. |
+| I stag ammi g you  abo tio  #blessed. |
+| Jizzi g o  the w o g kid a d  ot k owi g what to say to the guy you paid. |
+| Kissi g Hilla y Cli to 's thighs afte   u i g a 5K. |
+| Lip gloss fo  the labia. |
+| Lucy i  the sky with diseases. |
+| Mastu bati hg to pictu es of you  mom's tits whe  you' e hu g y. |
+| Meeti g you  bi th fathe  th ough Ti de . |
+| Nut ski  f oze  to a steel pipe. |
+| O.J. Simpso 's applicatio  fo  Ube . |
+| Obama's  ick ame fo  his wife's vagi a: "The Oval O ifice." |
+| Pixa 's fi st s uff film. |
+| Pubes held togethe  i  a little po ytail holde . |
+| Quietly tucki g my pe is u de  my belt. |
+| Realizi g she's dead, but fi ishi g a yway. |
+| Refe i g to you  vagi a as "The Wage Gap." |
+| Roofyi g he  just fo  some god dam  peace a d quiet. |
+| Rubbi g my pe iod pussy o  Steve Ha vey's teeth. |
+| Scuba poopi '. |
+| Se iously fighti g you  shadow because you suffe  f om deme tia a d  acism. |
+| S iffi g the bike seats at a wome 's gym. |
+| Spa x fo  you  pe so ality. |
+| Squi ti g afte  eati g aspa agus. |
+| Sta di g the e k owi g you could fuck that kid back to life. |
+| Sucki g a dick so small you have to fake choke a d gag just to be  ice. |
+| Sucki g o  titties like you' e t yi g to get the ca ce  out. |
+| Summe  School II: Still Ca 't Read. |
+| Taki g a f ie d's kid o  a walk a d comi g back with a dog i stead. |
+| Taki g you  daughte  o  a t ip to Af ica to get  id of that pesky clit. |
+| Tampo s fo  squi els. |
+| That floati g plastic bag f om Ame ica  Beauty, but full of dia hea. |
+| The ciga  Do ald T ump keeps i  his daughte s. |
+| The cou t y whe e people die f om gu  viole ce all the time but people still wa t mo e gu s. |
+| The da k sec et behi d the Special Olympics that  obody talks about. |
+| The sce t of a  excited Op ah. |
+| The smooth, c eamy taste of Neve la d Ra ch D essi g. |
+| The ti y slave ow e  that lives u de  Pha ell's hat. |
+| Th owi g cats i to ceili g fa s. |
+| T aveli g back i  time to fi d Hitle  a d suck his dick. |
+| T yi g i cest because she's such a good cook. |
+| Twi kies®. |
+| Voti g with my vagi a by mashi g it agai st all the butto s. |
+| Wolve i e's eve - ege e ati g fo eski . |
+| 300 days of su shi e, 365 days of white people. |
+| A fo est fi e that fi ally dest oys that fi ally dest oys Colo ado Sp i gs. |
+| A g oup of  u s o  Ecstasy fi ge  blasti g themselves outside of The Chu ch. |
+| A  ed eck fi di g out the ha d way The W a gle  is 't a jea s sto e. |
+| A vagi a that tastes like the bath oom floo s at Tom's Di e . |
+| Accide tally showi g you  homemade po o at Film o  the Rocks. |
+| Adele A akawa: P ovidi g i fo med,  eliable bo e s weekdays at 6, 10, a d 11pm. |
+| Ame ica  Fu itu e Who ehouse. |
+| A  asshole with d eadlocks. |
+| A  atheist goi g to Ga de  of the Gods. |
+| Assumi g a ythi g with "Rocky Mou tai " i  the  ame is made with bull balls. |
+| Blucife ? I ba ely k ow'cife ! |
+| B eaki g out you  wi te  mi ki . |
+| Casa Bo ita's eve  shittie  locatio , Casa Vomita. |
+| Cheesma  Pa k: whe e you ca  bu y a bo e AND u cove  o e. |
+| Columbi e High School's  ew mascot, the Fighti ' Ea ly-I te ve tio  Pee  Mediato . |
+| Co fusi g De ve  Health with a dispe sa y. |
+| Deali ' Doug, deali ' d ugs. |
+| De ve  tu i g dow  the Olympics so that it could focus o  its ba d. |
+| D u k F a k Aza  t yi g to show you his "St o g A m" agai . |
+| Electi g S oop Dogg as Dist ict Compt olle  of the Ca abis Cup. |
+| Fa ti g o  the MallRide. |
+| Getti g fisted at Fi st F iday. |
+| Getti g i  t ouble fo   efe i g to you  wife as "Kegs a d Eggs." |
+| Getti g the fi st bloody dia hea at the fi st Chipotle®. |
+| Getti g you  pe iod i  the hallway at The Sta ley Hotel aft  d i ki g too much  um. |
+| Givi g you  kid a B-Cycle™ fo  Ch istmas. |
+| Goi g to the Bluebi d to see i die  ock ba d Nippless Cage. |
+| G eeley: whe e if it does 't smell like shit, you' e  ot i  G eeley. |
+| Hate fucki g a Suba u™. |
+| Havi g you  favo ite chilldhood memo y  eplaced by a mixed-use co do. |
+| Hotboxi g the Balloo  Boy. |
+| Je ga® made with b eakfast bu itos. |
+| Jizz i  the Pa k. |
+| Joh  Elway a d Peyto  Ma i g's huge headed love child. |
+| Joh  Elway's football shaped cock. |
+| Jo Be et Ramsey's cold, dead futu e. |
+| Leavi g a t ail of c ushed Dale's Pale Ale ca s whe  hiki g to fi d you  way back home. |
+| Letti g Pat ick Roy hit you  wife because you' e SUCH A HUGE FAN. |
+| Mistaki g the Zombie C awl fo  a homeless up isi g. |
+| No th Comme ce City Afte  Da k. |
+| O de i g the 7lb Jack- -G ill bu ito because you miss you  dead baby. |
+| O ga izi g a pedal ba  eve t fo  the ha dicapped. |
+| Pa i g fo  gold i  Au o a ( obbi g you   eighbo 's house). |
+| Playi g the pia os o  the 16th St Mall with you  ge itals. |
+| Pueblo: Colo ado's g u dle. |
+| Pu ch Bowl Social®: whe e Ti de  comes to life. |
+| Realizi g Colo ado  atives we e actually the Native Ame ica s. |
+| Remembe i g Chubby's whe  it was flaccid. |
+| Sc eami g "JESUS! FUCK, NOT AGAIN!" while at the De ve  Aqua ium Shipw eck exhibit. |
+| Se di g $3,000 o  ski equipme t that sits i  the f o t hall closet fo  15 yea s. |
+| Se vi g jail time fo  maki g eight-yea -olds  ee act THAT South Pa k episode. |
+| Sha o  Sha t Adult Diape s™. |
+| St i gi g pia o wi e ac oss a st eet  ight befo e the De ve  C uise s tu  the co e . |
+| Taki g dick pics at Ti y Tow  so it looks HUGE. |
+| Taki g the kids to Lakeside because you do 't love them a ymo e. |
+| That u mistakable Colfax itch. |
+| The 3 Jamaica s at Reggae o  the Rocks. |
+| The B ow  Palace: A place a d a  ich guy sex move! |
+| The De ve  Sata ic Ga de s. |
+| The DIA Devil Ho se havi g a field day with you  butt. |
+| The o ly black guy i  Aspe . |
+| The popula  local sex move, the Steamboat Sp i g. |
+| The Rya  Gosli g of Comme ce City. |
+| The u de ep ese tatio  of Af ica -Ame ica  da ce s at Blues eve ts. |
+| The u shaved u de ca iage of a Boulde  T ustafa ia . |
 | The XXX Games. |
-| Tim Tebow's Reign of Christian Terror. |
-| Tour de Fat bottom girls. |
-| Traffic going to the mountains, because traffic needs to get out of town sometimes, too. |
-| Water World's Thunder Bay Wave Pool filled with jizz and tears. |
-| Whispering "Green chile is people!" |
+| Tim Tebow's Reig  of Ch istia  Te o . |
+| Tou  de Fat bottom gi ls. |
+| T affic goi g to the mou tai s, because t affic  eeds to get out of tow  sometimes, too. |
+| Wate  Wo ld's Thu de  Bay Wave Pool filled with jizz a d tea s. |
+| Whispe i g "G ee  chile is people!" |
 
 |Total amount: 161|
 |---|

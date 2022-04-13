@@ -70,8 +70,7 @@ Answers amount: 272
 | It's a bird! It's a plane! No it's _! | 1 |
 | Just a spoon full of _ helps the medicine go down. | 1 |
 | Kill two birds with one _. | 1 |
-| Knock, knock.Whos there?
-_. | 1 |
+| Knock, knock. Whos there? _. | 1 |
 | Lady and the _. | 1 |
 | Last night I found _ in my bed. | 1 |
 | Let all play Paper, Scissors, _. | 1 |
@@ -163,280 +162,280 @@ _. | 1 |
 |---|
 
 ### Answers
-| Question |
+| Answers |
 |---|
 | #Hashtag |
-| 20,000 Leagues Under the Sea™ |
-| A dirty Q-Tip™ |
-| A fat sports analyst |
+| 20,000 Leagues U de  the Sea™ |
+| A di ty Q-Tip™ |
+| A fat spo ts a alyst |
 | a hole |
-| A pinata full of baked beans |
-| A Plunger |
-| A sponge |
-| A teaspoon full of toenail clippings |
-| A three legged tiger chasing a gazelle |
-| A turd burglar |
-| A turkey baster |
-| A unicorn farting rainbows |
-| A years supply of turkey jerky |
-| Achy breaky mullets |
-| After concert morning voice |
-| Alien probing |
-| All hail the sofa king! |
-| An entire day without using the internet |
+| A pi ata full of baked bea s |
+| A Plu ge  |
+| A spo ge |
+| A teaspoo  full of toe ail clippi gs |
+| A th ee legged tige  chasi g a gazelle |
+| A tu d bu gla  |
+| A tu key baste  |
+| A u ico  fa ti g  ai bows |
+| A yea s supply of tu key je ky |
+| Achy b eaky mullets |
+| Afte  co ce t mo i g voice |
+| Alie  p obi g |
+| All hail the sofa ki g! |
+| A  e ti e day without usi g the i te et |
 | Atomic wedgies |
 | Awesome sauce |
-| Awkwardly getting caught sitting next to my sibling on the kiss cam |
+| Awkwa dly getti g caught sitti g  ext to my sibli g o  the kiss cam |
 | Back boobs |
-| Backpack burrito |
-| Bacon strips |
+| Backpack bu ito |
+| Baco  st ips |
 | Bag of pickled pigs feet |
-| Baking an air muffin |
-| Baking brownies |
-| Banana hammock |
-| Bangkok |
-| Barking spiders |
-| Bat wings |
-| Bearded lady |
-| Bees knees |
-| Being poned |
+| Baki g a  ai  muffi  |
+| Baki g b ow ies |
+| Ba a a hammock |
+| Ba gkok |
+| Ba ki g spide s |
+| Bat wi gs |
+| Bea ded lady |
+| Bees k ees |
+| Bei g po ed |
 | Big butts |
-| Biscuits n' gravy |
-| Blackbeard |
+| Biscuits  ' g avy |
+| Blackbea d |
 | Boobs |
-| Boogers |
-| Brain kernels in zombie poop |
-| Brown clowns |
+| Booge s |
+| B ai  ke els i  zombie poop |
+| B ow  clow s |
 | Bubble Guppies™ |
-| Bung-O the clown |
-| Burpees |
-| Burping out candles |
-| Butt bingo |
+| Bu g-O the clow  |
+| Bu pees |
+| Bu pi g out ca dles |
+| Butt bi go |
 | Butt flood |
-| Butt lovers pizza |
-| Butt thermometer |
-| Camel toenail |
+| Butt love s pizza |
+| Butt the momete  |
+| Camel toe ail |
 | Camp Dickie-doo |
-| Captain America's™ shield |
-| Captain Obvious |
-| Captain Underpants |
-| Captain's Crunch |
-| Captain's log |
-| Care Bear stares |
-| Cat litter |
-| Cat Man Do |
-| Cat puke between your toes |
-| Chafed nippers |
+| Captai  Ame ica's™ shield |
+| Captai  Obvious |
+| Captai  U de pa ts |
+| Captai 's C u ch |
+| Captai 's log |
+| Ca e Bea  sta es |
+| Cat litte  |
+| Cat Ma  Do |
+| Cat puke betwee  you  toes |
+| Chafed  ippe s |
 | Cheesy poofs™ |
-| Chewbacaa's dingleberries |
-| Chicken butt |
-| Chicken thigh |
+| Chewbacaa's di glebe ies |
+| Chicke  butt |
+| Chicke  thigh |
 | Chili dogs |
-| Chocolate bar floating in a pool |
-| Chunky milk |
-| Clifford the Big Red Dog's™ big brown log |
-| Cooked pizza rolls with a frozen center |
-| Cool beans |
-| Crop dusting |
+| Chocolate ba  floati g i  a pool |
+| Chu ky milk |
+| Cliffo d the Big Red Dog's™ big b ow  log |
+| Cooked pizza  olls with a f oze  ce te  |
+| Cool bea s |
+| C op dusti g |
 | Cute cat videos |
-| Dad's hemorroid pad |
-| Dad's special microwave dinner |
-| Daddy's listening skills |
-| Diarrhea cha cha cha |
-| Dingle and the berries |
-| Dingus |
-| Dirt button |
-| DJ Lance™ |
-| Dog farts |
-| Dr. Doo Doo Brown |
-| Drake and Young Jeezy sharing a milkshake |
+| Dad's hemo oid pad |
+| Dad's special mic owave di e  |
+| Daddy's liste i g skills |
+| Dia hea cha cha cha |
+| Di gle a d the be ies |
+| Di gus |
+| Di t butto  |
+| DJ La ce™ |
+| Dog fa ts |
+| D . Doo Doo B ow  |
+| D ake a d You g Jeezy sha i g a milkshake |
 | Duck lips |
-| Dung beetle |
-| Dust bunnies |
-| Eating a firefly to make your teeth glow |
-| Electric Avenue |
-| Everything is awesome! |
-| Fake lottery tickets |
-| Fanny packs |
-| Fart in a space suit |
-| Fart in the car. Lock the windows. Turn on the heat. Enjoy. |
-| Fart tennis |
-| Fartknockers |
-| Farts in a throw pillow |
-| Fat guy in a little coat |
-| Fat lady in yoga pants |
-| Fat shaming |
+| Du g beetle |
+| Dust bu ies |
+| Eati g a fi efly to make you  teeth glow |
+| Elect ic Ave ue |
+| Eve ythi g is awesome! |
+| Fake lotte y tickets |
+| Fa y packs |
+| Fa t i  a space suit |
+| Fa t i  the ca . Lock the wi dows. Tu  o  the heat. E joy. |
+| Fa t te is |
+| Fa tk ocke s |
+| Fa ts i  a th ow pillow |
+| Fat guy i  a little coat |
+| Fat lady i  yoga pa ts |
+| Fat shami g |
 | Feces pieces |
-| Feeding baby bird style |
-| Finger painting |
-| Flaming bag of poop on my front porch |
-| Free doodie |
-| Frog farts |
-| Fromunda cheese |
-| Front farts |
-| Front wedgies |
-| Fruit boots |
+| Feedi g baby bi d style |
+| Fi ge  pai ti g |
+| Flami g bag of poop o  my f o t po ch |
+| F ee doodie |
+| F og fa ts |
+| F omu da cheese |
+| F o t fa ts |
+| F o t wedgies |
+| F uit boots |
 | Fudgesicles |
-| Full-on battle beast mode |
-| Funkytown |
-| Funny smell of grandma's house |
-| Gallons of melted Velveeta™ |
-| Getting hit below the belt with a football |
-| Getting ready to get ready |
-| Gogurt burps |
-| Grandma's jitterbug phone |
-| Grouchland |
-| Grumpy cats |
-| Grumpy munchkins |
-| Gum in the hair |
-| Helping your grandparent get dressed |
-| Hershey™ and the squirts |
-| Hershey™ highway |
-| Hillary Duff |
-| Hollywood dreams |
-| Honey badger |
-| Hoof hearted |
+| Full-o  battle beast mode |
+| Fu kytow  |
+| Fu y smell of g a dma's house |
+| Gallo s of melted Velveeta™ |
+| Getti g hit below the belt with a football |
+| Getti g  eady to get  eady |
+| Gogu t bu ps |
+| G a dma's jitte bug pho e |
+| G ouchla d |
+| G umpy cats |
+| G umpy mu chki s |
+| Gum i  the hai  |
+| Helpi g you  g a dpa e t get d essed |
+| He shey™ a d the squi ts |
+| He shey™ highway |
+| Hilla y Duff |
+| Hollywood d eams |
+| Ho ey badge  |
+| Hoof hea ted |
 | Hot Pockets™ |
 | Hulk smashed |
-| Human beans |
-| Humble brags |
-| Hungry + Angry = Hangry |
-| In a van down by the river |
-| In your face |
-| Inflatable dart boards |
+| Huma  bea s |
+| Humble b ags |
+| Hu g y + A g y = Ha g y |
+| I  a va  dow  by the  ive  |
+| I  you  face |
+| I flatable da t boa ds |
 | Itchy bum |
-| Jar of egg farts |
-| Jenga™ tower made of cheese sticks |
-| John Cena |
-| Justin Bieber |
-| Katy Perry's new boyfriend |
-| Kim Kardashian's booty |
-| Kindergarten cops |
-| Kittens in mittens |
-| Knuckle sandwiches |
+| Ja  of egg fa ts |
+| Je ga™ towe  made of cheese sticks |
+| Joh  Ce a |
+| Justi  Biebe  |
+| Katy Pe y's  ew boyf ie d |
+| Kim Ka dashia 's booty |
+| Ki de ga te  cops |
+| Kitte s i  mitte s |
+| K uckle sa dwiches |
 | Lady Gaga |
-| Lazy Sunday |
-| Lebron James' size 15 shoe |
+| Lazy Su day |
+| Leb o  James' size 15 shoe |
 | Like a bo$ |
-| Luke Skywalkers™ robot hand |
-| Magic Mushrooms |
-| Mandatory family time |
-| Manties |
-| Master splinter |
-| Mayor McCheeze's™ cheese tongue |
-| Meatlofa! The world's first meatloaf sofa |
-| Mexican mudslide |
-| Miley Cyrus |
-| Mom is pregnant again |
-| Mom's purple wine teeth |
+| Luke Skywalke s™  obot ha d |
+| Magic Mush ooms |
+| Ma dato y family time |
+| Ma ties |
+| Maste  spli te  |
+| Mayo  McCheeze's™ cheese to gue |
+| Meatlofa! The wo ld's fi st meatloaf sofa |
+| Mexica  mudslide |
+| Miley Cy us |
+| Mom is p eg a t agai  |
+| Mom's pu ple wi e teeth |
 | Moobs |
-| Moose knuckles |
-| Mouth breathers |
-| Mr Weird Beard |
-| Mr. Froto's ring |
-| Mr. Maigi |
-| Mr. Poopeedoopee |
-| Mr. Richard Johnson |
-| My cat's starfish |
-| My cellphone after landing in the toilet |
-| My Dad's back hair |
+| Moose k uckles |
+| Mouth b eathe s |
+| M  Wei d Bea d |
+| M . F oto's  i g |
+| M . Maigi |
+| M . Poopeedoopee |
+| M . Richa d Joh so  |
+| My cat's sta fish |
+| My cellpho e afte  la di g i  the toilet |
+| My Dad's back hai  |
 | My dog's lipstick |
-| My entire high school football team |
-| Mystery egg wrapped in Play-Doh™ |
-| Mystery hair on my donut |
-| Nahrwals |
-| Neck beards |
-| Nick Jonas™ |
-| Nicki Minaj |
-| Ninja bread men |
+| My e ti e high school football team |
+| Myste y egg w apped i  Play-Doh™ |
+| Myste y hai  o  my do ut |
+| Nah wals |
+| Neck bea ds |
+| Nick Jo as™ |
+| Nicki Mi aj |
+| Ni ja b ead me  |
 | Oompa-Loompas™ |
-| Optimus Prime's™ exhaust pipe |
-| Pee on the seat |
+| Optimus P ime's™ exhaust pipe |
+| Pee o  the seat |
 | Pee pee tee pee |
-| Peeing in the shower |
-| Peeing my name in the snow |
-| Pepperfarts |
+| Peei g i  the showe  |
+| Peei g my  ame i  the s ow |
+| Peppe fa ts |
 | Pickle juice |
-| Pinch a loaf |
-| Pink poodles eating oodles of noodles |
-| Plump pageant moms |
+| Pi ch a loaf |
+| Pi k poodles eati g oodles of  oodles |
+| Plump pagea t moms |
 | Poop emoji |
-| Poop spelled backwards |
+| Poop spelled backwa ds |
 | Poops Mcgee |
-| Puckered starfish |
-| Pull my finger |
-| Purple nurples |
+| Pucke ed sta fish |
+| Pull my fi ge  |
+| Pu ple  u ples |
 | R2D2™ |
-| Rainbow Dash™ droppings |
-| Rotten eggs |
-| Rubber baby buggy bumpers |
-| Sad pancakes |
-| Sand in the cheeks |
-| Santa's big fat sack |
+| Rai bow Dash™ d oppi gs |
+| Rotte  eggs |
+| Rubbe  baby buggy bumpe s |
+| Sad pa cakes |
+| Sa d i  the cheeks |
+| Sa ta's big fat sack |
 | Sasquatch |
-| Scooby snacks™ |
+| Scooby s acks™ |
 | Sea biscuit |
-| Secret crush announced on the school P.A. |
+| Sec et c ush a ou ced o  the school P.A. |
 | Selfie fail |
 | Selfie sticks |
-| Sesame Street™ |
-| Shark sugar |
-| Shart tank |
-| Shaving |
-| Shopkinz™ |
+| Sesame St eet™ |
+| Sha k suga  |
+| Sha t ta k |
+| Shavi g |
+| Shopki z™ |
 | Sloth's Baby Ruth™ |
-| Smurf Village |
-| Snapchatting in your sleep |
-| Sneaky snakes |
-| Spagooter |
-| Spongebob's square poop |
+| Smu f Village |
+| S apchatti g i  you  sleep |
+| S eaky s akes |
+| Spagoote  |
+| Spo gebob's squa e poop |
 | Squeeze cheese |
-| Stranger danger |
-| Sugar Bear™ |
-| Super Mario™ fart |
-| Superman's™ skid marks |
+| St a ge  da ge  |
+| Suga  Bea ™ |
+| Supe  Ma io™ fa t |
+| Supe ma 's™ skid ma ks |
 | Taco Tuesday |
-| Taylor Swift |
-| Teacher crush |
-| That dream where I am at school naked |
-| That kid that never stopped eating paste |
-| The babysitter's™ boyfriend |
-| The bully that never wears deodorant |
-| The day I got a wedgie and forgot to wipe properly |
+| Taylo  Swift |
+| Teache  c ush |
+| That d eam whe e I am at school  aked |
+| That kid that  eve  stopped eati g paste |
+| The babysitte 's™ boyf ie d |
+| The bully that  eve  wea s deodo a t |
+| The day I got a wedgie a d fo got to wipe p ope ly |
 | The Gooch |
-| The janitor's vomit dust |
-| The kid who pooped their pants on the bus |
-| The kid who wipes boogers under the desk |
-| The Ol'courtesy flush |
-| The rabbit hole |
-| Thor's hammer time |
-| Those kooky people that live downstairs |
-| Throbbing zit on picture day |
-| Tighty whitie underpants |
-| Tipped over Port-O-Potty |
-| Toilet paper |
-| Triple rainbow |
-| Twinkle toes |
-| Underoos™ |
-| Underwear |
-| Upside down frowns |
-| Uranus - The brown planet |
-| Urethra Franklin |
-| Used toilet paper |
-| Using poison ivy to wipe your butt |
+| The ja ito 's vomit dust |
+| The kid who pooped thei  pa ts o  the bus |
+| The kid who wipes booge s u de  the desk |
+| The Ol'cou tesy flush |
+| The  abbit hole |
+| Tho 's hamme  time |
+| Those kooky people that live dow stai s |
+| Th obbi g zit o  pictu e day |
+| Tighty whitie u de pa ts |
+| Tipped ove  Po t-O-Potty |
+| Toilet pape  |
+| T iple  ai bow |
+| Twi kle toes |
+| U de oos™ |
+| U de wea  |
+| Upside dow  f ow s |
+| U a us - The b ow  pla et |
+| U eth a F a kli  |
+| Used toilet pape  |
+| Usi g poiso  ivy to wipe you  butt |
 | Wacky tobacky |
-| Walt Disney's secret vault |
+| Walt Dis ey's sec et vault |
 | Wax lips |
-| Wet farts |
+| Wet fa ts |
 | Wet wipes |
-| Whoflungpoo |
-| Wicked step sisters |
-| Wiener dogs |
-| Winnie's poo |
-| Wolfman's nards |
-| Woopy cushions |
-| Yellow snow |
-| Your mom after she's read Lady Chatterly's Lover |
+| Whoflu gpoo |
+| Wicked step siste s |
+| Wie e  dogs |
+| Wi ie's poo |
+| Wolfma 's  a ds |
+| Woopy cushio s |
+| Yellow s ow |
+| You  mom afte  she's  ead Lady Chatte ly's Love  |
 
 |Total amount: 272|
 |---|

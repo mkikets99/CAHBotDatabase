@@ -89,230 +89,230 @@ Answers amount: 222
 |---|
 
 ### Answers
-| Question |
+| Answers |
 |---|
-| 20 pieces of sweet Chicken McNugget goodness. |
-| 3D printed sex toys. |
-| A 10 pount jar of ointment. |
-| A boner in tight pants. |
-| A brother from another mother. |
-| A butter face. |
-| A creamy discharge. |
-| A dump on the floor. |
-| A fat kid going to town on an entire birthday cake. |
-| A frozen banana. |
-| A full face transplant. |
-| A furry convention. |
-| A game of Operation, but on real people. |
-| A gluten free nightmare. |
-| A hobo punching a pigeon out of midair. |
-| A hot chocolate surprise. |
-| A human pinata. |
-| A juice cleanse gone horribly wrong. |
+| 20 pieces of sweet Chicke  McNugget good ess. |
+| 3D p i ted sex toys. |
+| A 10 pou t ja  of oi tme t. |
+| A bo e  i  tight pa ts. |
+| A b othe  f om a othe  mothe . |
+| A butte  face. |
+| A c eamy discha ge. |
+| A dump o  the floo . |
+| A fat kid goi g to tow  o  a  e ti e bi thday cake. |
+| A f oze  ba a a. |
+| A full face t a spla t. |
+| A fu y co ve tio . |
+| A game of Ope atio , but o   eal people. |
+| A glute  f ee  ightma e. |
+| A hobo pu chi g a pigeo  out of midai . |
+| A hot chocolate su p ise. |
+| A huma  pi ata. |
+| A juice clea se go e ho ibly w o g. |
 | A loose butthole. |
-| A nun with a drinking problem. |
-| A paradox in which future you travels back in time to tell present-day you that no one gives a shit about paradoxes. |
+| A  u  with a d i ki g p oblem. |
+| A pa adox i  which futu e you t avels back i  time to tell p ese t-day you that  o o e gives a shit about pa adoxes. |
 | A plate full of SPAM. |
-| A pop culture reference no one understands. |
-| A racist-themed costume party. |
-| A robit who joins together with other robots to form one mega robot. |
-| A self-driving car with an attitude problem. |
-| A shitty FICO score. |
-| A shotgun blast to the dick. |
-| A silent orgasm. |
-| A sopping wet vagine. |
-| A stripper jumping out of a cake. |
-| A swanky Motel 6. |
-| A Taser to the face. |
-| A tongue in the butt. |
-| A used diaper filled with Indian food. |
-| A vibrating toothbrush. |
-| A warehouse full of blow up sex dolls. |
-| A warm watermelon with a hole cut in it. |
-| A whale's vagina. |
-| Am man crush. |
-| Amazon drones. |
-| An Alabama hot pocket. |
-| An insanity plea. |
-| An unfathomable fear of midgets. |
-| Babies born addicted to prescription pain meds. |
-| Being balls to the wall horny. |
-| Benjamin Button disease. |
-| Bill Cosby, before we knew what a monster he is. |
-| Born again virgins. |
-| Breaking up through text. |
-| Bringing sexy back. |
-| Bruce Willis being dead the whole movie. |
+| A pop cultu e  efe e ce  o o e u de sta ds. |
+| A  acist-themed costume pa ty. |
+| A  obit who joi s togethe  with othe   obots to fo m o e mega  obot. |
+| A self-d ivi g ca  with a  attitude p oblem. |
+| A shitty FICO sco e. |
+| A shotgu  blast to the dick. |
+| A sile t o gasm. |
+| A soppi g wet vagi e. |
+| A st ippe  jumpi g out of a cake. |
+| A swa ky Motel 6. |
+| A Tase  to the face. |
+| A to gue i  the butt. |
+| A used diape  filled with I dia  food. |
+| A vib ati g toothb ush. |
+| A wa ehouse full of blow up sex dolls. |
+| A wa m wate melo  with a hole cut i  it. |
+| A whale's vagi a. |
+| Am ma  c ush. |
+| Amazo  d o es. |
+| A  Alabama hot pocket. |
+| A  i sa ity plea. |
+| A  u fathomable fea  of midgets. |
+| Babies bo  addicted to p esc iptio  pai  meds. |
+| Bei g balls to the wall ho y. |
+| Be jami  Butto  disease. |
+| Bill Cosby, befo e we k ew what a mo ste  he is. |
+| Bo  agai  vi gi s. |
+| B eaki g up th ough text. |
+| B i gi g sexy back. |
+| B uce Willis bei g dead the whole movie. |
 | Buttsex. |
-| Caitlyn Jenner's tits. |
-| Cheetos fingers. |
-| Clown makeup that won't come off. |
-| Clowns that are afraid of children. |
-| Constantly being asked, "Is it in yet?" |
-| Convincing Asians you're a celebrity. |
-| Couples who color coordinate outfits. |
-| DJ Finger Blast. |
-| Fat shaming that ugly person you see in the mirror each day. |
+| Caitly  Je e 's tits. |
+| Cheetos fi ge s. |
+| Clow  makeup that wo 't come off. |
+| Clow s that a e af aid of child e . |
+| Co sta tly bei g asked, "Is it i  yet?" |
+| Co vi ci g Asia s you' e a celeb ity. |
+| Couples who colo  coo di ate outfits. |
+| DJ Fi ge  Blast. |
+| Fat shami g that ugly pe so  you see i  the mi o  each day. |
 | Feces. |
-| Female circumcision. |
-| Fetish porn so obscure you can't even find it online. |
-| Flo from Progressive. |
-| Food porn. |
-| Gender neutral bathrooms. |
-| Getting caught up in the moment and forgetting to pull out. |
-| Getting turned on for all the wrong reasons. |
-| Going number two when you meant to go number one. |
-| Going to pound town. |
-| Grandma's oit briwbues. |
-| Hand stuff. |
-| Having another kid make up for the crushing disappointment of the first one. |
-| Having multiple personalities and none of them are any fun. |
-| Imaginary friends. |
+| Female ci cumcisio . |
+| Fetish po  so obscu e you ca 't eve  fi d it o li e. |
+| Flo f om P og essive. |
+| Food po . |
+| Ge de   eut al bath ooms. |
+| Getti g caught up i  the mome t a d fo getti g to pull out. |
+| Getti g tu ed o  fo  all the w o g  easo s. |
+| Goi g  umbe  two whe  you mea t to go  umbe  o e. |
+| Goi g to pou d tow . |
+| G a dma's oit b iwbues. |
+| Ha d stuff. |
+| Havi g a othe  kid make up fo  the c ushi g disappoi tme t of the fi st o e. |
+| Havi g multiple pe so alities a d  o e of them a e a y fu . |
+| Imagi a y f ie ds. |
 | Jell-O shots without the Jell-O. |
-| John Stamos's ageless good looks. |
-| Luring children into a van with promises of Candy. |
-| Masturbating like a teenager with a fast internet connection. |
-| Mexican friends. |
-| Mutherfucking Deadpool! |
-| My preciousssssss! |
-| Not knowing if you have a small penis or just really gigantic balls. |
-| Nothing but side boob. |
-| Old age creeping up on you until your inevitable death. |
-| Old Playboy magazines with the pages stuck together. |
-| Paying someone to pee on you. |
-| Pokemon Go. |
-| Poop stains.  Nothing but poop stains everywhere. |
-| Pretentious food trucks. |
-| Public hair growing out of control. |
+| Joh  Stamos's ageless good looks. |
+| Lu i g child e  i to a va  with p omises of Ca dy. |
+| Mastu bati g like a tee age  with a fast i te et co ectio . |
+| Mexica  f ie ds. |
+| Muthe fucki g Deadpool! |
+| My p eciousssssss! |
+| Not k owi g if you have a small pe is o  just  eally giga tic balls. |
+| Nothi g but side boob. |
+| Old age c eepi g up o  you u til you  i evitable death. |
+| Old Playboy magazi es with the pages stuck togethe . |
+| Payi g someo e to pee o  you. |
+| Pokemo  Go. |
+| Poop stai s.  Nothi g but poop stai s eve ywhe e. |
+| P ete tious food t ucks. |
+| Public hai  g owi g out of co t ol. |
 | Racist Emojis. |
-| Ribbed for her pleasure. |
-| Romantic acronyms like DTF and ATM. |
-| Semen residue. |
-| Shaquille O'Neal throwing barrels at Super Mario. |
-| Someone who literally got stuck inside the Internet. |
-| Tea bagging. |
-| THe largest butt plug you've ever seen. |
-| Those Goddamn 'Keep Calm and Carry On' t-shirts. |
-| Those jackasses pretending to hold up a Leaning Tower of Pisa in their vacation photo. |
-| Tramp stamps. |
-| Truffle butter. |
-| Untreatable STDs. |
-| Vaginal rejuvenation. |
-| Waking up without your dignity. |
-| Walking in on your parents having sex and not hating it. |
+| Ribbed fo  he  pleasu e. |
+| Roma tic ac o yms like DTF a d ATM. |
+| Seme   esidue. |
+| Shaquille O'Neal th owi g ba els at Supe  Ma io. |
+| Someo e who lite ally got stuck i side the I te et. |
+| Tea baggi g. |
+| THe la gest butt plug you've eve  see . |
+| Those Goddam  'Keep Calm a d Ca y O ' t-shi ts. |
+| Those jackasses p ete di g to hold up a Lea i g Towe  of Pisa i  thei  vacatio  photo. |
+| T amp stamps. |
+| T uffle butte . |
+| U t eatable STDs. |
+| Vagi al  ejuve atio . |
+| Waki g up without you  dig ity. |
+| Walki g i  o  you  pa e ts havi g sex a d  ot hati g it. |
 | Who gives a shit? |
-| Your mom's new boyfriend. |
-| Zero Facebook friends. |
-| A 50 Shades of Grey sex party. |
-| A basket of deplorables. |
-| A classic murder/suicide. |
-| A collection of used pregnancy tests. |
-| A courtesy flush. |
+| You  mom's  ew boyf ie d. |
+| Ze o Facebook f ie ds. |
+| A 50 Shades of G ey sex pa ty. |
+| A basket of deplo ables. |
+| A classic mu de /suicide. |
+| A collectio  of used p eg a cy tests. |
+| A cou tesy flush. |
 | A dad bod. |
-| A desperate mall Santa with nothing to lose. |
-| A dump so intense you have to shower afterwards. |
-| A female erection. |
+| A despe ate mall Sa ta with  othi g to lose. |
+| A dump so i te se you have to showe  afte wa ds. |
+| A female e ectio . |
 | A fist full of pubes. |
-| A game of "find that smell". |
-| A Game of Thrones incest scene. |
-| A giant 300-pound Chinese baby wearing tinted aviator glasses. |
-| A gynecologist digging deep...for compliments. |
-| A half assed hand job. |
+| A game of "fi d that smell". |
+| A Game of Th o es i cest sce e. |
+| A gia t 300-pou d Chi ese baby wea i g ti ted aviato  glasses. |
+| A gy ecologist diggi g deep...fo  complime ts. |
+| A half assed ha d job. |
 | A Hello Kitty fetish. |
 | A huge bitch. |
-| A lifetime of bad decisions. |
-| A long overdue shower. |
-| A prostate massage. |
+| A lifetime of bad decisio s. |
+| A lo g ove due showe . |
+| A p ostate massage. |
 | A Shake Weight. |
-| A toaster that understands love. |
-| Alternative facts. |
-| An alien anal probe. |
-| An old toothless woman sucking the jelly out of a donut. |
-| Backhanded compliments. |
+| A toaste  that u de sta ds love. |
+| Alte ative facts. |
+| A  alie  a al p obe. |
+| A  old toothless woma  sucki g the jelly out of a do ut. |
+| Backha ded complime ts. |
 | Baked ass. |
-| Balls in your mouth. |
-| Bangkok prostitutes. |
-| Being gay for pay. |
-| Bestiality, but with balloon animals. |
+| Balls i  you  mouth. |
+| Ba gkok p ostitutes. |
+| Bei g gay fo  pay. |
+| Bestiality, but with balloo  a imals. |
 | Big booty hoes. |
 | Boats 'N Hoes. |
-| Bumping uglies. |
+| Bumpi g uglies. |
 | Chocolate salty balls. |
-| Clean urine. |
-| Clearing out the room with a fart. |
-| Climaxing when the video starts to buffer. |
-| College rejection letters. |
-| College students turning alcohol into regret. |
-| Competitive spooning. |
-| Consensual sex with a gorilla. |
-| Constantly wetting the bed. |
-| Crime scene sex. |
-| Crop dusting. |
-| Doing something stupid like running a full marathon for fun. |
-| Eating vagina like it's your job. |
-| Erotic waterboarding. |
-| Expired stool samples. |
-| F***ing Millennials. |
-| Fanny packs. |
-| Farting on queue. |
-| Flashing your genitals in public. |
-| Free blood, no questions asked. |
-| Free hugs. |
-| Frenemies. |
-| Getting handsy in the church confessional. |
-| Getting hard for literally no reason. |
-| Giving HIV patients a placebo. |
-| Guys with calf implants. |
-| Half a bottle of lube and a used condom. |
+| Clea  u i e. |
+| Clea i g out the  oom with a fa t. |
+| Climaxi g whe  the video sta ts to buffe . |
+| College  ejectio  lette s. |
+| College stude ts tu i g alcohol i to  eg et. |
+| Competitive spoo i g. |
+| Co se sual sex with a go illa. |
+| Co sta tly wetti g the bed. |
+| C ime sce e sex. |
+| C op dusti g. |
+| Doi g somethi g stupid like  u i g a full ma atho  fo  fu . |
+| Eati g vagi a like it's you  job. |
+| E otic wate boa di g. |
+| Expi ed stool samples. |
+| F***i g Mille ials. |
+| Fa y packs. |
+| Fa ti g o  queue. |
+| Flashi g you  ge itals i  public. |
+| F ee blood,  o questio s asked. |
+| F ee hugs. |
+| F e emies. |
+| Getti g ha dsy i  the chu ch co fessio al. |
+| Getti g ha d fo  lite ally  o  easo . |
+| Givi g HIV patie ts a placebo. |
+| Guys with calf impla ts. |
+| Half a bottle of lube a d a used co dom. |
 | Hepatitis A, B & C! |
-| Hideous man boobs. |
-| Hitting on women at Planned Parenthood. |
-| Horny old men on Cialis. |
-| Hot girl on girl action. |
-| Humongous areolas. |
-| Jerking it every chance you get. |
-| Killing your enemies and eating them to gain their power. |
-| Live streaming a circumcision. |
-| Losing your virginity to a warm apple pie. |
-| Making jokes about gender fluidity |
-| Male lactation. |
-| Martha Stewart's gold plated vagina. |
-| Men getting mani-pedis. |
-| Mormons who don't live in Utah. |
-| My dumb friends. |
+| Hideous ma  boobs. |
+| Hitti g o  wome  at Pla ed Pa e thood. |
+| Ho y old me  o  Cialis. |
+| Hot gi l o  gi l actio . |
+| Humo gous a eolas. |
+| Je ki g it eve y cha ce you get. |
+| Killi g you  e emies a d eati g them to gai  thei  powe . |
+| Live st eami g a ci cumcisio . |
+| Losi g you  vi gi ity to a wa m apple pie. |
+| Maki g jokes about ge de  fluidity |
+| Male lactatio . |
+| Ma tha Stewa t's gold plated vagi a. |
+| Me  getti g ma i-pedis. |
+| Mo mo s who do 't live i  Utah. |
+| My dumb f ie ds. |
 | Nipple clamps. |
-| No child left behind. |
-| Not safe for work email forwards. |
-| Panther urine. |
-| People who change gender every time they sneeze. |
-| Pile after pile of expired condoms. |
+| No child left behi d. |
+| Not safe fo  wo k email fo wa ds. |
+| Pa the  u i e. |
+| People who cha ge ge de  eve y time they s eeze. |
+| Pile afte  pile of expi ed co doms. |
 | Poop soup. |
-| Racist undertones. |
-| Realizing too late that your medication is for rectal use only. |
-| Refusing to vaccinate your kids.  Not because you're anti-vaccine.  You just hate your kids. |
-| Reruns of The Golden Girls. |
-| Sex on her period. |
-| Shake 'n Bake. |
-| Size Queens. |
+| Racist u de to es. |
+| Realizi g too late that you  medicatio  is fo   ectal use o ly. |
+| Refusi g to vacci ate you  kids.  Not because you' e a ti-vacci e.  You just hate you  kids. |
+| Re u s of The Golde  Gi ls. |
+| Sex o  he  pe iod. |
+| Shake '  Bake. |
+| Size Quee s. |
 | Sluts. |
-| Straight up kicking a stranger in the face. |
-| Taking your mother to prom. |
-| Teaching old people to use computers. |
-| Terminal diarrhea. |
-| That awkward moment when you realize, not only is your fly down but, your dick is hanging out. |
-| That friend who never shut up about Crossfit. |
+| St aight up kicki g a st a ge  i  the face. |
+| Taki g you  mothe  to p om. |
+| Teachi g old people to use compute s. |
+| Te mi al dia hea. |
+| That awkwa d mome t whe  you  ealize,  ot o ly is you  fly dow  but, you  dick is ha gi g out. |
+| That f ie d who  eve  shut up about C ossfit. |
 | The Batmobile. |
 | The buddy system. |
-| The liberal bubble. |
-| The morbidly obese using Slip 'n Slides. |
-| Tinder bathroom hookups. |
-| Tom Hanks shouting, "There's no crying in baseball!" |
-| Trump's America. |
-| Trying to pee with a massive boner. |
-| TSA cavity searches. |
-| Wetting your pants on purpose. |
-| Women who pee standing up. |
-| Zombie porn. |
+| The libe al bubble. |
+| The mo bidly obese usi g Slip '  Slides. |
+| Ti de  bath oom hookups. |
+| Tom Ha ks shouti g, "The e's  o c yi g i  baseball!" |
+| T ump's Ame ica. |
+| T yi g to pee with a massive bo e . |
+| TSA cavity sea ches. |
+| Wetti g you  pa ts o  pu pose. |
+| Wome  who pee sta di g up. |
+| Zombie po . |
 
 |Total amount: 222|
 |---|

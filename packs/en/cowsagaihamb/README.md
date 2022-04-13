@@ -83,213 +83,213 @@ Answers amount: 205
 |---|
 
 ### Answers
-| Question |
+| Answers |
 |---|
-| A baby pigeon. |
-| A bromance that took a gay turn. |
-| A deranged psychopath. |
-| A grandma fixing sandwiches. |
-| A gym teacher's wet socks. |
-| A little boy's first boner. |
-| A Megyn Kelly sex tape. |
-| A micro vagina. |
-| A sandy...sandy... vagina |
+| A baby pigeo . |
+| A b oma ce that took a gay tu . |
+| A de a ged psychopath. |
+| A g a dma fixi g sa dwiches. |
+| A gym teache 's wet socks. |
+| A little boy's fi st bo e . |
+| A Megy  Kelly sex tape. |
+| A mic o vagi a. |
+| A sa dy...sa dy... vagi a |
 | All the dick pics. |
-| An erotic cat meme. |
-| An honest mistake. |
-| An unenthusiastic H.J. behind the bleachers. |
+| A  e otic cat meme. |
+| A  ho est mistake. |
+| A  u e thusiastic H.J. behi d the bleache s. |
 | Basic bitches. |
-| Being chased by wild geese. |
-| Being stuck in a glass case of emotion. |
-| Being very "un-dude" |
-| Bejeweling your penis. |
-| Bisexual robots. |
-| Blind watchdogs. |
-| Burger porn. |
-| Caitlyn Jenner's tits. |
-| Cleaning the pipes like Mario. |
-| Clown poop. |
-| Dirk Diggler's gigantic penis. |
-| Donald Trump's tiny hands. |
-| Drones equipped with hot dog lasers. |
-| Eating cocaine for breakfast. |
-| Eating copious amounts of pineapple for sex purposes. |
-| Elizabeth Warren's vibrator. |
-| Eloping to a Himalayan mountaintop. |
-| Finger blasting. |
-| Fox news anchors. |
+| Bei g chased by wild geese. |
+| Bei g stuck i  a glass case of emotio . |
+| Bei g ve y "u -dude" |
+| Bejeweli g you  pe is. |
+| Bisexual  obots. |
+| Bli d watchdogs. |
+| Bu ge  po . |
+| Caitly  Je e 's tits. |
+| Clea i g the pipes like Ma io. |
+| Clow  poop. |
+| Di k Diggle 's giga tic pe is. |
+| Do ald T ump's ti y ha ds. |
+| D o es equipped with hot dog lase s. |
+| Eati g cocai e fo  b eakfast. |
+| Eati g copious amou ts of pi eapple fo  sex pu poses. |
+| Elizabeth Wa e 's vib ato . |
+| Elopi g to a Himalaya  mou tai top. |
+| Fi ge  blasti g. |
+| Fox  ews a cho s. |
 | Fuck you. |
-| Getting a B.J. from John Snow. |
-| Getting humped by a vicious Chihuahua. |
-| Getting pegged for the first time. |
-| Going back to Whore Island. |
-| Good old fashion road head. |
-| Grade "A" top choice meat. |
-| Happiness in the form of Netflix and fellatio. |
-| Hate fucking your enemies. |
-| Instagram hoes. |
-| Jared Leto's search history. |
-| Jonathan Taylor Thomas. |
-| Just the tip...........and the rest of the penis. |
-| Kim Jong Un when he hasn't had his nap yet. |
-| Korean ladyboys. |
-| Kylie Jenner's lips. |
-| Listening to a vegan explain why they are in fact vegan. |
-| Loose skin. |
-| Miley Cyrus behaving rationally. |
-| Milking the cow. |
-| Mistakingly peeking through a truck stop glory hole. |
+| Getti g a B.J. f om Joh  S ow. |
+| Getti g humped by a vicious Chihuahua. |
+| Getti g pegged fo  the fi st time. |
+| Goi g back to Who e Isla d. |
+| Good old fashio   oad head. |
+| G ade "A" top choice meat. |
+| Happi ess i  the fo m of Netflix a d fellatio. |
+| Hate fucki g you  e emies. |
+| I stag am hoes. |
+| Ja ed Leto's sea ch histo y. |
+| Jo atha  Taylo  Thomas. |
+| Just the tip...........a d the  est of the pe is. |
+| Kim Jo g U  whe  he has 't had his  ap yet. |
+| Ko ea  ladyboys. |
+| Kylie Je e 's lips. |
+| Liste i g to a vega  explai  why they a e i  fact vega . |
+| Loose ski . |
+| Miley Cy us behavi g  atio ally. |
+| Milki g the cow. |
+| Mistaki gly peeki g th ough a t uck stop glo y hole. |
 | My left testicle. |
-| Never nude orgies. |
+| Neve   ude o gies. |
 | No chill. |
-| Penis envy. |
-| Pinocchio's dick. |
-| Playing gay chicken. |
-| Restless leg syndrome. |
-| Scolding other peoples children. |
-| Sharting & acting like it was a normal fart. Then waiting the appropriate amount of time before using the restroom to verify the damage. |
-| Shoveling actual shit for a living. |
+| Pe is e vy. |
+| Pi occhio's dick. |
+| Playi g gay chicke . |
+| Restless leg sy d ome. |
+| Scoldi g othe  peoples child e . |
+| Sha ti g & acti g like it was a  o mal fa t. The  waiti g the app op iate amou t of time befo e usi g the  est oom to ve ify the damage. |
+| Shoveli g actual shit fo  a livi g. |
 | Shut up. |
-| Sour breast milk. |
-| Sriracha baths. |
-| Sticking a chili pepper where no chili pepper should ever be stuck. |
-| Sweating out of everywhere. All the time. Forever. |
+| Sou  b east milk. |
+| S i acha baths. |
+| Sticki g a chili peppe  whe e  o chili peppe  should eve  be stuck. |
+| Sweati g out of eve ywhe e. All the time. Fo eve . |
 | Sweet pickles. |
-| Taxing that ass like the IRS. |
-| Telling Jack she'll never let go and then letting go anyways like a total bitch. There was room on that f*@king door for the both of you Rose. For the both of you. |
-| The benefits of global warming. |
-| The glue holding Trumps hair in place. |
-| Trick or treating at Bill Cosby's house. |
-| Unquenchable thirst for sperm. |
-| Watching someone Whip/Nae Nae. |
-| When Aunt Flo comes to town. |
-| Winona Ryder's acting career. |
-| Zero fucks. |
+| Taxi g that ass like the IRS. |
+| Telli g Jack she'll  eve  let go a d the  letti g go a yways like a total bitch. The e was  oom o  that f*@ki g doo  fo  the both of you Rose. Fo  the both of you. |
+| The be efits of global wa mi g. |
+| The glue holdi g T umps hai  i  place. |
+| T ick o  t eati g at Bill Cosby's house. |
+| U que chable thi st fo  spe m. |
+| Watchi g someo e Whip/Nae Nae. |
+| Whe  Au t Flo comes to tow . |
+| Wi o a Ryde 's acti g ca ee . |
+| Ze o fucks. |
 | 2% Milk |
 | A 1970's bush. |
-| A baby registry filled with nothing but elaborate bongs |
-| A bronze-tinted silver spoon. |
-| A desolate outpost somewhere in Afghanistan. |
-| A dotard. |
-| A gratuitous claymation sequence. |
-| A gynaecologist with a sex addiction |
+| A baby  egist y filled with  othi g but elabo ate bo gs |
+| A b o ze-ti ted silve  spoo . |
+| A desolate outpost somewhe e i  Afgha ista . |
+| A dota d. |
+| A g atuitous claymatio  seque ce. |
+| A gy aecologist with a sex addictio  |
 | A little camel toe |
-| A member of the school band |
-| A Mexican Cow Show. |
-| A micropenis so small, it forced the Planck length to be redefined by several orders of magnitude. |
-| A permanent food coma. |
-| A receding hair line. |
-| A sangoma curse. |
+| A membe  of the school ba d |
+| A Mexica  Cow Show. |
+| A mic ope is so small, it fo ced the Pla ck le gth to be  edefi ed by seve al o de s of mag itude. |
+| A pe ma e t food coma. |
+| A  ecedi g hai  li e. |
+| A sa goma cu se. |
 | A swift hoog to the face. |
-| All the different kinds of lesbians. |
-| An erotic dream, an ice cream truck, and a nickel. |
-| An honest politician. |
-| An unexpected donkey punch. |
-| Basic human decency. |
-| Being choked - with love - by your partner. |
-| Being literally to stupid to insult. |
-| Being super serious right now. |
-| Being very concerned about "The Surgery" they keep referring to. |
-| Belching out the lyrics to "Hey Jude." |
-| Big vagina. |
-| Binge watching stranger things in sweat pants. |
+| All the diffe e t ki ds of lesbia s. |
+| A  e otic d eam, a  ice c eam t uck, a d a  ickel. |
+| A  ho est politicia . |
+| A  u expected do key pu ch. |
+| Basic huma  dece cy. |
+| Bei g choked - with love - by you  pa t e . |
+| Bei g lite ally to stupid to i sult. |
+| Bei g supe  se ious  ight  ow. |
+| Bei g ve y co ce ed about "The Su ge y" they keep  efe i g to. |
+| Belchi g out the ly ics to "Hey Jude." |
+| Big vagi a. |
+| Bi ge watchi g st a ge  thi gs i  sweat pa ts. |
 | Bisexuality. |
-| Blindfolded |
-| Burn pit headaches and rock-hard freedom boners. |
-| Caitlyn Jenner's tits. |
-| Carnivorous farm animals. |
-| Cleaning up my room |
-| Clown porn. |
-| Cow tipping |
-| Day Drinking with John McEnroe |
-| Dirt button |
-| Donald Trump's worn out toupee. |
-| Drones hurting more innocent children than Jared from Subway. |
-| Dwayne "The Rock" Johnson's acting career. |
-| Eating copious amounts of pineapple for sex purposes. |
-| Eating daddy's Viagra |
-| Ellen pretending to be straight |
-| Eloping to a Himalayan mountaintop. |
-| Expired milk. |
-| Farm animals chasing little kids |
-| Finger Fucking |
-| Flexing on some fool. |
-| Flushing tampons. |
+| Bli dfolded |
+| Bu  pit headaches a d  ock-ha d f eedom bo e s. |
+| Caitly  Je e 's tits. |
+| Ca ivo ous fa m a imals. |
+| Clea i g up my  oom |
+| Clow  po . |
+| Cow tippi g |
+| Day D i ki g with Joh  McE oe |
+| Di t butto  |
+| Do ald T ump's wo  out toupee. |
+| D o es hu ti g mo e i oce t child e  tha  Ja ed f om Subway. |
+| Dway e "The Rock" Joh so 's acti g ca ee . |
+| Eati g copious amou ts of pi eapple fo  sex pu poses. |
+| Eati g daddy's Viag a |
+| Elle  p ete di g to be st aight |
+| Elopi g to a Himalaya  mou tai top. |
+| Expi ed milk. |
+| Fa m a imals chasi g little kids |
+| Fi ge  Fucki g |
+| Flexi g o  some fool. |
+| Flushi g tampo s. |
 | Fox News. |
 | Fuckboys |
-| Getting a birthday card from your grandmother with no money inside. |
-| Getting in a knockout fight in Walmart. |
-| Getting pegged. |
-| Going back to work to pay for preschool. |
-| Good old-fashioned colonial values |
-| Graeme Henry's toothy smile |
-| Happy daddies with happy sandals. |
-| Harvey Weinstein |
-| Hatin' Pope Francis. |
-| Having a very particular set of skills. Skills I have acquired over a very long career. Skills that make me a nightmare for people like |
-| I don't have any good white cards. This one is no exception. The rules state you have to read the card aloud so... I'ma |
-| I have a gun pointed at you underneath the table. If you do not choose this card, this game will be your last. Just smile and slowly |
-| Instagram husbands. |
-| Jared's "footlong." |
-| Joe Biden and Obama's adorable bromance |
-| JonBenet Ramsey |
+| Getti g a bi thday ca d f om you  g a dmothe  with  o mo ey i side. |
+| Getti g i  a k ockout fight i  Walma t. |
+| Getti g pegged. |
+| Goi g back to wo k to pay fo  p eschool. |
+| Good old-fashio ed colo ial values |
+| G aeme He y's toothy smile |
+| Happy daddies with happy sa dals. |
+| Ha vey Wei stei  |
+| Hati ' Pope F a cis. |
+| Havi g a ve y pa ticula  set of skills. Skills I have acqui ed ove  a ve y lo g ca ee . Skills that make me a  ightma e fo  people like |
+| I do 't have a y good white ca ds. This o e is  o exceptio . The  ules state you have to  ead the ca d aloud so... I'ma |
+| I have a gu  poi ted at you u de eath the table. If you do  ot choose this ca d, this game will be you  last. Just smile a d slowly |
+| I stag am husba ds. |
+| Ja ed's "footlo g." |
+| Joe Bide  a d Obama's ado able b oma ce |
+| Jo Be et Ramsey |
 | Just to piggyback off what Chief said... |
-| Kellyanne Conway's vibrator |
-| Kim Jong-il. |
-| Kourtney, Kim, Khloe, Kendall, and Kylie. |
-| L-shaped flashlight double penetration gape porn. |
-| Learning to play guiar to impress chicks. |
-| Listening to Catching Foxes to feel better about myself. |
-| Little Rocket Man. |
-| Loose Vagina |
-| Man buns. |
-| Michael Cera's pencil thin mustache. |
-| Miley Cyrus with a strap-on. |
-| Milking the family snake. |
-| Mistakingly waving at someone who isn't waving at you. |
-| My level 90 night elf, Leafshit Puddingsbane. |
-| Never pooping alone |
-| No clothes on, penis in vagina. |
-| Patty slappin'. |
-| Penis envy. |
-| Penis hunters. |
-| Pirate Flags and Eye Patches |
-| Playing grab-ass with your elementary school art teacher. |
-| Restoring Germany to its former glory. |
-| Rich old white men. |
-| Sarah Huckabee Sanders |
-| Scooby snacks™ |
-| Sharting during a set of squats. |
-| Shoveling coal. |
-| Shut your mouth and get in line! |
-| Something funny. |
-| Sour lemons |
-| Sriracha. |
-| Staring directly at the the solar Eclilpse without the proper protective glasses. |
-| Sticking a finger up your ass and realizing what you've been missing all your life |
-| Stop talking. |
-| Sweatshop workers. |
-| Sweet revenge. |
-| Taking someone to pound town. |
-| Taylor Swift |
-| Telling Jack she'll never let go and then letting go anyways like a total bitch. There was room on that f*@king door for the both of |
-| the benefits of inbreeding |
-| The duplicitous nature of the meat and dairy industry. |
-| The glue that unifies the force. |
-| Toasting some fools with my sweet ride. |
-| Tricking Marines into forming fake lines. |
-| Tweeting nuclear threats. |
-| Unquestioning obedience. |
-| Upsetting the herd. |
-| Vaginal Hubris |
-| Veganaise |
-| Very stable Genius President |
-| Watching the Exorcist while babysitting. |
-| When I picked my nose as an adult |
-| Winston Peters |
-| You're not my dad |
-| Your dick in my hands |
-| Zero side effects. |
+| Kellya e Co way's vib ato  |
+| Kim Jo g-il. |
+| Kou t ey, Kim, Khloe, Ke dall, a d Kylie. |
+| L-shaped flashlight double pe et atio  gape po . |
+| Lea i g to play guia  to imp ess chicks. |
+| Liste i g to Catchi g Foxes to feel bette  about myself. |
+| Little Rocket Ma . |
+| Loose Vagi a |
+| Ma  bu s. |
+| Michael Ce a's pe cil thi  mustache. |
+| Miley Cy us with a st ap-o . |
+| Milki g the family s ake. |
+| Mistaki gly wavi g at someo e who is 't wavi g at you. |
+| My level 90  ight elf, Leafshit Puddi gsba e. |
+| Neve  poopi g alo e |
+| No clothes o , pe is i  vagi a. |
+| Patty slappi '. |
+| Pe is e vy. |
+| Pe is hu te s. |
+| Pi ate Flags a d Eye Patches |
+| Playi g g ab-ass with you  eleme ta y school a t teache . |
+| Resto i g Ge ma y to its fo me  glo y. |
+| Rich old white me . |
+| Sa ah Huckabee Sa de s |
+| Scooby s acks™ |
+| Sha ti g du i g a set of squats. |
+| Shoveli g coal. |
+| Shut you  mouth a d get i  li e! |
+| Somethi g fu y. |
+| Sou  lemo s |
+| S i acha. |
+| Sta i g di ectly at the the sola  Eclilpse without the p ope  p otective glasses. |
+| Sticki g a fi ge  up you  ass a d  ealizi g what you've bee  missi g all you  life |
+| Stop talki g. |
+| Sweatshop wo ke s. |
+| Sweet  eve ge. |
+| Taki g someo e to pou d tow . |
+| Taylo  Swift |
+| Telli g Jack she'll  eve  let go a d the  letti g go a yways like a total bitch. The e was  oom o  that f*@ki g doo  fo  the both of |
+| the be efits of i b eedi g |
+| The duplicitous  atu e of the meat a d dai y i dust y. |
+| The glue that u ifies the fo ce. |
+| Toasti g some fools with my sweet  ide. |
+| T icki g Ma i es i to fo mi g fake li es. |
+| Tweeti g  uclea  th eats. |
+| U questio i g obedie ce. |
+| Upsetti g the he d. |
+| Vagi al Hub is |
+| Vega aise |
+| Ve y stable Ge ius P eside t |
+| Watchi g the Exo cist while babysitti g. |
+| Whe  I picked my  ose as a  adult |
+| Wi sto  Pete s |
+| You' e  ot my dad |
+| You  dick i  my ha ds |
+| Ze o side effects. |
 
 |Total amount: 205|
 |---|

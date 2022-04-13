@@ -161,367 +161,367 @@ Answers amount: 359
 |---|
 
 ### Answers
-| Question |
+| Answers |
 |---|
-| $13 worth of Taco Bell |
-| 10 pounds of crap in a 5-pound bag |
-| 100 pounds of bull semen |
+| $13 wo th of Taco Bell |
+| 10 pou ds of c ap i  a 5-pou d bag |
+| 100 pou ds of bull seme  |
 | 172 thumbtacks |
 | 42 Happy Meal toys |
-| 500 sporks |
-| 6-inch heels |
-| 99 bottles of beer |
-| A "hardly noticeable" herpes sore |
-| A "personal massager" |
-| A "World's Biggest Asshole" trophy |
-| A 1987 Ford Fiesta |
-| A 3-foot tapeworm |
-| A 300-lb dresses as Princess Leia |
-| A 5-speed shower nozzle |
+| 500 spo ks |
+| 6-i ch heels |
+| 99 bottles of bee  |
+| A "ha dly  oticeable" he pes so e |
+| A "pe so al massage " |
+| A "Wo ld's Biggest Asshole" t ophy |
+| A 1987 Fo d Fiesta |
+| A 3-foot tapewo m |
+| A 300-lb d esses as P i cess Leia |
+| A 5-speed showe   ozzle |
 | A 6-pack of Red Bull |
-| A 7-Eleven clerk coming off a three-day shift |
-| A 7-year-old pageant contestant |
-| A baby's soiled diapers |
-| A bag of tainted shrimp |
+| A 7-Eleve  cle k comi g off a th ee-day shift |
+| A 7-yea -old pagea t co testa t |
+| A baby's soiled diape s |
+| A bag of tai ted sh imp |
 | A ball gag |
-| A banana hammock |
+| A ba a a hammock |
 | A bathtub full of cottage cheese |
-| A bearded lady. |
-| A bearskin rug |
-| A bent coat hanger |
-| A big-ass knife |
-| A black, mushy banana |
-| A block of government cheese |
-| A blood-soaked onesie |
-| A boring educational video game |
-| A boy band member ten years past his prime |
-| A breast pump |
-| A bruised cucumber |
-| A bulimic actress |
-| A butt pirate |
-| A butt-cheek implant |
-| A Canadian proctologist |
+| A bea ded lady. |
+| A bea ski   ug |
+| A be t coat ha ge  |
+| A big-ass k ife |
+| A black, mushy ba a a |
+| A block of gove me t cheese |
+| A blood-soaked o esie |
+| A bo i g educatio al video game |
+| A boy ba d membe  te  yea s past his p ime |
+| A b east pump |
+| A b uised cucumbe  |
+| A bulimic act ess |
+| A butt pi ate |
+| A butt-cheek impla t |
+| A Ca adia  p octologist |
 | A chastity belt |
-| A chick way into mixed martial arts |
-| A chiropractor that flunked out of med school |
-| A chloroform-soaked rag |
+| A chick way i to mixed ma tial a ts |
+| A chi op acto  that flu ked out of med school |
+| A chlo ofo m-soaked  ag |
 | A classy face tattoo |
-| A clone of Ryan Gosling |
-| A closeted leading man |
-| A coffin built for two |
-| A collection of used dental dams |
-| A confirmed bachelor |
-| A crapy stand-up comedian |
-| A craving for patricide |
-| A crazy cat lady |
-| A crippling depression |
-| A cross-dressing fireman |
-| A crucifix |
-| A crying minister |
-| A cupcake made of pigeon crap |
+| A clo e of Rya  Gosli g |
+| A closeted leadi g ma  |
+| A coffi  built fo  two |
+| A collectio  of used de tal dams |
+| A co fi med bachelo  |
+| A c apy sta d-up comedia  |
+| A c avi g fo  pat icide |
+| A c azy cat lady |
+| A c ippli g dep essio  |
+| A c oss-d essi g fi ema  |
+| A c ucifix |
+| A c yi g mi iste  |
+| A cupcake made of pigeo  c ap |
 | A dead kitty cat |
-| A diaphragm with three holes in it |
-| A dirty, dirty hippy |
-| A dog in heat |
-| A dog-eared copy of Lolita |
-| A douchey hipster |
-| A dozen roofies |
-| A drug-dealing cousin |
-| A drunk ballerina |
-| A duffle bag filled with crumpled one dollar bills |
-| A family heirloom strap-on |
-| a fat internet troll |
+| A diaph agm with th ee holes i  it |
+| A di ty, di ty hippy |
+| A dog i  heat |
+| A dog-ea ed copy of Lolita |
+| A douchey hipste  |
+| A doze   oofies |
+| A d ug-deali g cousi  |
+| A d u k balle i a |
+| A duffle bag filled with c umpled o e dolla  bills |
+| A family hei loom st ap-o  |
+| a fat i te et t oll |
 | a female CEO |
-| A feminist with a sense of humor |
-| A fistful of nickels |
+| A femi ist with a se se of humo  |
+| A fistful of  ickels |
 | A Fitbit |
-| A flamboyant hairdresser |
-| A flare gun |
-| A fleabag motel room |
-| A French maid's outfit |
-| A freshman mixer |
-| A frozen hot dog |
-| A gallon of asparagus pee |
-| A gaping axe wound |
-| A gimp suit made from fried chicken skin |
-| A glittery cock ring |
-| A gray pube |
-| A grilled cheese that looks like Jesus |
-| A guy a bit too much into manscaping |
-| A guy sleeping in an alley |
-| A Haitian tranny hooker |
-| A high school cheerleader |
-| A Hispanic gardener |
-| A hooker with a heart of gold |
-| A horny senior citizen |
+| A flamboya t hai d esse  |
+| A fla e gu  |
+| A fleabag motel  oom |
+| A F e ch maid's outfit |
+| A f eshma  mixe  |
+| A f oze  hot dog |
+| A gallo  of aspa agus pee |
+| A gapi g axe wou d |
+| A gimp suit made f om f ied chicke  ski  |
+| A glitte y cock  i g |
+| A g ay pube |
+| A g illed cheese that looks like Jesus |
+| A guy a bit too much i to ma scapi g |
+| A guy sleepi g i  a  alley |
+| A Haitia  t a y hooke  |
+| A high school chee leade  |
+| A Hispa ic ga de e  |
+| A hooke  with a hea t of gold |
+| A ho y se io  citize  |
 | A hot cop |
-| A hot librarian |
-| A incompetent masseuse |
-| A jizz-encrusted love seat |
-| A jizz-encrusted tube sock |
-| A Korean nail technician |
-| A latex bustier |
-| A leather-clad biker |
-| A life of questionable decisions |
-| A lifetime NRA membership |
+| A hot lib a ia  |
+| A i compete t masseuse |
+| A jizz-e c usted love seat |
+| A jizz-e c usted tube sock |
+| A Ko ea   ail tech icia  |
+| A latex bustie  |
+| A leathe -clad bike  |
+| A life of questio able decisio s |
+| A lifetime NRA membe ship |
 | A lifetime supply of stem cells |
-| A lip piercing |
-| A Liza Minnelli impersonator |
-| A local sex offender |
-| A male underwear model |
-| A member of the school band |
-| a moldy loaf of bread |
-| A multiracial orgy |
-| A naked performance artist |
-| A narcoleptic yoga instructor |
-| A naughty nurse |
-| A nude portrait of your spinster aunt |
-| A nymphomaniacal A.I. droid. |
-| A painful hand job |
-| A pair of handcuffs |
-| A pants-les clown |
-| A parrot with a filthy vocabulary |
-| A peckerwood. |
-| A perky Sunday school teacher |
-| A picnic basket full of dead rats |
-| A pig in a wedding dress |
-| A Ping-Pong paddle |
-| A pizza delivery driver |
-| A plate of half-eaten cockroaches |
-| A platinum-blonde wig |
-| A Playboy centerfold from June 1969 |
-| A porn actress looking to go legit |
-| A portable drill |
-| A priest with a van and some comic books |
-| A professional wrestler |
-| A prom dumpster baby |
-| A quart of spoiled milk |
-| A racist uncle |
-| A recently used toilt brush |
-| A remote control Japanese sex robot |
-| A riding crop |
-| A Russian mail-order bride |
-| A rusty fishhook |
-| A rusty trombone |
-| A sack full of hungry rats |
-| A sad dominatrix |
-| A samurai sword |
-| A satin blindfold |
+| A lip pie ci g |
+| A Liza Mi elli impe so ato  |
+| A local sex offe de  |
+| A male u de wea  model |
+| A membe  of the school ba d |
+| a moldy loaf of b ead |
+| A multi acial o gy |
+| A  aked pe fo ma ce a tist |
+| A  a coleptic yoga i st ucto  |
+| A  aughty  u se |
+| A  ude po t ait of you  spi ste  au t |
+| A  ymphoma iacal A.I. d oid. |
+| A pai ful ha d job |
+| A pai  of ha dcuffs |
+| A pa ts-les clow  |
+| A pa ot with a filthy vocabula y |
+| A pecke wood. |
+| A pe ky Su day school teache  |
+| A pic ic basket full of dead  ats |
+| A pig i  a weddi g d ess |
+| A Pi g-Po g paddle |
+| A pizza delive y d ive  |
+| A plate of half-eate  cock oaches |
+| A plati um-blo de wig |
+| A Playboy ce te fold f om Ju e 1969 |
+| A po  act ess looki g to go legit |
+| A po table d ill |
+| A p iest with a va  a d some comic books |
+| A p ofessio al w estle  |
+| A p om dumpste  baby |
+| A qua t of spoiled milk |
+| A  acist u cle |
+| A  ece tly used toilt b ush |
+| A  emote co t ol Japa ese sex  obot |
+| A  idi g c op |
+| A Russia  mail-o de  b ide |
+| A  usty fishhook |
+| A  usty t ombo e |
+| A sack full of hu g y  ats |
+| A sad domi at ix |
+| A samu ai swo d |
+| A sati  bli dfold |
 | A sausage fest |
-| A secret stash of comic books |
-| A sequel to The Diary of Anne Frank |
-| A severed finger |
-| A sex tape involving your grandparents |
+| A sec et stash of comic books |
+| A sequel to The Dia y of A e F a k |
+| A seve ed fi ge  |
+| A sex tape i volvi g you  g a dpa e ts |
 | A sexually active zombie |
-| A sexy coroner |
-| A Shamrock Shake |
-| A shaved scrotum |
-| A sideshow freak |
-| A silver bullet |
-| A slightly ripe corpse |
-| A slutty training bra |
-| A soggy bowl of corn flakes |
-| A soiled undershirt worn by an overweight construction worker |
-| A stoner with the munchies |
-| A stripper with a prosthetic leg |
-| A studded dog collar |
-| A stunning blouse and matching purse |
-| A suitcase filled with used condoms |
-| A surly homecoming queen runner-up |
-| A swamp filled with redneck corpses |
-| A swimming pool filled with Jell-O |
+| A sexy co o e  |
+| A Sham ock Shake |
+| A shaved sc otum |
+| A sideshow f eak |
+| A silve  bullet |
+| A slightly  ipe co pse |
+| A slutty t ai i g b a |
+| A soggy bowl of co  flakes |
+| A soiled u de shi t wo  by a  ove weight co st uctio  wo ke  |
+| A sto e  with the mu chies |
+| A st ippe  with a p osthetic leg |
+| A studded dog colla  |
+| A stu i g blouse a d matchi g pu se |
+| A suitcase filled with used co doms |
+| A su ly homecomi g quee   u e -up |
+| A swamp filled with  ed eck co pses |
+| A swimmi g pool filled with Jell-O |
 | A syphilitic hobo |
 | A teacup pig |
-| A teen mom |
-| A thermos full of baby batter |
-| A too-eager scout leader |
-| A trailer full of illegal immigrants |
-| A trampy garter belt and fishnet stockings |
-| A truck stop bathroom |
+| A tee  mom |
+| A the mos full of baby batte  |
+| A too-eage  scout leade  |
+| A t aile  full of illegal immig a ts |
+| A t ampy ga te  belt a d fish et stocki gs |
+| A t uck stop bath oom |
 | A tube of K-Y jelly |
-| A U.S. senator still in the closet |
-| A vaccine against being gay |
-| A vending machine filled with used panties |
+| A U.S. se ato  still i  the closet |
+| A vacci e agai st bei g gay |
+| A ve di g machi e filled with used pa ties |
 | A Vespa |
-| A Victoria's Secret model |
-| A virile pastor |
-| A woman protesting outside an abortion clinic |
-| A year's supply of Viagra |
-| A young Charlie Manson |
-| A youth minister |
-| Adam Sandler |
-| Afternoon hummers |
-| All-you-can-eat douche pickles |
-| Amanda Bynes |
+| A Victo ia's Sec et model |
+| A vi ile pasto  |
+| A woma  p otesti g outside a  abo tio  cli ic |
+| A yea 's supply of Viag a |
+| A you g Cha lie Ma so  |
+| A youth mi iste  |
+| Adam Sa dle  |
+| Afte oo  humme s |
+| All-you-ca -eat douche pickles |
+| Ama da By es |
 | Amazeballs |
 | Amy Adams |
-| An 80-year-old Batman |
-| An 80-year-old GILF |
-| An accountant with a diaper fetish |
-| An adventurous hamster |
-| An AK-47 |
-| An Alcoholic Anonymous shot glass |
-| An anatomicaly correct doll |
-| An angry bird |
-| An annoying improv actress |
-| An anorexic supermodel |
-| An antique tampon |
-| An automatic milking machine |
-| An elderly home's hot tub |
-| An exciting new strain of herpes |
-| An exotic dancer with big dreams |
-| An experimental sorority sister |
-| An extra-sparkly vampire |
-| An instructional video on cornholing |
-| An iron screwdriver |
-| An obscene podcast |
-| An open-minded truck driver |
-| An overeager high school drama teacher |
-| An overfilled colostomy bag |
-| An urn filled with grandpa's ashes |
-| Angelina Jolie |
+| A  80-yea -old Batma  |
+| A  80-yea -old GILF |
+| A  accou ta t with a diape  fetish |
+| A  adve tu ous hamste  |
+| A  AK-47 |
+| A  Alcoholic A o ymous shot glass |
+| A  a atomicaly co ect doll |
+| A  a g y bi d |
+| A  a oyi g imp ov act ess |
+| A  a o exic supe model |
+| A  a tique tampo  |
+| A  automatic milki g machi e |
+| A  elde ly home's hot tub |
+| A  exciti g  ew st ai  of he pes |
+| A  exotic da ce  with big d eams |
+| A  expe ime tal so o ity siste  |
+| A  ext a-spa kly vampi e |
+| A  i st uctio al video o  co holi g |
+| A  i o  sc ewd ive  |
+| A  obsce e podcast |
+| A  ope -mi ded t uck d ive  |
+| A  ove eage  high school d ama teache  |
+| A  ove filled colostomy bag |
+| A  u  filled with g a dpa's ashes |
+| A geli a Jolie |
 | Assless chaps |
-| Aunt Flo |
-| Axe body spray |
-| Barack Obama. |
-| Bell bottom jeans |
-| Benedict Cumberbatch |
+| Au t Flo |
+| Axe body sp ay |
+| Ba ack Obama. |
+| Bell bottom jea s |
+| Be edict Cumbe batch |
 | Betty White |
-| Beyonce |
-| Bill Clinton and his cigar |
+| Beyo ce |
+| Bill Cli to  a d his ciga  |
 | Bill Cosby |
-| Bill Muray |
-| Black rubber gloves |
-| Blissful ignorance |
-| Bruce Jenner after the transition |
-| Candied yams |
-| Charlie Sheen's life coach |
-| Cher |
-| Clam chowder |
-| Condoleezza Rice |
-| Cotton candy flavored lube |
-| Crotchless panties |
-| Dad's "homemade gravy" |
-| Derek Jeter |
-| Douche-flavored ketchup |
-| Edible body paint |
-| Edible underwear |
-| Ellen pretending to be straight |
-| Emma Stone |
-| Erotic poetry written by your dad |
-| Eternal regret |
-| Fairy dust |
+| Bill Mu ay |
+| Black  ubbe  gloves |
+| Blissful ig o a ce |
+| B uce Je e  afte  the t a sitio  |
+| Ca died yams |
+| Cha lie Shee 's life coach |
+| Che  |
+| Clam chowde  |
+| Co doleezza Rice |
+| Cotto  ca dy flavo ed lube |
+| C otchless pa ties |
+| Dad's "homemade g avy" |
+| De ek Jete  |
+| Douche-flavo ed ketchup |
+| Edible body pai t |
+| Edible u de wea  |
+| Elle  p ete di g to be st aight |
+| Emma Sto e |
+| E otic poet y w itte  by you  dad |
+| Ete al  eg et |
+| Fai y dust |
 | Falsies |
-| Freddy Krueger |
-| George Clooney's musk. |
-| Granny panties |
-| Hillary Clinton attending Donald Trump's wedding. |
-| Identical twins |
+| F eddy K uege  |
+| Geo ge Cloo ey's musk. |
+| G a y pa ties |
+| Hilla y Cli to  atte di g Do ald T ump's weddi g. |
+| Ide tical twi s |
 | Iggy Azalea |
-| Japanese tentacle porn |
-| Jared Leto in a powder blue tuxedo |
-| Jennifer Lawrence. |
-| Jimmy Fallon |
-| John Travolta |
-| Justin Bieber after two hard ciders |
-| Justin Timberlake's cornrows. |
-| Kanye West |
-| Kate Upton |
-| Katy Perry |
-| Kevin Hart |
+| Japa ese te tacle po  |
+| Ja ed Leto i  a powde  blue tuxedo |
+| Je ife  Law e ce. |
+| Jimmy Fallo  |
+| Joh  T avolta |
+| Justi  Biebe  afte  two ha d cide s |
+| Justi  Timbe lake's co ows. |
+| Ka ye West |
+| Kate Upto  |
+| Katy Pe y |
+| Kevi  Ha t |
 | Lady Gaga. |
-| Late-night cable nudity |
-| LeBron James |
-| Liam Neeson |
+| Late- ight cable  udity |
+| LeB o  James |
+| Liam Neeso  |
 | Louie C.K. |
-| Madonna |
-| Mel Gibson |
-| Michael Jackson's personal diary |
-| Miley Cyrus at 55. |
-| Miss Tractor Pull Nebraska 2006 |
-| Mom's homemade gravy |
-| Mother Nature |
-| Mrs. Claus |
-| Naked photographs of obese clowns |
+| Mado a |
+| Mel Gibso  |
+| Michael Jackso 's pe so al dia y |
+| Miley Cy us at 55. |
+| Miss T acto  Pull Neb aska 2006 |
+| Mom's homemade g avy |
+| Mothe  Natu e |
+| M s. Claus |
+| Naked photog aphs of obese clow s |
 | Nicolas Cage |
-| OD'ing on placebos. |
-| One of those Buckingham Palace guards |
-| Oprah Winfrey at her heaviest |
-| Paint thinner |
-| President of the Senior Class |
-| Princess Kate |
-| Radioactive foreskin |
+| OD'i g o  placebos. |
+| O e of those Bucki gham Palace gua ds |
+| Op ah Wi f ey at he  heaviest |
+| Pai t thi e  |
+| P eside t of the Se io  Class |
+| P i cess Kate |
+| Radioactive fo eski  |
 | Raodhead |
-| Rocky Mountain oysters |
-| Rosemary's Baby |
-| Sarah Palin at Toastmasters™. |
-| Scarlett Johansson |
-| Seven minutes in heaven |
-| Shirtless Rush Limbaugh |
-| Silk boxers |
-| Sister Mary Madeline |
-| Soiled boxers |
-| Solange Knowles |
-| Super-spicy salsa |
-| Taylor Swift music. |
-| That crappy ribbon candy your grandma always had |
-| That guy that quotes all the lines from The Godfather |
-| That one girl everyone hates |
-| That redhead from that one commercial |
-| That weird guy in class |
-| The antidote. |
-| The artistic James Franco |
-| The babysitter |
-| The bald Britney Spears |
+| Rocky Mou tai  oyste s |
+| Rosema y's Baby |
+| Sa ah Pali  at Toastmaste s™. |
+| Sca lett Joha sso  |
+| Seve  mi utes i  heave  |
+| Shi tless Rush Limbaugh |
+| Silk boxe s |
+| Siste  Ma y Madeli e |
+| Soiled boxe s |
+| Sola ge K owles |
+| Supe -spicy salsa |
+| Taylo  Swift music. |
+| That c appy  ibbo  ca dy you  g a dma always had |
+| That guy that quotes all the li es f om The Godfathe  |
+| That o e gi l eve yo e hates |
+| That  edhead f om that o e comme cial |
+| That wei d guy i  class |
+| The a tidote. |
+| The a tistic James F a co |
+| The babysitte  |
+| The bald B it ey Spea s |
 | The Big Lebowski |
-| The complete Nickelback discography |
-| The creepy uncle no one likes to talk to |
-| The Duck Dynasty guy |
-| The dumbest guy in the room right now |
-| The easiest woman in the room right now |
-| The first female president |
-| The first pick in the scumbag draft |
-| The Fluffer of the Year |
-| The girl next door |
-| The jagged shards of a shattered iPhone screen |
-| The Kama Sutra |
-| The Karate Kid |
-| The last cigarette in the pack |
-| The least attractive Kardashian sister |
-| The mayor of Gimptown |
-| The Olsen twins |
-| The player to your left |
-| The player to your right |
-| The player you like the least in the room |
+| The complete Nickelback discog aphy |
+| The c eepy u cle  o o e likes to talk to |
+| The Duck Dy asty guy |
+| The dumbest guy i  the  oom  ight  ow |
+| The easiest woma  i  the  oom  ight  ow |
+| The fi st female p eside t |
+| The fi st pick i  the scumbag d aft |
+| The Fluffe  of the Yea  |
+| The gi l  ext doo  |
+| The jagged sha ds of a shatte ed iPho e sc ee  |
+| The Kama Sut a |
+| The Ka ate Kid |
+| The last ciga ette i  the pack |
+| The least att active Ka dashia  siste  |
+| The mayo  of Gimptow  |
+| The Olse  twi s |
+| The playe  to you  left |
+| The playe  to you   ight |
+| The playe  you like the least i  the  oom |
 | The Pope. |
-| The Queen of England |
-| The sexy ghost of Eleanor Roosevelt |
-| The smartest of the Bush boys |
-| The tears of a widow |
-| The valedictorian of your high school class |
-| The World's Most Interesting Man |
-| The world's oldest practitioner of the world's oldest profession |
-| The world's tallest midget |
-| Three pounds of horse meat |
-| Tom Brady's deflated balls |
+| The Quee  of E gla d |
+| The sexy ghost of Elea o  Roosevelt |
+| The sma test of the Bush boys |
+| The tea s of a widow |
+| The valedicto ia  of you  high school class |
+| The Wo ld's Most I te esti g Ma  |
+| The wo ld's oldest p actitio e  of the wo ld's oldest p ofessio  |
+| The wo ld's tallest midget |
+| Th ee pou ds of ho se meat |
+| Tom B ady's deflated balls |
 | Tom Cuise |
-| Tyler Perry |
-| Unicorn meat |
-| Urine-soaked bed sheets |
-| Vintage pornography |
-| Vladimir Putin making love to a Siberian tiger. |
-| What we think is meatloaf |
-| Your best friend's mom |
-| Your best friend's sister |
-| Your dad's first mistress |
-| Your daughter from the future |
-| Your kid brother |
-| Your long-lost twin brother |
-| Your mom after she's read Lady Chatterly's Lover |
-| Your mom after she's read Lady Chatterly's Lover |
-| Your older sister's hand-me-down thong |
-| Your sinister nephew |
-| Your sister's best friend |
+| Tyle  Pe y |
+| U ico  meat |
+| U i e-soaked bed sheets |
+| Vi tage po og aphy |
+| Vladimi  Puti  maki g love to a Sibe ia  tige . |
+| What we thi k is meatloaf |
+| You  best f ie d's mom |
+| You  best f ie d's siste  |
+| You  dad's fi st mist ess |
+| You  daughte  f om the futu e |
+| You  kid b othe  |
+| You  lo g-lost twi  b othe  |
+| You  mom afte  she's  ead Lady Chatte ly's Love  |
+| You  mom afte  she's  ead Lady Chatte ly's Love  |
+| You  olde  siste 's ha d-me-dow  tho g |
+| You  si iste   ephew |
+| You  siste 's best f ie d |
 
 |Total amount: 359|
 |---|

@@ -131,328 +131,328 @@ Answers amount: 320
 |---|
 
 ### Answers
-| Question |
+| Answers |
 |---|
-| 1.2 pounds of shit hitting a fan. |
-| A 15-minute time-out in the Naughty Corner. |
-| A bottle of orphan tears. |
-| A sea lion engaged in a knife fight with a regular seal. |
-| A small boy raping a priest. |
-| A trail of rose pedals that leads to a sink full of dirty dishes. |
-| A very intimate Scoutmaster. |
-| A waterfall of period blood. |
-| A white van full of puppies and candy. |
-| Adopting stray toddlers. |
-| Banging your doppleganger. |
-| Barking and chasing a mailman as a full-grown adult. |
-| Beating a hipster. |
-| Becoming a cop to shoot black people for sport. |
-| Being forever chased by your shadow. |
-| Black lives matter. |
+| 1.2 pou ds of shit hitti g a fa . |
+| A 15-mi ute time-out i  the Naughty Co e . |
+| A bottle of o pha  tea s. |
+| A sea lio  e gaged i  a k ife fight with a  egula  seal. |
+| A small boy  api g a p iest. |
+| A t ail of  ose pedals that leads to a si k full of di ty dishes. |
+| A ve y i timate Scoutmaste . |
+| A wate fall of pe iod blood. |
+| A white va  full of puppies a d ca dy. |
+| Adopti g st ay toddle s. |
+| Ba gi g you  dopplega ge . |
+| Ba ki g a d chasi g a mailma  as a full-g ow  adult. |
+| Beati g a hipste . |
+| Becomi g a cop to shoot black people fo  spo t. |
+| Bei g fo eve  chased by you  shadow. |
+| Black lives matte . |
 | Black meat. |
-| Breaking your foot off in someone's ass. |
-| Bursting out laughing during a sexual harassment seminar. |
-| Catching your tit in the car door. |
-| Clubbing a baby seal. |
-| Directing your parents' sex tape. |
-| Eating C4 because you want to go out with "a bang." |
-| Explaining the rug burns on your 7-year-old daughter's forehead to the preacher. |
-| Flying an RC plane into a tall person as "practice." |
-| Fondling some balls. |
-| Freeing all the animals at the pet store. |
-| Getting a birthday card from your grandmother with no money inside. |
-| Giving someone a "love tap" with your car at 90 mph. |
-| Going into the LYS for one set of needles and coming out with $200 worth of yarn. |
+| B eaki g you  foot off i  someo e's ass. |
+| Bu sti g out laughi g du i g a sexual ha assme t semi a . |
+| Catchi g you  tit i  the ca  doo . |
+| Clubbi g a baby seal. |
+| Di ecti g you  pa e ts' sex tape. |
+| Eati g C4 because you wa t to go out with "a ba g." |
+| Explai i g the  ug bu s o  you  7-yea -old daughte 's fo ehead to the p eache . |
+| Flyi g a  RC pla e i to a tall pe so  as "p actice." |
+| Fo dli g some balls. |
+| F eei g all the a imals at the pet sto e. |
+| Getti g a bi thday ca d f om you  g a dmothe  with  o mo ey i side. |
+| Givi g someo e a "love tap" with you  ca  at 90 mph. |
+| Goi g i to the LYS fo  o e set of  eedles a d comi g out with $200 wo th of ya . |
 | Happy pills. |
-| Hating gays because they're "weird" but liking lesbians because they're "sexy." |
-| Having a little too much fun. |
-| Having more hair on your balls that on your head. |
-| Having more Oscars than Leonardo DiCaprio. |
-| Having sloppy sex as your dog watches. |
+| Hati g gays because they' e "wei d" but liki g lesbia s because they' e "sexy." |
+| Havi g a little too much fu . |
+| Havi g mo e hai  o  you  balls that o  you  head. |
+| Havi g mo e Osca s tha  Leo a do DiCap io. |
+| Havi g sloppy sex as you  dog watches. |
 | Holocaust: The Musical. |
-| Huffing paint. |
-| Jared's "footlong." |
-| Just being, like, really fucking ugly. |
+| Huffi g pai t. |
+| Ja ed's "footlo g." |
+| Just bei g, like,  eally fucki g ugly. |
 | JUST DO IT! |
-| Justin Bieber's favorite burger joint. |
-| Lacking a soul because you're a ginger. |
-| Loud Spanish yelling. |
-| Making eye contact with a stranger while eating a banana. |
-| Making it rain on them hoes. |
-| My big white van full of chloroformed children. |
-| My Magnum™ condom. |
-| Nuns with nice buns. |
-| Old white men dancing to "Hotline Bling" by Drake. |
-| Orphans genetically engineered to explode when loved. |
-| Playing Jenga on 9/11. |
-| Porkin' Miss Piggy. |
-| Pre-teen girls that dress like whores. |
-| Pretending you are a wizard all the time. |
-| Pushing a double amputee down a flight of stairs. |
-| Putting sperm in the soap dispenser. |
-| Replacing someone's birth control pills with tic tacs®. |
-| Riding with Ray Rice in an elevator. |
-| Selling your baby during Black Friday. |
-| Sex noises echoing from a tennis match. |
-| Shot putting a 12-pound metal ball into a crowd and making it look like an accident. |
-| Stimulating her economy. |
-| Switching your diabetic friend's insulin with heroin. |
-| Taking a joyride ... through a playground. |
-| Terabytes of porn. |
+| Justi  Biebe 's favo ite bu ge  joi t. |
+| Lacki g a soul because you' e a gi ge . |
+| Loud Spa ish yelli g. |
+| Maki g eye co tact with a st a ge  while eati g a ba a a. |
+| Maki g it  ai  o  them hoes. |
+| My big white va  full of chlo ofo med child e . |
+| My Mag um™ co dom. |
+| Nu s with  ice bu s. |
+| Old white me  da ci g to "Hotli e Bli g" by D ake. |
+| O pha s ge etically e gi ee ed to explode whe  loved. |
+| Playi g Je ga o  9/11. |
+| Po ki ' Miss Piggy. |
+| P e-tee  gi ls that d ess like who es. |
+| P ete di g you a e a wiza d all the time. |
+| Pushi g a double amputee dow  a flight of stai s. |
+| Putti g spe m i  the soap dispe se . |
+| Replaci g someo e's bi th co t ol pills with tic tacs®. |
+| Ridi g with Ray Rice i  a  elevato . |
+| Selli g you  baby du i g Black F iday. |
+| Sex  oises echoi g f om a te is match. |
+| Shot putti g a 12-pou d metal ball i to a c owd a d maki g it look like a  accide t. |
+| Stimulati g he  eco omy. |
+| Switchi g you  diabetic f ie d's i suli  with he oi . |
+| Taki g a joy ide ... th ough a playg ou d. |
+| Te abytes of po . |
 | That "O" face. |
-| That awkward moment when you realize your three-way has no vagina. |
-| That black guy that always dies first in the movies. |
-| That chick I was really into in high school that now has two kids and a waistline the size of Idaho. |
-| The crushing realization that your hopes and dreams are just that, and that real life is horrible. |
-| The people of Walmart. |
-| The terrifying sex moans of a deaf woman. |
-| The Tickle King |
-| The wrong hole. |
-| Three in the pink, two in the stink. |
-| Using a middle school water fountain as a bidet. |
-| Using a taser to make your child stop crying. |
-| Using little children as human shields. |
-| When you're blowing a guy and you realize he's a faggot. |
-| A black guy in a white neighborhood. |
-| A busload of racist frat boys from Oklahoma. |
-| A case of the Mondays. |
-| A complimentary prostate exam. |
-| A customer with literally a million questions. |
-| A cute, little old Asian lady trying to fight a lobster. |
-| A good ol' fashioned game of "Is It Racist?" |
-| A latex bodysuit with a genital opening. |
-| A magical cupboard that brings sex toys to life. |
-| A mouth for hire. |
-| A naked old man in a sauna. |
-| A strange and vaguely predatory attempt at friendship. |
-| A water balloon filled with buffalo sauce. |
-| A whiter, tighter vagina. |
-| Alcohol-fueled Thanksgiving Day family fistfights. |
-| An actual elephant in the room. |
-| An oddly specific round of "Never Have I Ever." |
-| Being gay in Russia. |
-| Being majestic as fuck. |
-| Being one day away from retirement in an '80s cop movie. |
-| Being the caboose of a train. |
-| Being the prettiest girl at the truck stop. |
-| Billions of taxpayer dollars. |
-| Borrowing someone's liver. |
-| Cannot answer. Too drunk. |
-| Dakota Fanning. |
-| Dorothy using the Scarecrow as firewood. |
-| Dr. Faggot. |
-| Dropping a penny in a Jewish neighborhood. |
-| Eating the banana peel. |
-| Eliminating the party crashers by any means necessary. |
-| Eye-fucking someone from across the room a little too hard. |
-| Forgetting to say "No homo." |
-| Fucking a blender. |
-| Getting away with mass murder because you're a Christian. |
-| Getting dumped by your left hand. |
-| Getting spanked with a wooden spoon by Gordon Ramsay. |
-| Getting the clap so many times it's basically applause. |
-| Gonorrhea that was totally worth it. |
-| Googling yourself. |
-| Hardcore cuddling. |
-| Having break-up sex by yourself. |
-| Hitler, Stalin, the whole crew. |
-| Inverted controls. |
-| Kim Jong-un's stupid fucking haircut. |
-| Making friends with that one weird white kid, just in case. |
-| Masked strangers who knock on the door in the middle of the night. |
-| Mighty Morphine Power Rangers. |
-| Muscles you didn't even know you had. |
-| Not fitting in. |
-| OD'ing on placebos. |
-| Organic cocaine. |
-| Playing by the rules. |
-| Proposing to your long-term girlfriend with a Ring Pop. |
-| Punching them in the face with a hammer. |
-| Realizing you're doomed to a life of mediocrity. |
-| Rosa Parks calling shotgun. |
-| Setting fat kids on fire to burn calories. |
-| Sitting back and watching a blind man slowly walk off a cliff. |
+| That awkwa d mome t whe  you  ealize you  th ee-way has  o vagi a. |
+| That black guy that always dies fi st i  the movies. |
+| That chick I was  eally i to i  high school that  ow has two kids a d a waistli e the size of Idaho. |
+| The c ushi g  ealizatio  that you  hopes a d d eams a e just that, a d that  eal life is ho ible. |
+| The people of Walma t. |
+| The te ifyi g sex moa s of a deaf woma . |
+| The Tickle Ki g |
+| The w o g hole. |
+| Th ee i  the pi k, two i  the sti k. |
+| Usi g a middle school wate  fou tai  as a bidet. |
+| Usi g a tase  to make you  child stop c yi g. |
+| Usi g little child e  as huma  shields. |
+| Whe  you' e blowi g a guy a d you  ealize he's a faggot. |
+| A black guy i  a white  eighbo hood. |
+| A busload of  acist f at boys f om Oklahoma. |
+| A case of the Mo days. |
+| A complime ta y p ostate exam. |
+| A custome  with lite ally a millio  questio s. |
+| A cute, little old Asia  lady t yi g to fight a lobste . |
+| A good ol' fashio ed game of "Is It Racist?" |
+| A latex bodysuit with a ge ital ope i g. |
+| A magical cupboa d that b i gs sex toys to life. |
+| A mouth fo  hi e. |
+| A  aked old ma  i  a sau a. |
+| A st a ge a d vaguely p edato y attempt at f ie dship. |
+| A wate  balloo  filled with buffalo sauce. |
+| A white , tighte  vagi a. |
+| Alcohol-fueled Tha ksgivi g Day family fistfights. |
+| A  actual elepha t i  the  oom. |
+| A  oddly specific  ou d of "Neve  Have I Eve ." |
+| Bei g gay i  Russia. |
+| Bei g majestic as fuck. |
+| Bei g o e day away f om  eti eme t i  a  '80s cop movie. |
+| Bei g the caboose of a t ai . |
+| Bei g the p ettiest gi l at the t uck stop. |
+| Billio s of taxpaye  dolla s. |
+| Bo owi g someo e's live . |
+| Ca ot a swe . Too d u k. |
+| Dakota Fa i g. |
+| Do othy usi g the Sca ec ow as fi ewood. |
+| D . Faggot. |
+| D oppi g a pe y i  a Jewish  eighbo hood. |
+| Eati g the ba a a peel. |
+| Elimi ati g the pa ty c ashe s by a y mea s  ecessa y. |
+| Eye-fucki g someo e f om ac oss the  oom a little too ha d. |
+| Fo getti g to say "No homo." |
+| Fucki g a ble de . |
+| Getti g away with mass mu de  because you' e a Ch istia . |
+| Getti g dumped by you  left ha d. |
+| Getti g spa ked with a woode  spoo  by Go do  Ramsay. |
+| Getti g the clap so ma y times it's basically applause. |
+| Go o hea that was totally wo th it. |
+| Googli g you self. |
+| Ha dco e cuddli g. |
+| Havi g b eak-up sex by you self. |
+| Hitle , Stali , the whole c ew. |
+| I ve ted co t ols. |
+| Kim Jo g-u 's stupid fucki g hai cut. |
+| Maki g f ie ds with that o e wei d white kid, just i  case. |
+| Masked st a ge s who k ock o  the doo  i  the middle of the  ight. |
+| Mighty Mo phi e Powe  Ra ge s. |
+| Muscles you did 't eve  k ow you had. |
+| Not fitti g i . |
+| OD'i g o  placebos. |
+| O ga ic cocai e. |
+| Playi g by the  ules. |
+| P oposi g to you  lo g-te m gi lf ie d with a Ri g Pop. |
+| Pu chi g them i  the face with a hamme . |
+| Realizi g you' e doomed to a life of medioc ity. |
+| Rosa Pa ks calli g shotgu . |
+| Setti g fat kids o  fi e to bu  calo ies. |
+| Sitti g back a d watchi g a bli d ma  slowly walk off a cliff. |
 | Special gloves. |
-| Spelling dirty words while playing Scrabble with your kids. |
-| Tainting the communion wafers with LSD. |
-| Taking a nice drive .... through a playground. |
-| Taking one look at your new baby, then shoving it back in. |
-| That one fucking dead pixel in the middle of the screen. |
-| That thing where you and a stranger keep blocking each other on the sidewalk while trying to pass. |
-| The $19.99 Do-It-Yourself White Trash Wedding. |
-| The element of surprise. |
-| The Incident. |
-| The inescapable anxiety that comes once you've run out of reasons to procrastinate. |
-| The one that got away. |
-| The regret that instantly follows paying $9.99 for pay-per-view porn. |
-| Topless anime girls wearing cute panties. |
-| Training your younger, better-looking replacement. |
-| Unfathomable girth. |
-| Watching TV with Mom and Dad when a sex scene comes on. |
-| Watching your last dollar get ripped in half by the vending machine. |
-| Whatever the kids are into these days. |
-| Your sad little naked body. |
-| Zero side effects. |
-| A box with magazines containing strong pornography. |
-| A Canadian tuxedo. |
-| A Diet Coke that tastes like balls are in it. |
-| A fridge festooned with nude photos of every family member. |
-| A good old-fashioned skullfucking. |
-| A hilarious failed suicide attempt. |
-| A Holocaust blooper reel. |
-| A horny hive mind. |
-| A male figure skater with a massive bulge. |
-| A monkey fucking a coconut. |
-| A negative HIV test bought on Amazon. |
-| A Norwegian-style sweater with a cute reindeer swastika pattern. |
-| A sprinkle of the finest crystal meth on the eyeballs. |
-| A toothless hooker. |
-| A touching moment between a wealthy old woman and her Mexican gardener. |
-| A water pistol loaded with LSD. |
-| All this weed I found. |
-| An acute heroin addiction. |
-| Another goddamn virus from surfing questionable porn. |
-| Anyone that isn't me. |
-| Asking your best friend to hold your cock at the urinal so you can keep watching funny cat videos. |
-| Being bullied by a small child. |
-| Being one bad motherfucker. |
-| Beliebiers. |
+| Spelli g di ty wo ds while playi g Sc abble with you  kids. |
+| Tai ti g the commu io  wafe s with LSD. |
+| Taki g a  ice d ive .... th ough a playg ou d. |
+| Taki g o e look at you   ew baby, the  shovi g it back i . |
+| That o e fucki g dead pixel i  the middle of the sc ee . |
+| That thi g whe e you a d a st a ge  keep blocki g each othe  o  the sidewalk while t yi g to pass. |
+| The $19.99 Do-It-You self White T ash Weddi g. |
+| The eleme t of su p ise. |
+| The I cide t. |
+| The i escapable a xiety that comes o ce you've  u  out of  easo s to p oc asti ate. |
+| The o e that got away. |
+| The  eg et that i sta tly follows payi g $9.99 fo  pay-pe -view po . |
+| Topless a ime gi ls wea i g cute pa ties. |
+| T ai i g you  you ge , bette -looki g  eplaceme t. |
+| U fathomable gi th. |
+| Watchi g TV with Mom a d Dad whe  a sex sce e comes o . |
+| Watchi g you  last dolla  get  ipped i  half by the ve di g machi e. |
+| Whateve  the kids a e i to these days. |
+| You  sad little  aked body. |
+| Ze o side effects. |
+| A box with magazi es co tai i g st o g po og aphy. |
+| A Ca adia  tuxedo. |
+| A Diet Coke that tastes like balls a e i  it. |
+| A f idge festoo ed with  ude photos of eve y family membe . |
+| A good old-fashio ed skullfucki g. |
+| A hila ious failed suicide attempt. |
+| A Holocaust bloope   eel. |
+| A ho y hive mi d. |
+| A male figu e skate  with a massive bulge. |
+| A mo key fucki g a coco ut. |
+| A  egative HIV test bought o  Amazo . |
+| A No wegia -style sweate  with a cute  ei dee  swastika patte . |
+| A sp i kle of the fi est c ystal meth o  the eyeballs. |
+| A toothless hooke . |
+| A touchi g mome t betwee  a wealthy old woma  a d he  Mexica  ga de e . |
+| A wate  pistol loaded with LSD. |
+| All this weed I fou d. |
+| A  acute he oi  addictio . |
+| A othe  goddam  vi us f om su fi g questio able po . |
+| A yo e that is 't me. |
+| Aski g you  best f ie d to hold you  cock at the u i al so you ca  keep watchi g fu y cat videos. |
+| Bei g bullied by a small child. |
+| Bei g o e bad mothe fucke . |
+| Beliebie s. |
 | Bottomless mimosas. |
-| Bringing five thousand $1 bills to a seventh-grade beauty pageant. |
-| Britney Spears circa 2007. |
-| Building a wall and making the Mexicans pay for it. |
-| Cajuns. |
+| B i gi g five thousa d $1 bills to a seve th-g ade beauty pagea t. |
+| B it ey Spea s ci ca 2007. |
+| Buildi g a wall a d maki g the Mexica s pay fo  it. |
+| Caju s. |
 | Capitalism. |
-| Chanting "heritage, not hate" as you hang several black men from trees. |
+| Cha ti g "he itage,  ot hate" as you ha g seve al black me  f om t ees. |
 | CHICKENFUCKER! |
-| Coffee so black that it starts picking cotton. |
-| Doing karate in the garage. |
-| Donald Trump's third nipple. |
-| Dried-up pulverized spunk. |
-| Dropping warheads on foreheads. |
-| Elton John's sunglass collection. |
-| Falling and not being able to get back up. |
-| Getting really high with your pet dog. |
-| Giving a coat hanger as a gift at a baby shower. |
-| Going to Hell. |
-| Harajuku Girl prostitutes. |
-| Having a pulse and being fuckable. |
-| I refuse to dignify that with a response. |
-| Ignorance and self-righteousness. |
-| Insulting Santa Claus. |
-| Justin Timberlake's cornrows. |
-| Killing a prostitute to get the money back. |
-| Killing someone. |
-| Kurt Cobain's shotgun. |
+| Coffee so black that it sta ts picki g cotto . |
+| Doi g ka ate i  the ga age. |
+| Do ald T ump's thi d  ipple. |
+| D ied-up pulve ized spu k. |
+| D oppi g wa heads o  fo eheads. |
+| Elto  Joh 's su glass collectio . |
+| Falli g a d  ot bei g able to get back up. |
+| Getti g  eally high with you  pet dog. |
+| Givi g a coat ha ge  as a gift at a baby showe . |
+| Goi g to Hell. |
+| Ha ajuku Gi l p ostitutes. |
+| Havi g a pulse a d bei g fuckable. |
+| I  efuse to dig ify that with a  espo se. |
+| Ig o a ce a d self- ighteous ess. |
+| I sulti g Sa ta Claus. |
+| Justi  Timbe lake's co ows. |
+| Killi g a p ostitute to get the mo ey back. |
+| Killi g someo e. |
+| Ku t Cobai 's shotgu . |
 | LOUD NOISES! |
-| Making Helen Keller moan so loudly, even she can hear it. |
-| No comment. |
+| Maki g Hele  Kelle  moa  so loudly, eve  she ca  hea  it. |
+| No comme t. |
 | Oh, God, why? |
-| Pulling a Mulan. |
-| Rape being perfectly acceptable as long as it was enjoyed by everyone. |
-| Resting your balls on the dining room table. |
-| Rubbing Oprah's belly until it falls asleep. |
-| Screaming at a deaf child. |
-| Sexy sport tops. |
-| Shooting amateur porn at the retirement home. |
-| Slapping strangers in the face with a porterhouse steak. |
+| Pulli g a Mula . |
+| Rape bei g pe fectly acceptable as lo g as it was e joyed by eve yo e. |
+| Resti g you  balls o  the di i g  oom table. |
+| Rubbi g Op ah's belly u til it falls asleep. |
+| Sc eami g at a deaf child. |
+| Sexy spo t tops. |
+| Shooti g amateu  po  at the  eti eme t home. |
+| Slappi g st a ge s i  the face with a po te house steak. |
 | Smelly cat, smelly cat. |
-| Some band you've never heard of. |
-| Steve Buscemi and Rebel Wilson's love child. |
-| Sucking on an elf's surprisingly large candy cane. |
-| Taking a dump in a ball pit. |
-| Thanks, Obama! |
-| The ability to embarrass a teen anytime, anywhere |
+| Some ba d you've  eve  hea d of. |
+| Steve Buscemi a d Rebel Wilso 's love child. |
+| Sucki g o  a  elf's su p isi gly la ge ca dy ca e. |
+| Taki g a dump i  a ball pit. |
+| Tha ks, Obama! |
+| The ability to emba ass a tee  a ytime, a ywhe e |
 | The alpha male. |
-| The awkwardness of third wheels. |
-| The Foo Fighters. |
-| The last US citizen who is not disturbingly obese. |
-| The Pillsbury Doughboy blowing his load all over a toaster strudel. |
-| The pure shock of finding out your daughter is pregnant ... and the baby is yours. |
-| Tyra Bank's fat years. |
-| Umbilical-cord handcuffs. |
-| Voting for Trump. |
-| William Shatner speaking fluently. |
-| 380 grams of heroin. |
-| 72 Virgins, all of whom are babies. |
-| A 10-minute shit on company time. |
-| A big, fat, hairy, homosexual man. |
-| A bomb that will go off at any second. |
-| A Canadian dildo, made from an icicle. |
-| A carnivorous plant that only eats Asians. |
-| A Civil War reenactment gone horribly wrong. |
-| A Columbine High School reunion. |
+| The awkwa d ess of thi d wheels. |
+| The Foo Fighte s. |
+| The last US citize  who is  ot distu bi gly obese. |
+| The Pillsbu y Doughboy blowi g his load all ove  a toaste  st udel. |
+| The pu e shock of fi di g out you  daughte  is p eg a t ... a d the baby is you s. |
+| Ty a Ba k's fat yea s. |
+| Umbilical-co d ha dcuffs. |
+| Voti g fo  T ump. |
+| William Shat e  speaki g flue tly. |
+| 380 g ams of he oi . |
+| 72 Vi gi s, all of whom a e babies. |
+| A 10-mi ute shit o  compa y time. |
+| A big, fat, hai y, homosexual ma . |
+| A bomb that will go off at a y seco d. |
+| A Ca adia  dildo, made f om a  icicle. |
+| A ca ivo ous pla t that o ly eats Asia s. |
+| A Civil Wa   ee actme t go e ho ibly w o g. |
+| A Columbi e High School  eu io . |
 | A costly mistake. |
-| A crisp $20 bill. |
-| A crying stripper. |
-| A diet consisting only of Mountain Dew, mini doughnuts, and beer. |
-| A resting bitch face. |
-| A tombstone reading "Let Me Out." |
-| A van full of screaming children. |
-| A whale that's been declared obese. |
-| Accidentally leaving the price tag on expensive presents. |
-| Actually reading the terms and conditions. |
-| Angering a family of raccoons. |
-| Asking someone if they would like to "drink your no-no tea." |
-| ASL rap battles. |
-| Bashing in someone's face with a spiked bat. |
-| Beating someone else's kid for them. |
-| Being addicted to penis. |
-| Being forced to dissect your beloved pet. |
-| Being white in a situation where that's actually disadvantageous. |
-| Black Friday shoppers beating each other to death over -- and with -- $2 bath towels. |
-| Blaming the holidays for your weight problems. |
-| Chewbacca trimming his pubic hair. |
-| CoD: Cum on Dicks. |
-| Conspiracy theorists claiming that martial law is near. |
-| Cooking meth in a 16-foot RV. |
-| Drinking yourself into a coma at a Nevada brothel. |
-| Faking a terminal illness. |
-| Falling in love with your adopted sister. |
-| Fat Chris Pratt. |
-| Filming a street light on your phone. |
-| Finding Daddy's porn collection. |
-| Finger banging with the tampon still in. |
-| Fishing with dynamite. |
-| Floyd Mayweather's ego. |
-| Four shots of tequila. |
-| Getting stuck in traffic. |
-| Getting turned on when your parents spank you. |
-| Giving the finger to a policeman. |
-| Jacking off until your dick vomits. |
-| Killing all hostages. |
-| Making Napoleon Blown-apart jokes too soon after the Paris attacks. |
-| Men who do not get laid. |
-| Midget orgies. |
-| Parents that are too proud. |
-| Paris Hilton on too much cocaine. |
-| Pills that make your penis rock-hard. |
-| Pilots joining the mile-high-club while auto-pilot gets you home safe. |
-| Playing hide and seek better than Anne Frank. |
-| Rape victims making fun of virgins. |
-| Santa's lap. |
-| Sniffing on your father's underwear. |
-| Standing in the corner and rethinking your life choices. |
-| Suicide photobombers. |
-| Talking faster than a Thai hooker. |
-| Teasing zoo animals. |
-| Telling our child that "fist" can be a verb. |
-| That girl in elementary school that was obsessed with horses. |
-| That one annoying person who has to comment on every single card played. |
-| The ever increasing paranoia parents have for their children. |
-| The false hope given to the people of Africa. |
-| The Jonas Brothers. |
-| The magical gold-weaving spider that creates Donald Trump's hair every night. |
-| The proper way to pronounce "gif." |
+| A c isp $20 bill. |
+| A c yi g st ippe . |
+| A diet co sisti g o ly of Mou tai  Dew, mi i dough uts, a d bee . |
+| A  esti g bitch face. |
+| A tombsto e  eadi g "Let Me Out." |
+| A va  full of sc eami g child e . |
+| A whale that's bee  decla ed obese. |
+| Accide tally leavi g the p ice tag o  expe sive p ese ts. |
+| Actually  eadi g the te ms a d co ditio s. |
+| A ge i g a family of  accoo s. |
+| Aski g someo e if they would like to "d i k you   o- o tea." |
+| ASL  ap battles. |
+| Bashi g i  someo e's face with a spiked bat. |
+| Beati g someo e else's kid fo  them. |
+| Bei g addicted to pe is. |
+| Bei g fo ced to dissect you  beloved pet. |
+| Bei g white i  a situatio  whe e that's actually disadva tageous. |
+| Black F iday shoppe s beati g each othe  to death ove  -- a d with -- $2 bath towels. |
+| Blami g the holidays fo  you  weight p oblems. |
+| Chewbacca t immi g his pubic hai . |
+| CoD: Cum o  Dicks. |
+| Co spi acy theo ists claimi g that ma tial law is  ea . |
+| Cooki g meth i  a 16-foot RV. |
+| D i ki g you self i to a coma at a Nevada b othel. |
+| Faki g a te mi al ill ess. |
+| Falli g i  love with you  adopted siste . |
+| Fat Ch is P att. |
+| Filmi g a st eet light o  you  pho e. |
+| Fi di g Daddy's po  collectio . |
+| Fi ge  ba gi g with the tampo  still i . |
+| Fishi g with dy amite. |
+| Floyd Mayweathe 's ego. |
+| Fou  shots of tequila. |
+| Getti g stuck i  t affic. |
+| Getti g tu ed o  whe  you  pa e ts spa k you. |
+| Givi g the fi ge  to a policema . |
+| Jacki g off u til you  dick vomits. |
+| Killi g all hostages. |
+| Maki g Napoleo  Blow -apa t jokes too soo  afte  the Pa is attacks. |
+| Me  who do  ot get laid. |
+| Midget o gies. |
+| Pa e ts that a e too p oud. |
+| Pa is Hilto  o  too much cocai e. |
+| Pills that make you  pe is  ock-ha d. |
+| Pilots joi i g the mile-high-club while auto-pilot gets you home safe. |
+| Playi g hide a d seek bette  tha  A e F a k. |
+| Rape victims maki g fu  of vi gi s. |
+| Sa ta's lap. |
+| S iffi g o  you  fathe 's u de wea . |
+| Sta di g i  the co e  a d  ethi ki g you  life choices. |
+| Suicide photobombe s. |
+| Talki g faste  tha  a Thai hooke . |
+| Teasi g zoo a imals. |
+| Telli g ou  child that "fist" ca  be a ve b. |
+| That gi l i  eleme ta y school that was obsessed with ho ses. |
+| That o e a oyi g pe so  who has to comme t o  eve y si gle ca d played. |
+| The eve  i c easi g pa a oia pa e ts have fo  thei  child e . |
+| The false hope give  to the people of Af ica. |
+| The Jo as B othe s. |
+| The magical gold-weavi g spide  that c eates Do ald T ump's hai  eve y  ight. |
+| The p ope  way to p o ou ce "gif." |
 | The smooth asses of babies. |
-| Throwing silverware at a waitress. |
-| Urinating in a crowded pool. |
-| Using Amazon drones to send anthrax to politicians. |
-| When your mother whips the wooden spoon out. |
-| White people with dreads. |
-| Whoever actually spent money on this game. |
-| Y'all need Jesus. |
-| Your boyfriend's mysterious emotional breakdown. |
+| Th owi g silve wa e at a wait ess. |
+| U i ati g i  a c owded pool. |
+| Usi g Amazo  d o es to se d a th ax to politicia s. |
+| Whe  you  mothe  whips the woode  spoo  out. |
+| White people with d eads. |
+| Whoeve  actually spe t mo ey o  this game. |
+| Y'all  eed Jesus. |
+| You  boyf ie d's myste ious emotio al b eakdow . |
 
 |Total amount: 320|
 |---|

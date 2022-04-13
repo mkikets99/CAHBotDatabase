@@ -75,194 +75,194 @@ Answers amount: 186
 |---|
 
 ### Answers
-| Question |
+| Answers |
 |---|
-| A Bitchplosion |
+| A Bitchplosio  |
 | A Classy Face Tattoo |
-| A Cock Carousel |
+| A Cock Ca ousel |
 | A Comical Disability |
-| A Crack Diet |
-| A Craptrap |
-| A Drunk Handsy Mall Santa |
-| A Failed Marriage Proposal |
-| A Human Hair Sweater |
-| A Meth Faced Lawyer |
-| A Minotaur Cocksmack |
-| A Munter Hunter |
-| A Nun Threeway |
-| A Septic Tank Swimming Pool |
-| Abducting Homeless People |
-| Afterbirth Sandwich |
+| A C ack Diet |
+| A C apt ap |
+| A D u k Ha dsy Mall Sa ta |
+| A Failed Ma iage P oposal |
+| A Huma  Hai  Sweate  |
+| A Meth Faced Lawye  |
+| A Mi otau  Cocksmack |
+| A Mu te  Hu te  |
+| A Nu  Th eeway |
+| A Septic Ta k Swimmi g Pool |
+| Abducti g Homeless People |
+| Afte bi th Sa dwich |
 | All White Olympic Team |
-| Alligator Fuckhouse |
+| Alligato  Fuckhouse |
 | Amputated Puppy Leg |
-| An Ether-Soaked Dating Rag |
+| A  Ethe -Soaked Dati g Rag |
 | Apocalypse Sex |
 | Aquaphilia |
-| Babies Last Christmas |
+| Babies Last Ch istmas |
 | Bathsalt Zombies |
-| Beating The Ugly Child |
-| Benzo Nap |
+| Beati g The Ugly Child |
+| Be zo Nap |
 | Black Amish Dude |
 | Bloody Vagicle |
-| Blowing Stacks at The Kiddy Arcade |
-| Cheater's Apps |
-| Christ Killer |
-| Church of Flying Spaghetti People |
-| Cocaine Filled Birthday Loot Bag |
-| Cock and Ball Torture |
-| Creamy Delicious Pus |
-| Crowdfunded Genocide |
-| Custom Built Wheelchair |
-| Dwarf Dick |
-| Extra Thick Diarrhea Milkshake |
-| Faking a Mental Disorder |
-| Farting During a Rim Job |
-| Finger Popping Assholes |
-| Firehose Colonic |
-| Forgetting to Turn Off the Gas Chamber |
-| Free Samples from a Hooker |
+| Blowi g Stacks at The Kiddy A cade |
+| Cheate 's Apps |
+| Ch ist Kille  |
+| Chu ch of Flyi g Spaghetti People |
+| Cocai e Filled Bi thday Loot Bag |
+| Cock a d Ball To tu e |
+| C eamy Delicious Pus |
+| C owdfu ded Ge ocide |
+| Custom Built Wheelchai  |
+| Dwa f Dick |
+| Ext a Thick Dia hea Milkshake |
+| Faki g a Me tal Diso de  |
+| Fa ti g Du i g a Rim Job |
+| Fi ge  Poppi g Assholes |
+| Fi ehose Colo ic |
+| Fo getti g to Tu  Off the Gas Chambe  |
+| F ee Samples f om a Hooke  |
 | Fuckboys |
-| Gay Cruising in a Republian Neighbourhood |
-| Getting Fist Fucked by a Boxer |
-| Getting Strawberry Shortcaked |
-| Gluten Free Bullshit |
-| Guzzling Animal Semen |
-| Hipster Babies |
-| Humanburgers |
-| Investment Banger |
-| Jewish Christmas |
-| Jumping on the Gangbang Wagon |
-| K-Holing |
-| Kancho |
-| Knowingly Hitting on a Tranny |
-| Life Changing Acid Trips |
-| Masturbating in a Public Urinal |
-| Monster Porn |
+| Gay C uisi g i  a Republia  Neighbou hood |
+| Getti g Fist Fucked by a Boxe  |
+| Getti g St awbe y Sho tcaked |
+| Glute  F ee Bullshit |
+| Guzzli g A imal Seme  |
+| Hipste  Babies |
+| Huma bu ge s |
+| I vestme t Ba ge  |
+| Jewish Ch istmas |
+| Jumpi g o  the Ga gba g Wago  |
+| K-Holi g |
+| Ka cho |
+| K owi gly Hitti g o  a T a y |
+| Life Cha gi g Acid T ips |
+| Mastu bati g i  a Public U i al |
+| Mo ste  Po  |
 | Mucous Mayo |
-| Murder Suicide |
-| Passing Out in Someone Else's Puke |
-| Paying to Hunt Endangered Animals |
-| Phone Groping |
-| Picking Up Unattended Children |
-| Pissing in a Ball Crawl |
-| Playing Catch The Toddler |
-| Poo Scissors |
-| Poorly Executed Terrorist Attack |
+| Mu de  Suicide |
+| Passi g Out i  Someo e Else's Puke |
+| Payi g to Hu t E da ge ed A imals |
+| Pho e G opi g |
+| Picki g Up U atte ded Child e  |
+| Pissi g i  a Ball C awl |
+| Playi g Catch The Toddle  |
+| Poo Scisso s |
+| Poo ly Executed Te o ist Attack |
 | Pop Rock Blow Jobs |
-| Racist Christmas Present |
-| Razorblade Filled Candy |
-| Retrograde Ejaculation |
-| Shame Fucking |
-| Sharing Dirty Needles |
-| Social Justice Warriors |
-| Sporking |
-| Step-Fucker |
-| Tasty Butt Squirts |
-| Tequila Shots at an AA Meeting |
-| The First Gay President of the United States |
+| Racist Ch istmas P ese t |
+| Razo blade Filled Ca dy |
+| Ret og ade Ejaculatio  |
+| Shame Fucki g |
+| Sha i g Di ty Needles |
+| Social Justice Wa io s |
+| Spo ki g |
+| Step-Fucke  |
+| Tasty Butt Squi ts |
+| Tequila Shots at a  AA Meeti g |
+| The Fi st Gay P eside t of the U ited States |
 | The McShits |
-| The Minivan |
-| Tongue Punching Your Fart Box |
-| Truffle Butter |
-| Virtual Reality Mass Murder |
+| The Mi iva  |
+| To gue Pu chi g You  Fa t Box |
+| T uffle Butte  |
+| Vi tual Reality Mass Mu de  |
 | Y'all Qaeda |
-| 70 Year Old Prostitute(s) |
-| A Bag Stuffed With Mystery Meat |
-| A Bottle of Fine Wine |
-| A Collection of Baby Teeth |
-| A Daytime Pajama Party |
-| A Fart Connoisseur |
-| A Japanese Houseboy |
-| A Late Night Mannequin Party |
-| A Maggot Eating Contest |
+| 70 Yea  Old P ostitute(s) |
+| A Bag Stuffed With Myste y Meat |
+| A Bottle of Fi e Wi e |
+| A Collectio  of Baby Teeth |
+| A Daytime Pajama Pa ty |
+| A Fa t Co oisseu  |
+| A Japa ese Houseboy |
+| A Late Night Ma equi  Pa ty |
+| A Maggot Eati g Co test |
 | A Nudist Old Age Home |
-| A prolapsed rectum. |
-| A River of Tears |
-| A Toilet Scrub Brush |
-| A Walrus Giving Birth |
-| A Weapon of Ass Destruction |
-| Alien Abduction(s) |
-| All You Can Eat Indian Buffet(s) |
-| An Ex-Porn Star Kindergarten Teacher |
-| An Inspiriatinal Cult Leader |
-| Animals Having Sex |
-| Blumpkins |
-| Crack-Smoking Politician(s) |
+| A p olapsed  ectum. |
+| A Rive  of Tea s |
+| A Toilet Sc ub B ush |
+| A Wal us Givi g Bi th |
+| A Weapo  of Ass Dest uctio  |
+| Alie  Abductio (s) |
+| All You Ca  Eat I dia  Buffet(s) |
+| A  Ex-Po  Sta  Ki de ga te  Teache  |
+| A  I spi iati al Cult Leade  |
+| A imals Havi g Sex |
+| Blumpki s |
+| C ack-Smoki g Politicia (s) |
 | Dad's Fuck Face |
-| Dirty Adult Diaper(s) |
-| Disposable Razorblade(s) |
-| DIY Tampon |
-| Double Sided Bondage Tape |
-| Drinking Alone in the Dark |
-| Dutch Ovening |
-| Eating Cigarette Butts |
-| Elbow Grease |
-| Endangered Species |
-| Eurotrash Speedo Line(s) |
-| Expired Dog Food |
-| Extra Friendly Airport Security |
-| Factory Slaves |
-| Fat Shaming |
-| French Canadian(s) |
-| Fresh Road Kill |
-| Going Postal |
-| Homemade Abortion Kit(s) |
-| Homemade Desert(s) |
-| Impending Doom |
-| Invisible Underwear |
-| Itchy Crotch Rot |
-| Kidney Stone(s) |
-| Kinky Civil War Reenactments |
-| Licking Toilet Seats |
+| Di ty Adult Diape (s) |
+| Disposable Razo blade(s) |
+| DIY Tampo  |
+| Double Sided Bo dage Tape |
+| D i ki g Alo e i  the Da k |
+| Dutch Ove i g |
+| Eati g Ciga ette Butts |
+| Elbow G ease |
+| E da ge ed Species |
+| Eu ot ash Speedo Li e(s) |
+| Expi ed Dog Food |
+| Ext a F ie dly Ai po t Secu ity |
+| Facto y Slaves |
+| Fat Shami g |
+| F e ch Ca adia (s) |
+| F esh Road Kill |
+| Goi g Postal |
+| Homemade Abo tio  Kit(s) |
+| Homemade Dese t(s) |
+| Impe di g Doom |
+| I visible U de wea  |
+| Itchy C otch Rot |
+| Kid ey Sto e(s) |
+| Ki ky Civil Wa  Ree actme ts |
+| Licki g Toilet Seats |
 | Makeshift Dildos Of Shame |
-| Making Shitty Life Choices |
-| Mermaid Tail Soup |
-| Missing The Bowl In An Airplane Bathroom |
+| Maki g Shitty Life Choices |
+| Me maid Tail Soup |
+| Missi g The Bowl I  A  Ai pla e Bath oom |
 | Moldy Cheese Sauce |
-| Mouth Herpes |
-| My Little Pony Tattoo |
+| Mouth He pes |
+| My Little Po y Tattoo |
 | Naked Yoga |
-| North Korea. |
-| Ostrich Racing |
-| Pet Rock Collecting |
+| No th Ko ea. |
+| Ost ich Raci g |
+| Pet Rock Collecti g |
 | Pillow Fight Club |
-| Pinata(s) Full of Cockroaches |
-| Pirate Flags and Eye Patches |
-| Piss Flavored Jaw breaker(s) |
-| Placenta Milkshakes |
-| Pounding Meat |
-| Promiscuous Teen(s) |
-| Public Flogging |
-| Pulling Tapeworms Out of Your Ass |
+| Pi ata(s) Full of Cock oaches |
+| Pi ate Flags a d Eye Patches |
+| Piss Flavo ed Jaw b eake (s) |
+| Place ta Milkshakes |
+| Pou di g Meat |
+| P omiscuous Tee (s) |
+| Public Floggi g |
+| Pulli g Tapewo ms Out of You  Ass |
 | Rat Shit |
-| Really Tight Leather Pants |
-| Rectal Feeding |
+| Really Tight Leathe  Pa ts |
+| Rectal Feedi g |
 | Red Neck Family Values |
-| Rusty Trombone Girls |
-| Sacrificing Neighborhood Pets |
-| Self Popping Pimples |
+| Rusty T ombo e Gi ls |
+| Sac ifici g Neighbo hood Pets |
+| Self Poppi g Pimples |
 | Sex Ritual(s) |
-| Sexually Abusive Doctor(s) |
-| Skanky Fat Cat(s) |
-| Skinny Dipping in an Outhouse |
-| Skydiving Without A Parachute |
-| Slutty Car Wash Girls |
-| Taking A Date To The Soup Kitchen |
-| Tartar Sauce |
-| The American Dream |
+| Sexually Abusive Docto (s) |
+| Ska ky Fat Cat(s) |
+| Ski y Dippi g i  a  Outhouse |
+| Skydivi g Without A Pa achute |
+| Slutty Ca  Wash Gi ls |
+| Taki g A Date To The Soup Kitche  |
+| Ta ta  Sauce |
+| The Ame ica  D eam |
 | The Amish |
-| The Bearded Lady |
-| The Friend Zone |
-| The Morning After Pill |
-| Thrift Shops |
-| Tiny Nipples |
+| The Bea ded Lady |
+| The F ie d Zo e |
+| The Mo i g Afte  Pill |
+| Th ift Shops |
+| Ti y Nipples |
 | Toasted Nuts |
-| Toe Nail Clippings |
-| Triple Penetration |
-| Week Old Kitty Litter |
-| Wiping Your Ass With Your Hand |
-| Yellow Snow Snowcone |
+| Toe Nail Clippi gs |
+| T iple Pe et atio  |
+| Week Old Kitty Litte  |
+| Wipi g You  Ass With You  Ha d |
+| Yellow S ow S owco e |
 
 |Total amount: 186|
 |---|

@@ -104,246 +104,246 @@ Answers amount: 238
 |---|
 
 ### Answers
-| Question |
+| Answers |
 |---|
-| 2 girls 1 cockroach |
-| 4 wraps of heroin |
-| A absurd build up of smegma under the foreskin |
-| A cury so hot it that it makes your arse feel like you've been picking up the soap in prison |
-| A Donald Trump pussy grab |
-| A gaping arsehole |
-| A gynaecologist with a sex addiction |
-| A jihadi terrorist attack |
-| A paralell universe where men have vaginas and women have penises |
-| A party in Michael Barrymore's pool |
-| A shocking amount of Lurpak |
-| A solar powered dildo |
-| A teacher with a child grooming habit |
-| Ainsley Harriott |
+| 2 gi ls 1 cock oach |
+| 4 w aps of he oi  |
+| A absu d build up of smegma u de  the fo eski  |
+| A cu y so hot it that it makes you  a se feel like you've bee  picki g up the soap i  p iso  |
+| A Do ald T ump pussy g ab |
+| A gapi g a sehole |
+| A gy aecologist with a sex addictio  |
+| A jihadi te o ist attack |
+| A pa alell u ive se whe e me  have vagi as a d wome  have pe ises |
+| A pa ty i  Michael Ba ymo e's pool |
+| A shocki g amou t of Lu pak |
+| A sola  powe ed dildo |
+| A teache  with a child g oomi g habit |
+| Ai sley Ha iott |
 | Alcohol abuse |
-| Another outbreak of Ebola in West Africa |
-| Bare backing a lady boy in Thailand |
-| Becoming a Jew |
-| Being alone in bed with Kevin Spacey |
-| Being arrested for necrophilia |
-| Being banged from behind by a fat sweaty black dick |
-| Being impregnated by 3 guys at once |
-| Bruce Forsyth |
-| Cabbage farts that burn your nostrils |
+| A othe  outb eak of Ebola i  West Af ica |
+| Ba e backi g a lady boy i  Thaila d |
+| Becomi g a Jew |
+| Bei g alo e i  bed with Kevi  Spacey |
+| Bei g a ested fo   ec ophilia |
+| Bei g ba ged f om behi d by a fat sweaty black dick |
+| Bei g imp eg ated by 3 guys at o ce |
+| B uce Fo syth |
+| Cabbage fa ts that bu  you   ost ils |
 | Chemical attacks |
-| Chester Bennington's rope collection |
-| Chill flavoured anal lube |
-| Decaying pussy flaps |
-| Dog shit flavoured jelly beans |
-| Donating blood when you know you have HIV |
-| Dwarfs with large dicks |
-| Ejaculating into ham slices and sticking them all over a woman |
-| Ethnic Cleansing |
-| Executig anyone with a speech impediment |
-| Explosive diarrhoea |
-| Feeding a Muslim bacon |
-| Feminism |
-| Finger blasting your Nan until she squirts |
-| Fisting a granny |
-| Fucking a wet soggy cardboard box |
-| Gay porn |
-| Harvey Price's hot creamy semen |
-| Having inappropiate thoughts about being fucked by a horse |
-| Hillsborough disaster part II |
-| Hugh Heffner's rotting foreskin |
-| Indecent images of Boris Johnson felching |
-| Interracial double penetration |
-| Islamic State's take on the events of 9/11 |
-| Jeremy Corbyn |
-| Kim Jong-Un's crusty ass ring |
-| Madeleine McCann's new age progression image |
-| Making jokes about gender fluidity |
-| Mensturation porn |
-| Mild racism and extreme homophobia |
+| Cheste  Be i gto 's  ope collectio  |
+| Chill flavou ed a al lube |
+| Decayi g pussy flaps |
+| Dog shit flavou ed jelly bea s |
+| Do ati g blood whe  you k ow you have HIV |
+| Dwa fs with la ge dicks |
+| Ejaculati g i to ham slices a d sticki g them all ove  a woma  |
+| Eth ic Clea si g |
+| Executig a yo e with a speech impedime t |
+| Explosive dia hoea |
+| Feedi g a Muslim baco  |
+| Femi ism |
+| Fi ge  blasti g you  Na  u til she squi ts |
+| Fisti g a g a y |
+| Fucki g a wet soggy ca dboa d box |
+| Gay po  |
+| Ha vey P ice's hot c eamy seme  |
+| Havi g i app opiate thoughts about bei g fucked by a ho se |
+| Hillsbo ough disaste  pa t II |
+| Hugh Heff e 's  otti g fo eski  |
+| I dece t images of Bo is Joh so  felchi g |
+| I te acial double pe et atio  |
+| Islamic State's take o  the eve ts of 9/11 |
+| Je emy Co by  |
+| Kim Jo g-U 's c usty ass  i g |
+| Madelei e McCa 's  ew age p og essio  image |
+| Maki g jokes about ge de  fluidity |
+| Me stu atio  po  |
+| Mild  acism a d ext eme homophobia |
 | No ketchup, just sauce |
 | Obesity |
-| Oozing herpes scabs |
-| Osama Bin Laden tribute videos |
+| Oozi g he pes scabs |
+| Osama Bi  Lade  t ibute videos |
 | Pubic lice |
-| Pulling out just before ejaculation and pouring tobasco sauce into the receiving hole |
-| Pushing the big red nuke button |
-| Putting a blind man into a circular room and asking him to find the corner |
-| Putting it balls deep into the stink |
-| Realising that Derren Brown is a cock muncher |
-| Riming the bowl of a festival toilet |
-| Robinsons fruit shoot mixed with rohypnol |
-| Severe down's syndrome |
-| Sliding some roast pork into a vegan's salad |
-| Squeezing out a turd bigger than King Kong's finger |
-| Telling holocaust jokes at a bar mitzvah |
-| The back end of a wart hog |
-| The end of the Earth |
-| The scent of rotting corpse |
-| The smell of Lucky Lucky man's ball sack at the end of a season in Ibiza |
-| The smell of vaginal discharge |
-| Theresa May's landing strip |
-| Under-age pregnancy |
-| Using barbed wire as a cock ring |
-| Vegans being slaughtered in the streets |
-| Watching Princess Diana's car go up in flames |
-| 3 veiny Triumphant black dicksTongue punching Donald Trump`s turd tunnel |
-| A Deadly Indonesian Tsunami |
-| A hairbrush coated in KY jelly |
-| A homeless man`s freshly soiled underwear |
-| A mix of Custard and phlegm |
-| An alternative Version  of Home Alone, where Kevin is layed by Maddie McCann |
-| An American school massacre |
-| An endless supply of underage girls and cocaine |
-| Asking a Parkingson`s desease patient to draw a straight line |
-| Beer farts |
-| Being able to suck yourself off |
-| Being anally blessed by the pope |
-| Brexit. |
-| Calling your best mate`s Mom to tell them they`ve been killed in a car accident |
-| Cancer |
-| Choking a vegan to death whilst sticking a sausage up their arse |
-| Coating your dick in onion juice and sticking it into an arsehole |
-| Colonic Irrigation |
-| Communal shitting |
-| Contaminating a School`s water supply with HIV |
-| crashing a helicoptor into a carpark next to a football stadium |
-| Deciding to release Madeleine McCann from your sex Dungeon |
-| Dissolving the body of a Saudi Arabian journalist in acid |
-| Drinking a pint of clumpy diarrhea |
-| Driving a fiat 500 paid for by daddy |
-| Ed Sheeran`s receding hairline |
-| Ejaculating coco pop`s flavoured jizz |
-| Erectile disfunction |
-| Farting into an empty bag of chrisps and sniffing it |
-| Fingering a baboon`s big red arse |
-| Fingering the office cleaner |
-| First ever peroid blood stains |
-| Flying a drone over Gatwick airport |
-| Ginger pubes |
-| Going dogging and seeing your parent`s car parked up |
-| Grandma folding your edible underwear. |
-| Greggs Vegan Sausage rolls |
-| Harry Redknapp`s saggy bacon cheeky chops |
-| In-grown pubic hairs |
-| Jacob rees mogg |
-| Ketamine and Red Bull cocktails |
-| Kissing your grandma and she slips her tounge in |
-| Knowing your boss is the World`s biggest bell end |
-| Letting Gemma collins squirt on your face |
-| Licking the sweat that builds up inbetween a fat person`s belly rolls |
-| Nando`s Black xx Hot Sauce |
-| Noel edmunds |
+| Pulli g out just befo e ejaculatio  a d pou i g tobasco sauce i to the  eceivi g hole |
+| Pushi g the big  ed  uke butto  |
+| Putti g a bli d ma  i to a ci cula   oom a d aski g him to fi d the co e  |
+| Putti g it balls deep i to the sti k |
+| Realisi g that De e  B ow  is a cock mu che  |
+| Rimi g the bowl of a festival toilet |
+| Robi so s f uit shoot mixed with  ohyp ol |
+| Seve e dow 's sy d ome |
+| Slidi g some  oast po k i to a vega 's salad |
+| Squeezi g out a tu d bigge  tha  Ki g Ko g's fi ge  |
+| Telli g holocaust jokes at a ba  mitzvah |
+| The back e d of a wa t hog |
+| The e d of the Ea th |
+| The sce t of  otti g co pse |
+| The smell of Lucky Lucky ma 's ball sack at the e d of a seaso  i  Ibiza |
+| The smell of vagi al discha ge |
+| The esa May's la di g st ip |
+| U de -age p eg a cy |
+| Usi g ba bed wi e as a cock  i g |
+| Vega s bei g slaughte ed i  the st eets |
+| Watchi g P i cess Dia a's ca  go up i  flames |
+| 3 vei y T iumpha t black dicksTo gue pu chi g Do ald T ump`s tu d tu el |
+| A Deadly I do esia  Tsu ami |
+| A hai b ush coated i  KY jelly |
+| A homeless ma `s f eshly soiled u de wea  |
+| A mix of Custa d a d phlegm |
+| A  alte ative Ve sio   of Home Alo e, whe e Kevi  is layed by Maddie McCa  |
+| A  Ame ica  school massac e |
+| A  e dless supply of u de age gi ls a d cocai e |
+| Aski g a Pa ki gso `s desease patie t to d aw a st aight li e |
+| Bee  fa ts |
+| Bei g able to suck you self off |
+| Bei g a ally blessed by the pope |
+| B exit. |
+| Calli g you  best mate`s Mom to tell them they`ve bee  killed i  a ca  accide t |
+| Ca ce  |
+| Choki g a vega  to death whilst sticki g a sausage up thei  a se |
+| Coati g you  dick i  o io  juice a d sticki g it i to a  a sehole |
+| Colo ic I igatio  |
+| Commu al shitti g |
+| Co tami ati g a School`s wate  supply with HIV |
+| c ashi g a helicopto  i to a ca pa k  ext to a football stadium |
+| Decidi g to  elease Madelei e McCa  f om you  sex Du geo  |
+| Dissolvi g the body of a Saudi A abia  jou alist i  acid |
+| D i ki g a pi t of clumpy dia hea |
+| D ivi g a fiat 500 paid fo  by daddy |
+| Ed Shee a `s  ecedi g hai li e |
+| Ejaculati g coco pop`s flavou ed jizz |
+| E ectile disfu ctio  |
+| Fa ti g i to a  empty bag of ch isps a d s iffi g it |
+| Fi ge i g a baboo `s big  ed a se |
+| Fi ge i g the office clea e  |
+| Fi st eve  pe oid blood stai s |
+| Flyi g a d o e ove  Gatwick ai po t |
+| Gi ge  pubes |
+| Goi g doggi g a d seei g you  pa e t`s ca  pa ked up |
+| G a dma foldi g you  edible u de wea . |
+| G eggs Vega  Sausage  olls |
+| Ha y Redk app`s saggy baco  cheeky chops |
+| I -g ow  pubic hai s |
+| Jacob  ees mogg |
+| Ketami e a d Red Bull cocktails |
+| Kissi g you  g a dma a d she slips he  tou ge i  |
+| K owi g you  boss is the Wo ld`s biggest bell e d |
+| Letti g Gemma colli s squi t o  you  face |
+| Licki g the sweat that builds up i betwee  a fat pe so `s belly  olls |
+| Na do`s Black xx Hot Sauce |
+| Noel edmu ds |
 | Novichok |
-| Opening a tin of tuna and sticking your dick in |
-| Piers Morgan |
-| Poking a rusty, aids infected needle down your Japs eye |
-| Pretending you can`t hear your parents banging whilst you masturbate |
-| Pretending your dick is a sausage and frying it in a frying pan |
-| putting a finger in your friend`s belly button and sniffing the jam |
-| Putting on a pair of semen filled socks |
-| Putting strong laxitives in your nans bovril |
+| Ope i g a ti  of tu a a d sticki g you  dick i  |
+| Pie s Mo ga  |
+| Poki g a  usty, aids i fected  eedle dow  you  Japs eye |
+| P ete di g you ca `t hea  you  pa e ts ba gi g whilst you mastu bate |
+| P ete di g you  dick is a sausage a d f yi g it i  a f yi g pa  |
+| putti g a fi ge  i  you  f ie d`s belly butto  a d s iffi g the jam |
+| Putti g o  a pai  of seme  filled socks |
+| Putti g st o g laxitives i  you   a s bov il |
 | Rape |
-| Revenge porn |
-| Running over disabled children |
-| Serana William`s black sweaty scrotum |
-| Sharing a house with 30 illegal immigrants |
-| Shitting in your hand and clapping |
-| Shitting on a womens chest and then smacking it with a tennis racket |
-| Stalking |
-| Stephen Hawking`s voice box |
-| Stepping into oncoming traffic |
-| Taking more dick in your ass than Michael Jackson`s chimp Bubbles |
-| The ability to see everyone naked |
-| The isle of Fernandos |
-| The pungent smell of a gynocologist`s glove |
-| The smell of a malnutritioned African child |
-| The sticky remains of Rolf Harris`s child filled wet dreams |
-| Thinking it`s acceptable to be a part of society |
-| Tourettes - you fucking cunt |
-| Turning up to an Eid celebration wearing a Peppa pig costume |
-| Watching the Theresa May `Dancing Queen`video on repeat for 24 hours |
-| Watching your mom get destroyed in an interracial gangbang |
-| Working at McDonalds and sprinkling toe nails in the fries |
-| Yellow oozing syphillis discharge |
-| 39 frozen Vietnamese immigrants. |
-| A brown stinking turd cutter. |
-| A crocodile with a Scouse accent. |
-| A deadly mix of hydrochloric acid and fake tan. |
-| A non-down syndrome version of Lewis Capaldi. |
-| A sleep over with a bus full of convicted pedophiles. |
-| Abusing Vulnerable old people. |
-| An Army of smack heads with HIV infected needles. |
-| Anorexia |
-| Ant in your booty and Dec in your mouth. |
-| Asking a double amputee to knit you a nice Christmas jumper. |
-| Being fingered by Prince Andrew. |
-| Being forced to walk around Ikea for the rest of your life. |
-| Being shagged in the fart box by the ghost of George Michael. |
-| Being so skint that you let your landlord finger blast your shit pipe to pay off the rent. |
-| Climbing 50 flights of stairs to reach Weatherspoon`s toilets. |
-| Clones of Rolf Harris. |
+| Reve ge po  |
+| Ru i g ove  disabled child e  |
+| Se a a William`s black sweaty sc otum |
+| Sha i g a house with 30 illegal immig a ts |
+| Shitti g i  you  ha d a d clappi g |
+| Shitti g o  a wome s chest a d the  smacki g it with a te is  acket |
+| Stalki g |
+| Stephe  Hawki g`s voice box |
+| Steppi g i to o comi g t affic |
+| Taki g mo e dick i  you  ass tha  Michael Jackso `s chimp Bubbles |
+| The ability to see eve yo e  aked |
+| The isle of Fe a dos |
+| The pu ge t smell of a gy ocologist`s glove |
+| The smell of a mal ut itio ed Af ica  child |
+| The sticky  emai s of Rolf Ha is`s child filled wet d eams |
+| Thi ki g it`s acceptable to be a pa t of society |
+| Tou ettes - you fucki g cu t |
+| Tu i g up to a  Eid celeb atio  wea i g a Peppa pig costume |
+| Watchi g the The esa May `Da ci g Quee `video o   epeat fo  24 hou s |
+| Watchi g you  mom get dest oyed i  a  i te acial ga gba g |
+| Wo ki g at McDo alds a d sp i kli g toe  ails i  the f ies |
+| Yellow oozi g syphillis discha ge |
+| 39 f oze  Viet amese immig a ts. |
+| A b ow  sti ki g tu d cutte . |
+| A c ocodile with a Scouse acce t. |
+| A deadly mix of hyd ochlo ic acid a d fake ta . |
+| A  o -dow  sy d ome ve sio  of Lewis Capaldi. |
+| A sleep ove  with a bus full of co victed pedophiles. |
+| Abusi g Vul e able old people. |
+| A  A my of smack heads with HIV i fected  eedles. |
+| A o exia |
+| A t i  you  booty a d Dec i  you  mouth. |
+| Aski g a double amputee to k it you a  ice Ch istmas jumpe . |
+| Bei g fi ge ed by P i ce A d ew. |
+| Bei g fo ced to walk a ou d Ikea fo  the  est of you  life. |
+| Bei g shagged i  the fa t box by the ghost of Geo ge Michael. |
+| Bei g so ski t that you let you  la dlo d fi ge  blast you  shit pipe to pay off the  e t. |
+| Climbi g 50 flights of stai s to  each Weathe spoo `s toilets. |
+| Clo es of Rolf Ha is. |
 | Daddy Issues. |
-| Deleting gay porn from your browser history. |
-| Donald Trump sitting on your face. |
-| Eggy farts. |
-| Farting in a baby`s face. |
-| Forced marriage. |
-| Freezing a shit and using it to penetrate your partner. |
-| Fucking rawwwwwwwwwwwww. |
-| Genital wart puss. |
-| Getting a boner at your Nan`s funeral. |
-| Getting an erection over an amputee`s stump. |
-| Getting suicidal thoughts after going on the Jeremy Kyle show. |
-| Getting two hamsters stuck in your vagina. |
-| Going down on an obese girl whilst using her flabby stomach as a hoodie. |
-| Going on a Tinder date whilst the body of your last Tinder date decays in the boot of your car. |
-| Grenfell Tower The Movie starring Jacob Rees-Mogg. |
-| Greta Thunberg.A slimy pussy hole. |
-| How to shag a chubby girl part 1. |
-| Identifying your dead husband after he was eaten by a 10ft shark. |
-| Jizzing in your Mother in-law's soup. |
-| Katie Hopkins. |
-| Leaving Neverland 2 - The confession tapes of Bubbles the chimp. |
-| Leg amputation. |
-| Letting your with have a threesome with Boris Johnson and Jeremy Corbyn. |
-| Licking a Pringle and then putting it back in the tub for somebody else to eat. |
-| Lord Sugar`s ethnic cleansing process. |
-| Mass Terrorism. |
-| Masterbating over the sound of your Dad`s balls slapping off your Mom`s flaps in the room next door. |
-| Melting Simon Cowell`s new face with a blow torch. |
-| No Nut November. |
-| Non-stop giggling |
-| Not being able to make any facial expressions because you`ve had too much botox. |
-| Piers Morgan. |
-| Placing drugs on the tip of an erect penis and inserting it into an anus. |
-| Placing your balls in a bowl of warm water and making your girlfriend blow bubbles under them using a straw. |
-| Pretending to have mental issues. |
-| Projectile vomiting |
-| Prolapsed arseholes. |
-| Putting two spoons of Ketamine in your Nan`s tea. |
-| Quitting your successful career to become an influencer. |
-| Really loud, camp and annoying gay people. |
-| Rubbing Ainsley Harriot`s spicy meat around your arshole. |
-| Scolding other peoples children. |
-| Second hand toilet roll. |
-| Shitting in a wacky warehouse ball pit. |
-| Sitting on Harvy Weinstein`s casting couch lubed up ready for a beasting. |
-| Spunking your Euro Millions winnings on Columbian marching powder and midget hookers. |
-| Sted heads with tiny dicks |
-| Taking a plate of pigs in blankets to an Eid party. |
-| Teaching a child the anatomy of reproductive organs through scratch and sniff. |
-| The Bald nonce. |
-| The effect a chicken vindaloo has on your arse the next morning. |
+| Deleti g gay po  f om you  b owse  histo y. |
+| Do ald T ump sitti g o  you  face. |
+| Eggy fa ts. |
+| Fa ti g i  a baby`s face. |
+| Fo ced ma iage. |
+| F eezi g a shit a d usi g it to pe et ate you  pa t e . |
+| Fucki g  awwwwwwwwwwwww. |
+| Ge ital wa t puss. |
+| Getti g a bo e  at you  Na `s fu e al. |
+| Getti g a  e ectio  ove  a  amputee`s stump. |
+| Getti g suicidal thoughts afte  goi g o  the Je emy Kyle show. |
+| Getti g two hamste s stuck i  you  vagi a. |
+| Goi g dow  o  a  obese gi l whilst usi g he  flabby stomach as a hoodie. |
+| Goi g o  a Ti de  date whilst the body of you  last Ti de  date decays i  the boot of you  ca . |
+| G e fell Towe  The Movie sta i g Jacob Rees-Mogg. |
+| G eta Thu be g.A slimy pussy hole. |
+| How to shag a chubby gi l pa t 1. |
+| Ide tifyi g you  dead husba d afte  he was eate  by a 10ft sha k. |
+| Jizzi g i  you  Mothe  i -law's soup. |
+| Katie Hopki s. |
+| Leavi g Neve la d 2 - The co fessio  tapes of Bubbles the chimp. |
+| Leg amputatio . |
+| Letti g you  with have a th eesome with Bo is Joh so  a d Je emy Co by . |
+| Licki g a P i gle a d the  putti g it back i  the tub fo  somebody else to eat. |
+| Lo d Suga `s eth ic clea si g p ocess. |
+| Mass Te o ism. |
+| Maste bati g ove  the sou d of you  Dad`s balls slappi g off you  Mom`s flaps i  the  oom  ext doo . |
+| Melti g Simo  Cowell`s  ew face with a blow to ch. |
+| No Nut Novembe . |
+| No -stop giggli g |
+| Not bei g able to make a y facial exp essio s because you`ve had too much botox. |
+| Pie s Mo ga . |
+| Placi g d ugs o  the tip of a  e ect pe is a d i se ti g it i to a  a us. |
+| Placi g you  balls i  a bowl of wa m wate  a d maki g you  gi lf ie d blow bubbles u de  them usi g a st aw. |
+| P ete di g to have me tal issues. |
+| P ojectile vomiti g |
+| P olapsed a seholes. |
+| Putti g two spoo s of Ketami e i  you  Na `s tea. |
+| Quitti g you  successful ca ee  to become a  i flue ce . |
+| Really loud, camp a d a oyi g gay people. |
+| Rubbi g Ai sley Ha iot`s spicy meat a ou d you  a shole. |
+| Scoldi g othe  peoples child e . |
+| Seco d ha d toilet  oll. |
+| Shitti g i  a wacky wa ehouse ball pit. |
+| Sitti g o  Ha vy Wei stei `s casti g couch lubed up  eady fo  a beasti g. |
+| Spu ki g you  Eu o Millio s wi i gs o  Columbia  ma chi g powde  a d midget hooke s. |
+| Sted heads with ti y dicks |
+| Taki g a plate of pigs i  bla kets to a  Eid pa ty. |
+| Teachi g a child the a atomy of  ep oductive o ga s th ough sc atch a d s iff. |
+| The Bald  o ce. |
+| The effect a chicke  vi daloo has o  you  a se the  ext mo i g. |
 | The Holocaust 2020. |
-| Tongue punching a crusty jizz sock. |
-| Too much lip filler. |
-| Tourettes. |
-| Trapped wind. |
-| Two week matured foreskin chedder. |
-| Using a wire coat hanger in a home abortion procedure. |
-| Using Caitlyn Jenner`s formar testicles in a bush tucker trial. |
-| Wanking to nugget porn. |
-| Wayne Liniker aka Duke Noncem. |
+| To gue pu chi g a c usty jizz sock. |
+| Too much lip fille . |
+| Tou ettes. |
+| T apped wi d. |
+| Two week matu ed fo eski  chedde . |
+| Usi g a wi e coat ha ge  i  a home abo tio  p ocedu e. |
+| Usi g Caitly  Je e `s fo ma  testicles i  a bush tucke  t ial. |
+| Wa ki g to  ugget po . |
+| Way e Li ike  aka Duke No cem. |
 
 |Total amount: 238|
 |---|

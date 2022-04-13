@@ -20,24 +20,24 @@ Answers amount: 16
 |---|
 
 ### Answers
-| Question |
+| Answers |
 |---|
-| 25 shitty jokes about House of Cards. |
-| A childless marriage. |
-| A homoerotic subplot. |
+| 25 shitty jokes about House of Ca ds. |
+| A childless ma iage. |
+| A homoe otic subplot. |
 | A mucous plug. |
-| An older woman who knows her way around the penis. |
-| An origami swan that's some kind of symbol? |
-| Carbon monoxide poisoning. |
-| Discharging a firearm in a residential area. |
-| Forcing a handjob on a dying man. |
-| Getting eaten out while on the phone with Dad. |
-| Making it look like a suicide. |
-| My constituents. |
-| Punching a guy through a wall. |
-| Ribs so good they transcend race and class. |
-| Strangling a dog to make a point to the audience. |
-| The sensitive European photographer who's fucking my wife. |
+| A  olde  woma  who k ows he  way a ou d the pe is. |
+| A  o igami swa  that's some ki d of symbol? |
+| Ca bo  mo oxide poiso i g. |
+| Discha gi g a fi ea m i  a  eside tial a ea. |
+| Fo ci g a ha djob o  a dyi g ma . |
+| Getti g eate  out while o  the pho e with Dad. |
+| Maki g it look like a suicide. |
+| My co stitue ts. |
+| Pu chi g a guy th ough a wall. |
+| Ribs so good they t a sce d  ace a d class. |
+| St a gli g a dog to make a poi t to the audie ce. |
+| The se sitive Eu opea  photog aphe  who's fucki g my wife. |
 
 |Total amount: 16|
 |---|

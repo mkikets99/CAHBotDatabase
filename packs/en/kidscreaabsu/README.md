@@ -6,11 +6,11 @@ Answers amount: 350
 ### Questions
 | Question | Amount of answers |
 |---|---|
-| *RANDOM*Hand this card to another player and have them: MAKE A LOUD FART NOISE | 1 |
-| *RANDOM*Hand this card to another player and have them: MAKE SILLY FACES FOR THIRTY SECONDS | 1 |
-| *RANDOM*Hand this card to another player and have them: SING A SONG | 1 |
-| *RANDOM*Hand this card to another player and have them: TELL A FUNNY STORY | 1 |
-| *RANDOM*Hand this card to another player and have them: TELL A JOKE | 1 |
+| *RANDOM* Hand this card to another player and have them: MAKE A LOUD FART NOISE | 1 |
+| *RANDOM* Hand this card to another player and have them: MAKE SILLY FACES FOR THIRTY SECONDS | 1 |
+| *RANDOM* Hand this card to another player and have them: SING A SONG | 1 |
+| *RANDOM* Hand this card to another player and have them: TELL A FUNNY STORY | 1 |
+| *RANDOM* Hand this card to another player and have them: TELL A JOKE | 1 |
 | Did you hear about the new boy band? They are called _ on the Block. | 1 |
 | Eating _ makes me stronger. | 1 |
 | Eenie, meenie, miney, mo. Catch a tiger by _. | 1 |
@@ -61,7 +61,7 @@ Answers amount: 350
 | Instead of turkey this year, my family is going to eat _ for Thanksgiving. | 1 |
 | It's raining cats and _. | 1 |
 | Kids Create Absurdity makes me want to _. | 1 |
-| Knock, knock.Who's there? | 1 |
+| Knock, knock. Who's there? | 1 |
 | Last night I dreamt about _. | 1 |
 | Look up at the sky and wish upon a _. | 1 |
 | My babysitter says I can't have a snack until I clean up all of my _. | 1 |
@@ -111,358 +111,358 @@ Answers amount: 350
 |---|
 
 ### Answers
-| Question |
+| Answers |
 |---|
-| A barf smoothie |
-| A bowl of worm soup |
-| A giant octopus |
-| A giant pile of dirty socks |
-| A giant turd |
-| A grumpy unicorn |
-| A half eaten candy bar |
-| A haunted house |
-| A lemur |
-| A realy awful haircut |
-| A snart (sneezing and farting at the same time) |
-| A squirrel fight |
-| A t-rex with really long arms |
-| A talking scarecrow |
-| A wet and muddy, smelly dog |
-| A wet, dirty sponge |
+| A ba f smoothie |
+| A bowl of wo m soup |
+| A gia t octopus |
+| A gia t pile of di ty socks |
+| A gia t tu d |
+| A g umpy u ico  |
+| A half eate  ca dy ba  |
+| A hau ted house |
+| A lemu  |
+| A  ealy awful hai cut |
+| A s a t (s eezi g a d fa ti g at the same time) |
+| A squi el fight |
+| A t- ex with  eally lo g a ms |
+| A talki g sca ec ow |
+| A wet a d muddy, smelly dog |
+| A wet, di ty spo ge |
 | A whatchamacallit |
-| Accidentally throwing the remote through the TV |
-| Angry elves |
-| Angry teenagers |
-| Annoying laughter |
-| Archery |
-| Armpit fart noises |
+| Accide tally th owi g the  emote th ough the TV |
+| A g y elves |
+| A g y tee age s |
+| A oyi g laughte  |
+| A che y |
+| A mpit fa t  oises |
 | Awesome possum |
 | Awesome stuff. |
 | Awful, loud music |
-| Awkward moment |
-| Baby pacifiers |
-| Back hair |
-| Bacon |
-| Barfing at the dinner table |
-| Barfing on an airplane |
+| Awkwa d mome t |
+| Baby pacifie s |
+| Back hai  |
+| Baco  |
+| Ba fi g at the di e  table |
+| Ba fi g o  a  ai pla e |
 | Basketball |
-| Being goofy |
-| Being told to "grow up" |
-| Belly dancers. |
+| Bei g goofy |
+| Bei g told to "g ow up" |
+| Belly da ce s. |
 | Blah blah blah |
-| Blazing bonfires |
-| Blood sucking vampires |
-| Blubber |
-| Boring babysitters |
-| Bouncey house |
-| Bouncing on a pogo stick. |
-| Brain farts |
-| Broken sunglasses |
-| Building a tree fort |
-| Bumbling blabbermouths |
-| Burping really loud |
-| Butt crust |
+| Blazi g bo fi es |
+| Blood sucki g vampi es |
+| Blubbe  |
+| Bo i g babysitte s |
+| Bou cey house |
+| Bou ci g o  a pogo stick. |
+| B ai  fa ts |
+| B oke  su glasses |
+| Buildi g a t ee fo t |
+| Bumbli g blabbe mouths |
+| Bu pi g  eally loud |
+| Butt c ust |
 | Cabbages |
 | Cake |
-| Cancelled play dates |
-| Candy canes |
-| Candy corn |
-| Car sickness |
-| Cartwheels |
-| Catching your friend picking their nose |
+| Ca celled play dates |
+| Ca dy ca es |
+| Ca dy co  |
+| Ca  sick ess |
+| Ca twheels |
+| Catchi g you  f ie d picki g thei   ose |
 | Chapped lips |
-| Cheerleading |
-| Chewed gum stuck undfer the table |
-| Chicken carcass |
-| Chicken nuggets |
+| Chee leadi g |
+| Chewed gum stuck u dfe  the table |
+| Chicke  ca cass |
+| Chicke   uggets |
 | Chocolate cupcakes |
-| Chunks of food in my teeth |
-| Chunky chickens |
-| Circus freaks |
-| Cleaning up my room |
-| Climbing Mount Everest |
-| Clogging the toilet with a large poop |
+| Chu ks of food i  my teeth |
+| Chu ky chicke s |
+| Ci cus f eaks |
+| Clea i g up my  oom |
+| Climbi g Mou t Eve est |
+| Cloggi g the toilet with a la ge poop |
 | Cobwebs |
-| Cockroaches |
-| Coloring on the walls |
+| Cock oaches |
+| Colo i g o  the walls |
 | Cooties |
 | Couch  potatoes |
-| Cow udders |
-| Cowabunga dudes |
-| Crazy hair day |
-| Crazy raccoons |
-| Creaky stairs |
-| Creepy crawlers |
-| Crusty toothbrush |
-| Cry baby |
-| Cutting the cheese |
-| Daddy long legs |
-| Dance |
-| Dancing like you just don't care |
-| Dead cellphone batteries |
+| Cow udde s |
+| Cowabu ga dudes |
+| C azy hai  day |
+| C azy  accoo s |
+| C eaky stai s |
+| C eepy c awle s |
+| C usty toothb ush |
+| C y baby |
+| Cutti g the cheese |
+| Daddy lo g legs |
+| Da ce |
+| Da ci g like you just do 't ca e |
+| Dead cellpho e batte ies |
 | Dead fish heads |
-| Diaper rash |
-| Diarrhea |
-| Dirty fingernails |
-| Dog slobber |
+| Diape   ash |
+| Dia hea |
+| Di ty fi ge ails |
+| Dog slobbe  |
 | Dogs |
 | Doll heads |
-| Dolphins |
-| Donuts |
-| Dragons |
-| Dressing up for Halloween |
-| Drinking soda |
-| Dripping food all over your clean white t-shirt |
-| Drooling all over your favorite pillow |
-| Dropping the mic and walking away |
-| Dull scissors |
-| Earrings |
-| Eating a dessert before dinner |
-| Eating all of your vegetables |
-| Eating lots and lots of sugar |
-| Eating raw cookie dough |
-| Eating worms |
-| Elephant dung |
+| Dolphi s |
+| Do uts |
+| D ago s |
+| D essi g up fo  Hallowee  |
+| D i ki g soda |
+| D ippi g food all ove  you  clea  white t-shi t |
+| D ooli g all ove  you  favo ite pillow |
+| D oppi g the mic a d walki g away |
+| Dull scisso s |
+| Ea i gs |
+| Eati g a desse t befo e di e  |
+| Eati g all of you  vegetables |
+| Eati g lots a d lots of suga  |
+| Eati g  aw cookie dough |
+| Eati g wo ms |
+| Elepha t du g |
 | Epic fail |
-| Evil kittens |
-| Exploding watermelons |
+| Evil kitte s |
+| Explodi g wate melo s |
 | Eye boogies |
 | Fake tattoos |
-| Falling and scraping your knee |
-| Falling off the monkey bars |
-| Fart face |
-| Farting during a test |
-| Farting in public |
-| Fierce dinosaurs |
-| Finding a bug in your food |
-| Finding hair in your soup |
-| Finding money between the couch cushions |
-| Fingernail clippings |
-| Finishing your homework two minutes before it is due |
-| Flat tires on a brand new bike |
+| Falli g a d sc api g you  k ee |
+| Falli g off the mo key ba s |
+| Fa t face |
+| Fa ti g du i g a test |
+| Fa ti g i  public |
+| Fie ce di osau s |
+| Fi di g a bug i  you  food |
+| Fi di g hai  i  you  soup |
+| Fi di g mo ey betwee  the couch cushio s |
+| Fi ge ail clippi gs |
+| Fi ishi g you  homewo k two mi utes befo e it is due |
+| Flat ti es o  a b a d  ew bike |
 | Flip flops |
 | Football |
-| French fries |
-| Fried eggs |
-| Frozen bananas |
-| Funky monkeys |
-| Gargoyles |
-| Getting a bloody nose that won't stop |
-| Getting a prize in your cereal box |
-| Getting a shot |
-| Getting egged |
-| Getting locked inside a museum |
-| Getting sent to the principals office |
-| Getting sent to your room |
-| Getting struck by lightening |
-| Getting stung by a bee |
-| Giant rats |
-| Giants |
-| Glitter |
-| Gnomes |
-| Goblins |
+| F e ch f ies |
+| F ied eggs |
+| F oze  ba a as |
+| Fu ky mo keys |
+| Ga goyles |
+| Getti g a bloody  ose that wo 't stop |
+| Getti g a p ize i  you  ce eal box |
+| Getti g a shot |
+| Getti g egged |
+| Getti g locked i side a museum |
+| Getti g se t to the p i cipals office |
+| Getti g se t to you   oom |
+| Getti g st uck by lighte i g |
+| Getti g stu g by a bee |
+| Gia t  ats |
+| Gia ts |
+| Glitte  |
+| G omes |
+| Gobli s |
 | Goggles |
-| Going to school everyday for the rest of your life |
-| Going to summer camp |
+| Goi g to school eve yday fo  the  est of you  life |
+| Goi g to summe  camp |
 | Goosebumps |
-| Gummy worms |
-| Hair stuck in the drain |
-| Hair ties |
-| Hairballs |
-| Having a snowball fight |
-| Having dinner with the president |
-| Having to stay inside for recess |
-| Hiding behind the furniture, waiting to jump out and scare someone |
+| Gummy wo ms |
+| Hai  stuck i  the d ai  |
+| Hai  ties |
+| Hai balls |
+| Havi g a s owball fight |
+| Havi g di e  with the p eside t |
+| Havi g to stay i side fo   ecess |
+| Hidi g behi d the fu itu e, waiti g to jump out a d sca e someo e |
 | Hockey |
-| Horror movies |
-| Hours and hours of homework |
-| Ice cream sundaes |
-| Internet cat videos |
-| Interrupting an adult while they are on an important phone call |
-| Jumping on the bed |
-| Karate |
-| Kissing a hamster on the lips |
-| Kissing crickets |
-| Knotted hair |
-| Lacrosse |
-| Laughing hyenas |
-| Laughing hysterically |
-| Leaping lizards |
-| Leggings |
-| Leprechaun gold |
-| Licking a frozen pole |
-| Long, thick toenails |
-| Losing a tooth without even realizing it |
+| Ho o  movies |
+| Hou s a d hou s of homewo k |
+| Ice c eam su daes |
+| I te et cat videos |
+| I te upti g a  adult while they a e o  a  impo ta t pho e call |
+| Jumpi g o  the bed |
+| Ka ate |
+| Kissi g a hamste  o  the lips |
+| Kissi g c ickets |
+| K otted hai  |
+| Lac osse |
+| Laughi g hye as |
+| Laughi g hyste ically |
+| Leapi g liza ds |
+| Leggi gs |
+| Lep echau  gold |
+| Licki g a f oze  pole |
+| Lo g, thick toe ails |
+| Losi g a tooth without eve   ealizi g it |
 | Mac & Cheese |
-| Magical fairies |
+| Magical fai ies |
 | Makeup |
-| Making fun of your teacher |
-| Mean people |
-| Meros tacos. |
-| Mexican jumping beans |
-| Minions |
-| Moldy bread |
+| Maki g fu  of you  teache  |
+| Mea  people |
+| Me os tacos. |
+| Mexica  jumpi g bea s |
+| Mi io s |
+| Moldy b ead |
 | Moldy cheese |
-| Monkey brains |
-| Monkey butt |
-| Monsters under your bed |
-| Moose droppings |
+| Mo key b ai s |
+| Mo key butt |
+| Mo ste s u de  you  bed |
+| Moose d oppi gs |
 | Mosquitoes |
 | Mud puddles |
-| Mustard and ketchup |
-| My brothers smelly underwear |
-| My dogs smelly farts |
-| Nincompoops |
-| Non-stop giggling |
-| Nose hair |
-| Not covering your mouth when you sneeze |
-| Not remembering your lines in the school play |
-| Not taking a bath for two weeks |
-| Nuns |
+| Musta d a d ketchup |
+| My b othe s smelly u de wea  |
+| My dogs smelly fa ts |
+| Ni compoops |
+| No -stop giggli g |
+| Nose hai  |
+| Not cove i g you  mouth whe  you s eeze |
+| Not  emembe i g you  li es i  the school play |
+| Not taki g a bath fo  two weeks |
+| Nu s |
 | Old people smell |
 | Ooey, gooey, glue |
 | Oompa Loompas |
-| Peanut butter & jelly |
+| Pea ut butte  & jelly |
 | Pee |
-| Peeing your pants |
-| Peeling scabby skin |
-| Picking your nose in front of the whole school |
-| Pigglewink |
+| Peei g you  pa ts |
+| Peeli g scabby ski  |
+| Picki g you   ose i  f o t of the whole school |
+| Pigglewi k |
 | Pigs feet |
-| Piles of chewed up chicken fingers |
-| Pizza with anchovies |
+| Piles of chewed up chicke  fi ge s |
+| Pizza with a chovies |
 | Platypus |
-| Playgrounds |
-| Playing bingo |
-| Polka dot underwear |
+| Playg ou ds |
+| Playi g bi go |
+| Polka dot u de wea  |
 | Poop |
-| Pooping your pants |
+| Poopi g you  pa ts |
 | Poopy head |
-| Popcorn kernals |
+| Popco  ke als |
 | Potatoes |
-| Power outages |
-| Pranking your teacher |
-| Pretending to be a pirate |
-| Pretending to be asleep |
-| Pretending to be sick to stahy home from school |
-| Prickly porcupines |
-| Pulling out grandmas fake teeth |
-| Putting on nail polish |
-| Racing your friends |
-| Rainy birthdays |
-| Really bad breath |
-| Repeating everything an adult says until they go crazy |
-| Riding a donkey off into the sunset |
-| Riding a unicorn over the rainbow |
-| Rolling around in the mud |
-| Rolling down a hill |
-| Rough, anonymous sex. |
-| Rubber bands |
-| Running away from a herd of elephants |
-| Running away with the circus |
-| Sand stuck in your baithing suit |
-| Sandy feet |
-| Scaredy cat |
-| Scary Spice |
-| School lunches |
-| Screaming at the top of your lungs in the library |
-| Scrumpdidlyumptious farts |
+| Powe  outages |
+| P a ki g you  teache  |
+| P ete di g to be a pi ate |
+| P ete di g to be asleep |
+| P ete di g to be sick to stahy home f om school |
+| P ickly po cupi es |
+| Pulli g out g a dmas fake teeth |
+| Putti g o   ail polish |
+| Raci g you  f ie ds |
+| Rai y bi thdays |
+| Really bad b eath |
+| Repeati g eve ythi g a  adult says u til they go c azy |
+| Ridi g a do key off i to the su set |
+| Ridi g a u ico  ove  the  ai bow |
+| Rolli g a ou d i  the mud |
+| Rolli g dow  a hill |
+| Rough, a o ymous sex. |
+| Rubbe  ba ds |
+| Ru i g away f om a he d of elepha ts |
+| Ru i g away with the ci cus |
+| Sa d stuck i  you  baithi g suit |
+| Sa dy feet |
+| Sca edy cat |
+| Sca y Spice |
+| School lu ches |
+| Sc eami g at the top of you  lu gs i  the lib a y |
+| Sc umpdidlyumptious fa ts |
 | Sell high-tops to hippies. |
-| Setting all of the zoo animals free |
-| Sewer rats |
-| Shoving everything into your closet when you're supposed to be cleaning your room |
-| Silent but deadly farts |
-| Silly string |
-| Singing in the shower |
-| Sitting in the back of the school bus |
-| Skeletons |
-| Skidmarks on my underwear |
-| Skunk smell |
-| Sledding down the hill |
-| Sleep walking |
-| Sleepovers |
+| Setti g all of the zoo a imals f ee |
+| Sewe   ats |
+| Shovi g eve ythi g i to you  closet whe  you' e supposed to be clea i g you   oom |
+| Sile t but deadly fa ts |
+| Silly st i g |
+| Si gi g i  the showe  |
+| Sitti g i  the back of the school bus |
+| Skeleto s |
+| Skidma ks o  my u de wea  |
+| Sku k smell |
+| Sleddi g dow  the hill |
+| Sleep walki g |
+| Sleepove s |
 | Slime |
-| Slimy centipedes |
-| Slithering snakes |
+| Slimy ce tipedes |
+| Slithe i g s akes |
 | Sloths |
-| Smelling your own feet |
-| Smelly farts |
-| Smelly grandpa |
+| Smelli g you  ow  feet |
+| Smelly fa ts |
+| Smelly g a dpa |
 | Smelly seaweed |
 | Smelly toe jam |
-| Sneaking cookies into the cart while grocery shopping |
-| Sneaking the dog food underneath the table |
-| Snot rockets |
-| Soccer |
-| Sour lemons |
-| Sour milk with chunks in it |
-| Spending endless hours watching silly internet vidoes |
-| Spicy chimichangas |
-| Spiders crawling up your back |
-| Spilling milk all over the counter |
-| Spinning around in a revolving door |
-| Splinters |
+| S eaki g cookies i to the ca t while g oce y shoppi g |
+| S eaki g the dog food u de eath the table |
+| S ot  ockets |
+| Socce  |
+| Sou  lemo s |
+| Sou  milk with chu ks i  it |
+| Spe di g e dless hou s watchi g silly i te et vidoes |
+| Spicy chimicha gas |
+| Spide s c awli g up you  back |
+| Spilli g milk all ove  the cou te  |
+| Spi i g a ou d i  a  evolvi g doo  |
+| Spli te s |
 | Spooky ghosts |
-| Spying on the neighbors |
-| Squirming worms |
-| Star gazing |
-| Staying up until midnight |
-| Stepping in a big pile of doggy doo |
-| Stepping in gum |
-| Sticky cotton candy |
-| Sticky ear wax |
-| Sticky maple syrup |
-| Stinky armpits |
-| Stinky flowers |
-| Stubbing your toe in the middle of the night |
-| Stuffed animals |
-| Summer school |
+| Spyi g o  the  eighbo s |
+| Squi mi g wo ms |
+| Sta  gazi g |
+| Stayi g up u til mid ight |
+| Steppi g i  a big pile of doggy doo |
+| Steppi g i  gum |
+| Sticky cotto  ca dy |
+| Sticky ea  wax |
+| Sticky maple sy up |
+| Sti ky a mpits |
+| Sti ky flowe s |
+| Stubbi g you  toe i  the middle of the  ight |
+| Stuffed a imals |
+| Summe  school |
 | Swag |
 | Sweaty feet |
-| Swimming with dolphins |
-| Talking back to an adult |
-| Talking to myself |
+| Swimmi g with dolphi s |
+| Talki g back to a  adult |
+| Talki g to myself |
 | Tattletales |
-| Teachers pet |
-| Texting your best friend |
+| Teache s pet |
+| Texti g you  best f ie d |
 | The flu |
 | The heebie jeebies |
-| The ice cream man |
-| The internet crashing |
-| The logistics of planning a family holiday |
-| The stench of a never cleaned litter box |
-| The toy store |
-| Throw up |
-| Throwing up at school |
-| Thunderstorms |
-| Tickling your feet |
-| Toasting marshmallows |
-| Toilet paper stuck in my butt crack |
-| Toilet water |
-| Toy boxes filled with worms |
-| Trampolines |
-| Turkeys |
-| Turtles |
-| Vampire fangs |
-| Volcanoes |
-| Vultures |
+| The ice c eam ma  |
+| The i te et c ashi g |
+| The logistics of pla i g a family holiday |
+| The ste ch of a  eve  clea ed litte  box |
+| The toy sto e |
+| Th ow up |
+| Th owi g up at school |
+| Thu de sto ms |
+| Tickli g you  feet |
+| Toasti g ma shmallows |
+| Toilet pape  stuck i  my butt c ack |
+| Toilet wate  |
+| Toy boxes filled with wo ms |
+| T ampoli es |
+| Tu keys |
+| Tu tles |
+| Vampi e fa gs |
+| Volca oes |
+| Vultu es |
 | Wackadoodle |
-| Walking on egg shells with bare feet |
-| Walking to the front of the classroom while trying to conceal a throbbing erection. |
-| Walrus |
-| Warts |
+| Walki g o  egg shells with ba e feet |
+| Walki g to the f o t of the class oom while t yi g to co ceal a th obbi g e ectio . |
+| Wal us |
+| Wa ts |
 | Wasabi peas |
-| Wearing a disguise |
+| Wea i g a disguise |
 | Wedgies |
-| Werewolves |
+| We ewolves |
 | Wet willies |
-| Wet, runny boogers |
+| Wet,  u y booge s |
 | Wet, soggy socks |
 | Wi-fi |
-| Winning a spelling bee |
+| Wi i g a spelli g bee |
 | Yellow teeth |
 | Zits |
-| Zombie brains |
+| Zombie b ai s |
 
 |Total amount: 350|
 |---|

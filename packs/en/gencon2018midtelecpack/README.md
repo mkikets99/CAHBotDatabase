@@ -13,24 +13,24 @@ Answers amount: 16
 |---|
 
 ### Answers
-| Question |
+| Answers |
 |---|
-| 41 million Americans living in poverty. |
-| A law that allows factories to dump toxic waste into children's mouths. |
-| A living wage and affordable health care. |
-| A politician who doesn't blow monkey ass. |
-| Crowdfunding my daughter's bone marrow transplant. |
-| Donald Trump's latest fucking thing. |
-| Fentanyl. |
-| Fucking over future generations. |
+| 41 millio  Ame ica s livi g i  pove ty. |
+| A law that allows facto ies to dump toxic waste i to child e 's mouths. |
+| A livi g wage a d affo dable health ca e. |
+| A politicia  who does 't blow mo key ass. |
+| C owdfu di g my daughte 's bo e ma ow t a spla t. |
+| Do ald T ump's latest fucki g thi g. |
+| Fe ta yl. |
+| Fucki g ove  futu e ge e atio s. |
 | ICE. |
-| Not thinking about the children in cages. |
-| Overturning Roe v. Wade. |
-| Propping up Ruth Bader Ginsburg's corpse and moving her jaw up and down. |
-| Pseudointellectual centrist bullshit. |
-| Rising to power on a wave of ethnic nationalism. |
-| Sean Spicer, Reince Priebus, Steve Bannon, Sebastian Gorka, Omarosa, Anthony Scaramucci, James Comey, Mike Flynn, Rex Tillerson, Ty Cobb, Andrew McCabe, K. T. McFarland, H. R. McMaster, Gary Cohn, Hope Hicks, Rob Porter, Scott Pruitt, and Tom Price. |
-| Totally ineffective political satire. |
+| Not thi ki g about the child e  i  cages. |
+| Ove tu i g Roe v. Wade. |
+| P oppi g up Ruth Bade  Gi sbu g's co pse a d movi g he  jaw up a d dow . |
+| Pseudoi tellectual ce t ist bullshit. |
+| Risi g to powe  o  a wave of eth ic  atio alism. |
+| Sea  Spice , Rei ce P iebus, Steve Ba o , Sebastia  Go ka, Oma osa, A tho y Sca amucci, James Comey, Mike Fly , Rex Tille so , Ty Cobb, A d ew McCabe, K. T. McFa la d, H. R. McMaste , Ga y Coh , Hope Hicks, Rob Po te , Scott P uitt, a d Tom P ice. |
+| Totally i effective political sati e. |
 
 |Total amount: 16|
 |---|

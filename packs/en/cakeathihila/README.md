@@ -131,328 +131,328 @@ Answers amount: 320
 |---|
 
 ### Answers
-| Question |
+| Answers |
 |---|
-| 3.9 billion years of evolution. |
+| 3.9 billio  yea s of evolutio . |
 | A bag of dicks. |
 | A bushel of pubes. |
-| A cum-stained rainbow. |
-| A flaming bag of horse shit. |
-| A malaria party. |
-| A male cheerleader. |
-| A pong machine that's self-aware. |
-| A slow painful death. |
-| Adderall. |
-| An Aids infected penis. |
-| An ancient Aztecan warrior's foreskin. |
-| An ass so fat it breaks the laws of physics. |
-| Anal bleeding. |
-| Asians singing karoke. |
-| Beating a small child with a small child. |
-| Being a clever little girl. |
-| Being poor. |
-| Being so rich you can wipe your ass with $20 bills. |
-| Bill Cosby's chocolate pudding pop. |
-| Crawling into a vagina. |
-| Creepy guys at the edge of the dance floor. |
-| Cunnilingus. |
-| Disappointment of my parents. |
-| Donkey punching your high school crush. |
-| Drug problems. |
-| Dry-humping mannequins in a store window at the mall. |
-| Ejaculating into the tuna fish slad. |
-| Elderly Korean men. |
-| Elton John's wardrobe. |
-| Faith in mankind. |
-| Faking a jellyfish sting so someone will pee on you. |
-| Farting in a crowded elevator. |
-| Farting into a child's stroller. |
-| Finger banging my little sister. |
-| Fisting your own asshole. |
-| Getting a rim-job from the baby sitter. |
-| Getting really concerned about global warming for a few seconds. |
-| Giving Bill Clinton oral sex. |
-| Gonorrhea. |
-| Grandmother's heart-shaped box. |
-| Great grandfather's dirtstar. |
-| Happy Endings. |
-| Helen Keller's Tampon. |
-| Hershey™ and the squirts |
-| Hire that Stripper |
-| Hoverboards. |
-| Licking your partner's feet. |
-| Mexicans. |
+| A cum-stai ed  ai bow. |
+| A flami g bag of ho se shit. |
+| A mala ia pa ty. |
+| A male chee leade . |
+| A po g machi e that's self-awa e. |
+| A slow pai ful death. |
+| Adde all. |
+| A  Aids i fected pe is. |
+| A  a cie t Azteca  wa io 's fo eski . |
+| A  ass so fat it b eaks the laws of physics. |
+| A al bleedi g. |
+| Asia s si gi g ka oke. |
+| Beati g a small child with a small child. |
+| Bei g a cleve  little gi l. |
+| Bei g poo . |
+| Bei g so  ich you ca  wipe you  ass with $20 bills. |
+| Bill Cosby's chocolate puddi g pop. |
+| C awli g i to a vagi a. |
+| C eepy guys at the edge of the da ce floo . |
+| Cu ili gus. |
+| Disappoi tme t of my pa e ts. |
+| Do key pu chi g you  high school c ush. |
+| D ug p oblems. |
+| D y-humpi g ma equi s i  a sto e wi dow at the mall. |
+| Ejaculati g i to the tu a fish slad. |
+| Elde ly Ko ea  me . |
+| Elto  Joh 's wa d obe. |
+| Faith i  ma ki d. |
+| Faki g a jellyfish sti g so someo e will pee o  you. |
+| Fa ti g i  a c owded elevato . |
+| Fa ti g i to a child's st olle . |
+| Fi ge  ba gi g my little siste . |
+| Fisti g you  ow  asshole. |
+| Getti g a  im-job f om the baby sitte . |
+| Getti g  eally co ce ed about global wa mi g fo  a few seco ds. |
+| Givi g Bill Cli to  o al sex. |
+| Go o hea. |
+| G a dmothe 's hea t-shaped box. |
+| G eat g a dfathe 's di tsta . |
+| Happy E di gs. |
+| Hele  Kelle 's Tampo . |
+| He shey™ a d the squi ts |
+| Hi e that St ippe  |
+| Hove boa ds. |
+| Licki g you  pa t e 's feet. |
+| Mexica s. |
 | Michelle Obama. |
-| Midget porn obsession. |
-| Money shots. |
-| My dick in your mouth. |
-| Old Asian women drivers. |
-| Penis hunters. |
-| Playing hot potato with a live grenade. |
-| Princess Lelia's vagina. |
+| Midget po  obsessio . |
+| Mo ey shots. |
+| My dick i  you  mouth. |
+| Old Asia  wome  d ive s. |
+| Pe is hu te s. |
+| Playi g hot potato with a live g e ade. |
+| P i cess Lelia's vagi a. |
 | Quaaludes. |
-| Rank ass breath. |
+| Ra k ass b eath. |
 | Rape victims. |
-| Raptor Jesus. |
-| Ron Jeremy's foreskin, which is still bigger than my dick. |
-| Rosie O'Donnell's dick. |
-| Slammin a live fish on the counter and calling it dinner. |
-| Small man syndrome. |
-| Soaking. |
-| Stealing candy from a small child. |
-| Sucking dick for money. |
+| Rapto  Jesus. |
+| Ro  Je emy's fo eski , which is still bigge  tha  my dick. |
+| Rosie O'Do ell's dick. |
+| Slammi  a live fish o  the cou te  a d calli g it di e . |
+| Small ma  sy d ome. |
+| Soaki g. |
+| Steali g ca dy f om a small child. |
+| Sucki g dick fo  mo ey. |
 | Taco bell poops. |
-| Texting while driving. |
+| Texti g while d ivi g. |
 | The 1%. |
-| The black lung. |
+| The black lu g. |
 | The blacks. |
-| The timing on my menstrual cycle. |
-| Two girls one cup. |
-| Unicorn and Rainbows. |
-| Used condoms. |
-| Using bacon grease as lubricant. |
-| Whoopie Goldberg's nipples. |
-| Wife Beaters. |
-| 69ing a dirty vagina. |
+| The timi g o  my me st ual cycle. |
+| Two gi ls o e cup. |
+| U ico  a d Rai bows. |
+| Used co doms. |
+| Usi g baco  g ease as lub ica t. |
+| Whoopie Goldbe g's  ipples. |
+| Wife Beate s. |
+| 69i g a di ty vagi a. |
 | 9/11. |
-| A burning orphanage. |
-| A Saint Bernard's Red Rocket. |
-| A sandpaper condom. |
+| A bu i g o pha age. |
+| A Sai t Be a d's Red Rocket. |
+| A sa dpape  co dom. |
 | A shaved cat. |
-| Almost having sex on the dance floor. |
-| Being offended at people being offended. |
-| Being the big spoon. |
-| Betrayal. |
-| Billy Crystal. |
-| Blacking out at the wedding rehearsal. |
-| Blowing weed smoke into the family's dog ear. |
-| Boning the maid of honor. |
+| Almost havi g sex o  the da ce floo . |
+| Bei g offe ded at people bei g offe ded. |
+| Bei g the big spoo . |
+| Bet ayal. |
+| Billy C ystal. |
+| Blacki g out at the weddi g  ehea sal. |
+| Blowi g weed smoke i to the family's dog ea . |
+| Bo i g the maid of ho o . |
 | Clits. |
-| Cocaine. |
-| Columbine. |
-| Coming out of the closet. |
-| Crashing a funeral. |
-| Cremating the family pet. |
-| Cutting in line on black Friday. |
-| Drop kicking a crying baby on a long distance flight. |
-| Eloping to a Himalayan mountaintop. |
-| Eskimo Brothers. |
-| Extreme Jihadists. |
-| Faking a heart attack to get out of paying the bill. |
-| Faking an orgasm. |
+| Cocai e. |
+| Columbi e. |
+| Comi g out of the closet. |
+| C ashi g a fu e al. |
+| C emati g the family pet. |
+| Cutti g i  li e o  black F iday. |
+| D op kicki g a c yi g baby o  a lo g dista ce flight. |
+| Elopi g to a Himalaya  mou tai top. |
+| Eskimo B othe s. |
+| Ext eme Jihadists. |
+| Faki g a hea t attack to get out of payi g the bill. |
+| Faki g a  o gasm. |
 | Fat people. |
-| Finding out your ex is now gay. |
-| Fist fighting the bouncer. |
-| Fucking a retard. |
-| Getting a blumpkin. |
-| Ghost busters. |
-| Having sex in the neighbors hot tub. |
-| Hoes in different area codes. |
-| Jehovah Witnesses. |
-| Jerry Sandusky. |
+| Fi di g out you  ex is  ow gay. |
+| Fist fighti g the bou ce . |
+| Fucki g a  eta d. |
+| Getti g a blumpki . |
+| Ghost buste s. |
+| Havi g sex i  the  eighbo s hot tub. |
+| Hoes i  diffe e t a ea codes. |
+| Jehovah Wit esses. |
+| Je y Sa dusky. |
 | Joe Camel Toe. |
-| Judging elves by the color of their skin and not by the content of their character. |
-| Karate chopping the blind. |
-| Keeping the pimp hand strong. |
-| Killing your own parents to become batman. |
-| Lady Gaga's boyfriend. |
-| Laughing at a funeral. |
-| Leaving the toilet seat up. |
-| LeBron James's Hairline. |
-| Marilyn Manson. |
+| Judgi g elves by the colo  of thei  ski  a d  ot by the co te t of thei  cha acte . |
+| Ka ate choppi g the bli d. |
+| Keepi g the pimp ha d st o g. |
+| Killi g you  ow  pa e ts to become batma . |
+| Lady Gaga's boyf ie d. |
+| Laughi g at a fu e al. |
+| Leavi g the toilet seat up. |
+| LeB o  James's Hai li e. |
+| Ma ily  Ma so . |
 | MDMA. |
 | Mitt Rommey. |
-| Money problems. |
+| Mo ey p oblems. |
 | my sex life. |
-| Not picking up dog shit. |
-| Paying taxes. |
-| Peeing on a hobo. |
-| Penis shaped objects. |
-| Pistol-whipping a parking officer. |
-| Pretentious Prius Drivers. |
-| Raping an alter boy. |
-| Robbing the poor. |
-| Rubbing feces on tombstones. |
-| Running over a herd of prostitutes. |
-| Selling weed to elementary school students. |
-| Skull fucking the neighbor's cat. |
-| Slave owners. |
-| Smelly Arabs. |
+| Not picki g up dog shit. |
+| Payi g taxes. |
+| Peei g o  a hobo. |
+| Pe is shaped objects. |
+| Pistol-whippi g a pa ki g office . |
+| P ete tious P ius D ive s. |
+| Rapi g a  alte  boy. |
+| Robbi g the poo . |
+| Rubbi g feces o  tombsto es. |
+| Ru i g ove  a he d of p ostitutes. |
+| Selli g weed to eleme ta y school stude ts. |
+| Skull fucki g the  eighbo 's cat. |
+| Slave ow e s. |
+| Smelly A abs. |
 | Spike Lee. |
-| Spitting on Santa Claus imposters. |
-| Squirting porn. |
-| Stealing all the drinking water at EDM Raves. |
-| Sweatshop workers. |
-| Telling small children the truth about the Easter bunny. |
-| The book of Mormon. |
-| The confusing sounds of WRFL. |
-| The gentle caress of Uncle's scrotum on your ear. |
+| Spitti g o  Sa ta Claus imposte s. |
+| Squi ti g po . |
+| Steali g all the d i ki g wate  at EDM Raves. |
+| Sweatshop wo ke s. |
+| Telli g small child e  the t uth about the Easte  bu y. |
+| The book of Mo mo . |
+| The co fusi g sou ds of WRFL. |
+| The ge tle ca ess of U cle's sc otum o  you  ea . |
 | The middle class. |
-| The Ninja Turtles |
-| Time traveling on psychedelics. |
+| The Ni ja Tu tles |
+| Time t aveli g o  psychedelics. |
 | Towelheads. |
-| Urinating on a public water fountain. |
-| Walking into the wrong delivery room. |
-| A bukaki party. |
+| U i ati g o  a public wate  fou tai . |
+| Walki g i to the w o g delive y  oom. |
+| A bukaki pa ty. |
 | A bum's asshole. |
-| A Columbian neck tie. |
-| A free abortion clinic. |
-| A prostate examination. |
-| A rusty trombone. |
-| A ton of poop. |
-| A virgin with a tongue piercing. |
-| Al Gore's asshole. |
-| Amy Winehouse's Sobriety. |
-| An ugly cow of a Norwegian woman. |
-| Anal bleeding. |
+| A Columbia   eck tie. |
+| A f ee abo tio  cli ic. |
+| A p ostate exami atio . |
+| A  usty t ombo e. |
+| A to  of poop. |
+| A vi gi  with a to gue pie ci g. |
+| Al Go e's asshole. |
+| Amy Wi ehouse's Sob iety. |
+| A  ugly cow of a No wegia  woma . |
+| A al bleedi g. |
 | Ass plugs. |
-| Banana hammock. |
-| Barebacking. |
-| Bi-Polar disorder. |
-| Blaming the Jews for world problems. |
-| Bloody wankers. |
-| Bong water. |
-| Brazilian brothels. |
-| Bright lights. |
-| Butt pirates. |
-| Butt surgery. |
-| Caitlyn Jenner's tits. |
-| Cellphone salesmen. |
-| Cheating on your significant other. |
-| Conspiracy theories. |
-| Cum dumpster. |
-| Cum guzzlers. |
-| Dead birds everywhere. |
-| Donald Trump's deleted tweets. |
-| Dry anal sex. |
-| Erection fraud. |
+| Ba a a hammock. |
+| Ba ebacki g. |
+| Bi-Pola  diso de . |
+| Blami g the Jews fo  wo ld p oblems. |
+| Bloody wa ke s. |
+| Bo g wate . |
+| B azilia  b othels. |
+| B ight lights. |
+| Butt pi ates. |
+| Butt su ge y. |
+| Caitly  Je e 's tits. |
+| Cellpho e salesme . |
+| Cheati g o  you  sig ifica t othe . |
+| Co spi acy theo ies. |
+| Cum dumpste . |
+| Cum guzzle s. |
+| Dead bi ds eve ywhe e. |
+| Do ald T ump's deleted tweets. |
+| D y a al sex. |
+| E ectio  f aud. |
 | Fox News.® |
-| Fred Durst. |
-| Giving a champagne facial. |
-| Grandma's depends. |
-| Having sex with a dead baby fetus. |
-| Impregnating women in 3rd world countries. |
+| F ed Du st. |
+| Givi g a champag e facial. |
+| G a dma's depe ds. |
+| Havi g sex with a dead baby fetus. |
+| Imp eg ati g wome  i  3 d wo ld cou t ies. |
 | Jamie Foxx. |
-| Japanese Tourists. |
-| Kenny Fucking Powers. |
-| Licking a dirty vibrator. |
-| Licking genitals. |
-| Masturbating in front of the family pet. |
-| My old high principal having sex with the lunch lady. |
+| Japa ese Tou ists. |
+| Ke y Fucki g Powe s. |
+| Licki g a di ty vib ato . |
+| Licki g ge itals. |
+| Mastu bati g i  f o t of the family pet. |
+| My old high p i cipal havi g sex with the lu ch lady. |
 | Neo-Nazis. |
-| Nerdy Asian teenagers. |
-| Obsession. |
-| Ol' Dirty Bastard. |
-| Ordering dessert after calling off a wedding engagement. |
-| Pablo Escobar. |
-| Paris Hilton's sextape. |
+| Ne dy Asia  tee age s. |
+| Obsessio . |
+| Ol' Di ty Basta d. |
+| O de i g desse t afte  calli g off a weddi g e gageme t. |
+| Pablo Escoba . |
+| Pa is Hilto 's sextape. |
 | Pee |
-| Post Traumatic Stress disorder. |
-| Raping a group of celibate nuns. |
-| Receiving oral sex. |
-| Selling deceased animals to blind and deaf children. |
-| Sharpening a foam broadsword on a foam whetstone. |
-| Smashing lawn ornaments in a neighboring cul-de-sac. |
-| Snorting cocaine from a stripper's asshole. |
-| Southern Bible Thumpers. |
-| Southern gentlemen. |
-| Stealing condoms from your parents. |
-| Stealing from the less fortunate. |
-| Stinky cunts. |
-| Sweat soaked armpit hair. |
+| Post T aumatic St ess diso de . |
+| Rapi g a g oup of celibate  u s. |
+| Receivi g o al sex. |
+| Selli g deceased a imals to bli d a d deaf child e . |
+| Sha pe i g a foam b oadswo d o  a foam whetsto e. |
+| Smashi g law  o ame ts i  a  eighbo i g cul-de-sac. |
+| S o ti g cocai e f om a st ippe 's asshole. |
+| Southe  Bible Thumpe s. |
+| Southe  ge tleme . |
+| Steali g co doms f om you  pa e ts. |
+| Steali g f om the less fo tu ate. |
+| Sti ky cu ts. |
+| Sweat soaked a mpit hai . |
 | Thai lady boys. |
-| The come down after an epic drug trip. |
-| The inside of your mother's anus. |
-| The running of the Jew. |
-| The Star of David. |
-| Thongs. |
-| Throwing fists full of marbles in front of blind people. |
-| Tongue punching a fartbox. |
-| Unexpected nudes. |
-| Using saran wrap as a makeshift condom. |
-| Watching a married woman cheat on her husband. |
+| The come dow  afte  a  epic d ug t ip. |
+| The i side of you  mothe 's a us. |
+| The  u i g of the Jew. |
+| The Sta  of David. |
+| Tho gs. |
+| Th owi g fists full of ma bles i  f o t of bli d people. |
+| To gue pu chi g a fa tbox. |
+| U expected  udes. |
+| Usi g sa a  w ap as a makeshift co dom. |
+| Watchi g a ma ied woma  cheat o  he  husba d. |
 | Weed edibles. |
-| White snake marinated in underwear sauce. |
+| White s ake ma i ated i  u de wea  sauce. |
 | #YOLO. |
-| $68 in pennies. |
-| A faint, but distinct smell of shit with no defined source of origin. |
-| A joke too funny for women to understand. |
-| A slow, depressingly sad hand job. |
-| Allen Iverson. |
-| An agitated airline stewardess. |
-| An orgasm so intense it causes brain hemorrhage. |
-| Anal lubricant. |
-| Asian NBA players. |
-| Asparagus urine. |
-| Bullet wounds. |
-| Chemtrails. |
-| Cindy Kinx, the pink power ranger. |
-| Creed's greatest hits. |
-| Debt collectors. |
-| Demolishing that ass like a Palestinian village. |
-| Desperate Tinder dates. |
-| Dry humping. |
-| Dwarfs with large dicks |
-| Eco-guerillas |
-| Entering balls deep into your Mom's backdoor. |
-| Fear boner. |
-| Finding "The One" at a furry meet-up. |
-| Flashing strangers. |
-| Furry pornography. |
-| Genocide. |
-| Getting hit in the junk with a can of sardines. |
-| Getting stabbed to death in a vacant parking lot. |
-| Giving a walrus a hand job for science. |
-| Giving the shocker. |
-| Going down on a big, girthy, black cock. |
-| Great balls of fire. |
-| Hanging black people. |
-| Having penises as nipples. |
-| Hiding an erection while wearing sweatpants. |
+| $68 i  pe ies. |
+| A fai t, but disti ct smell of shit with  o defi ed sou ce of o igi . |
+| A joke too fu y fo  wome  to u de sta d. |
+| A slow, dep essi gly sad ha d job. |
+| Alle  Ive so . |
+| A  agitated ai li e stewa dess. |
+| A  o gasm so i te se it causes b ai  hemo hage. |
+| A al lub ica t. |
+| Asia  NBA playe s. |
+| Aspa agus u i e. |
+| Bullet wou ds. |
+| Chemt ails. |
+| Ci dy Ki x, the pi k powe   a ge . |
+| C eed's g eatest hits. |
+| Debt collecto s. |
+| Demolishi g that ass like a Palesti ia  village. |
+| Despe ate Ti de  dates. |
+| D y humpi g. |
+| Dwa fs with la ge dicks |
+| Eco-gue illas |
+| E te i g balls deep i to you  Mom's backdoo . |
+| Fea  bo e . |
+| Fi di g "The O e" at a fu y meet-up. |
+| Flashi g st a ge s. |
+| Fu y po og aphy. |
+| Ge ocide. |
+| Getti g hit i  the ju k with a ca  of sa di es. |
+| Getti g stabbed to death i  a vaca t pa ki g lot. |
+| Givi g a wal us a ha d job fo  scie ce. |
+| Givi g the shocke . |
+| Goi g dow  o  a big, gi thy, black cock. |
+| G eat balls of fi e. |
+| Ha gi g black people. |
+| Havi g pe ises as  ipples. |
+| Hidi g a  e ectio  while wea i g sweatpa ts. |
 | Hot flashes. |
-| Justin Bieber at 58. |
-| Malaysian Flight 370. |
-| Masturbating to a horror movie. |
-| Michael J. Fox finger painting. |
-| Non-consensual sex. |
-| Not giving a flying fuck. |
-| Pancake nipples. |
-| Party pussy. |
-| Photocopying your anus. |
-| Playing "The Penis Game" at a funeral. |
-| Prank calling a suicide hotline. |
-| Primate sex. |
-| Propane and propane accessories. |
-| Queers. |
+| Justi  Biebe  at 58. |
+| Malaysia  Flight 370. |
+| Mastu bati g to a ho o  movie. |
+| Michael J. Fox fi ge  pai ti g. |
+| No -co se sual sex. |
+| Not givi g a flyi g fuck. |
+| Pa cake  ipples. |
+| Pa ty pussy. |
+| Photocopyi g you  a us. |
+| Playi g "The Pe is Game" at a fu e al. |
+| P a k calli g a suicide hotli e. |
+| P imate sex. |
+| P opa e a d p opa e accesso ies. |
+| Quee s. |
 | Raw sewage. |
-| Recreating your penis using a 3D printer. |
+| Rec eati g you  pe is usi g a 3D p i te . |
 | Ricky Bobby. |
-| Roofying an entire house of newly rushed Sorority girls. |
-| Ruining a surprise party on purpose. |
-| Selling pirated software to under privileged schools. |
-| Sleazy massage parlors. |
-| Sledding down the hill |
+| Roofyi g a  e ti e house of  ewly  ushed So o ity gi ls. |
+| Rui i g a su p ise pa ty o  pu pose. |
+| Selli g pi ated softwa e to u de  p ivileged schools. |
+| Sleazy massage pa lo s. |
+| Sleddi g dow  the hill |
 | Small dick with big, saggy balls. |
-| Snot. Yeah, I think that's snot. |
-| Sodomising the corpse of Ben Franklin. |
-| Staring at women breastfeeding their young child. |
-| Steamy lesbian sex. |
-| Stephen Hawking throwing out the first pitch. |
+| S ot. Yeah, I thi k that's s ot. |
+| Sodomisi g the co pse of Be  F a kli . |
+| Sta i g at wome  b eastfeedi g thei  you g child. |
+| Steamy lesbia  sex. |
+| Stephe  Hawki g th owi g out the fi st pitch. |
 | That Pope guy. |
-| The cookie monster. |
-| The floating garbage dump roughly the size of Texas. |
-| The noise of your balls slapping during anal sex. |
-| The Quran. |
-| The wrinkly side-boob of an elderly woman. |
-| Throwing ninja star freely in a delivery room. |
-| Toe-poking a dingle berry down the shower drain. |
-| Tony Stark sharting inside the Iron Man armor. |
-| Twenty tons of bird shit. |
-| Vegans. |
-| What "The Rock" was really cooking. |
-| White privilege. |
-| Yoga to the Sorrowful Mysteries. |
-| Your girlfriend's cock. |
+| The cookie mo ste . |
+| The floati g ga bage dump  oughly the size of Texas. |
+| The  oise of you  balls slappi g du i g a al sex. |
+| The Qu a . |
+| The w i kly side-boob of a  elde ly woma . |
+| Th owi g  i ja sta  f eely i  a delive y  oom. |
+| Toe-poki g a di gle be y dow  the showe  d ai . |
+| To y Sta k sha ti g i side the I o  Ma  a mo . |
+| Twe ty to s of bi d shit. |
+| Vega s. |
+| What "The Rock" was  eally cooki g. |
+| White p ivilege. |
+| Yoga to the So owful Myste ies. |
+| You  gi lf ie d's cock. |
 
 |Total amount: 320|
 |---|

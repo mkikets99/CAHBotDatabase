@@ -12,17 +12,17 @@ Answers amount: 9
 |---|
 
 ### Answers
-| Question |
+| Answers |
 |---|
-| A hit new fantasy show called "Penis Man." |
-| A magnificent chrome sphere that roams the streets evaporating criminals. |
-| Eating up whatever slop Marvel throws out there. |
-| Hot dog, the game you can eat, but only once. |
-| Not exercising. |
-| Running afoul of the sultan's Janissaries. |
-| Scrimshaw, the art of bone carving. |
-| The illusion of linear time. |
-| The last season of Game of Thrones. |
+| A hit  ew fa tasy show called "Pe is Ma ." |
+| A mag ifice t ch ome sphe e that  oams the st eets evapo ati g c imi als. |
+| Eati g up whateve  slop Ma vel th ows out the e. |
+| Hot dog, the game you ca  eat, but o ly o ce. |
+| Not exe cisi g. |
+| Ru i g afoul of the sulta 's Ja issa ies. |
+| Sc imshaw, the a t of bo e ca vi g. |
+| The illusio  of li ea  time. |
+| The last seaso  of Game of Th o es. |
 
 |Total amount: 9|
 |---|

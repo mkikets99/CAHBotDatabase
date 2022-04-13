@@ -8,36 +8,27 @@ Answers amount: 257
 |---|---|
 | Ain't it nifty? Barb and Bob hit 50! So get off your ass and raise a glass to 50 years of _. | 1 |
 | Duuuuuuude. You have got to go to space. _ is awesome in space. | 1 |
-| Five,four,
-three,
-two,
-one....
-_! | 1 |
+| Five, four, three, two, one.... _! | 1 |
 | For hunting in the King's forest, I hereby sentence you to death by _. | 1 |
 | Give me ten good men and 48 hours. I'll get you _. | 1 |
-| Goldfinger!He's the man,
-the man with _. | 1 |
+| Goldfinger! He's the man, the man with _. | 1 |
 | Goodbye, _, hello _! | 2 |
 | Here's a little something I learned in business school: The customer is always _. | 1 |
-| Hey, honey.For the bedroom, were you thinking, "Robin's Egg Blue" or _Pink?" | 1 |
-| I hate this job.I hate this place.
-Most of all, I hate _.
-I quit. | 1 |
-| I have solved politics.My solution is _. | 1 |
+| Hey, honey. For the bedroom, were you thinking, "Robin's Egg Blue" or _Pink?" | 1 |
+| I hate this job. I hate this place. Most of all, I hate _. I quit. | 1 |
+| I have solved politics. My solution is _. | 1 |
 | I so drunk I _. | 1 |
 | I swear to God I'm gonna murder my husband if he doesn't shut the fuck up about _. | 1 |
 | In bookstores now: "From _ to _: A memoir." | 2 |
 | In Radiohead's new single, Thom Yorke repeats the phrase "_" dozens of times over a skittering drum beat. | 1 |
 | It's finally happening! I'm finally doing it! Yes! It's time for _! | 1 |
 | It's late at night. You're in bed with your lover, Patrick Stewart. He leans over with a twinkle in his eye and asks "How about _?" | 1 |
-| It's the 21st century.A woman shouldn't have to apologize for _. | 1 |
+| It's the 21st century. A woman shouldn't have to apologize for _. | 1 |
 | Ladies and gentlemen, I propose a two-pronged plan. The first prong will be _, and the second prong will be _. | 2 |
 | Live from Universal Studios, it's America's favorite game show! "_ or _?" | 2 |
 | Millions of copies sold! Donald Trump's "The Art of _." | 1 |
 | New at TGI Fridays! It's what you've been waiting for: The _ Burger. | 1 |
-| Oh no!Here it comes!
-Ohhhhh god!
-It's _. | 1 |
+| Oh no! Here it comes! Ohhhhh god! It's _. | 1 |
 | Oh you haaaaaaave to see this new documentary on Netflix. I don't want to give anything away, but let's just say it will change the way you look at _. | 1 |
 | Oh, the weather outside is frightful. But _ is so delightful. | 1 |
 | One, two, three and to the four, Snoop Doggy Dogg and Dr. Dre is _. | 1 |
@@ -54,12 +45,10 @@ It's _. | 1 |
 | What sounds great after four margaritas? | 1 |
 | What's hot, smelly, and about to die? | 1 |
 | What's secretly a Russian plot to destabilize the West? | 1 |
-| What's up, YouTube?User DanTheMan wanted to see _, so here we go. | 1 |
+| What's up, YouTube? User DanTheMan wanted to see _, so here we go. | 1 |
 | Why did the chicken cross the road? | 1 |
 | Why my mustache smell so bad? | 1 |
-| Yeah that's so hot.I'm so close.
-Talk about _ again!
-OH I'M CUMMING! | 1 |
+| Yeah that's so hot. I'm so close. Talk about _ again! OH I'M CUMMING! | 1 |
 | You can call me David Copperfield, because I'm about to make _ disappear. | 1 |
 | You city folk would never understand the quiet dignity of _. | 1 |
 
@@ -67,265 +56,266 @@ OH I'M CUMMING! | 1 |
 |---|
 
 ### Answers
-| Question |
+| Answers |
 |---|
-| ...it is unclear. |
-| A 12-foot scepter of bone. |
-| A basketball that screams every time it gets bounced. |
-| A bear. |
+| ...it is u clea . |
+| A 12-foot scepte  of bo e. |
+| A basketball that sc eams eve y time it gets bou ced. |
+| A bea . |
 | A big hole. |
-| A big hot fire that's burning everybody. |
-| A big, big, big, and I mean BIG big. |
-| A big, sloppy blowjob from a mean, tired cowboy. |
-| A bird that dies. |
-| A bold red lip. |
-| A button that when you press it, there's jazz. |
-| A cat with... hands. |
-| A Christmas feast of goose and jellies. |
-| A concerning amount of white people. |
-| A couple of cold ones. |
-| A crab rangoon. |
-| A family of raccoons. |
-| A four-hour depression nap. |
-| A full-on panic attack. |
-| A garbage clown who makes no one laugh and should die. |
-| A hamburger on a string that keeps getting pulled away. |
-| A hateful 30-year marriage. |
-| A little boy with big dreams and potatoes for hands. |
-| A little girl with a knife. |
-| A little sewer girl strangling a pigeon. |
-| A little taste of penis. |
-| A magician fucking up over and over again. |
-| A penis that gets too hard and explodes blood. |
-| A piping-hot casserole filled with beans and hair. |
-| A poop emergency. |
-| A powerful philosopher named Brainhead. |
-| A Pringle. |
-| A Puerto Rican minotaur from the Bronx. |
-| A racist boomerang that only comes back if you're white. |
-| A real cum-dumpster of a saxophonist. |
-| A real job with insurance and your taxes taken out and everything. |
-| A sticky tree hole full of pancake sauce. |
-| A stinky hoo-ha. |
-| A toothless woman gumming on a peach. |
-| A urinary tract infection. |
-| A vagina that beatboxes when it's horny. |
-| A whole different way of talking called Spanish. |
-| Accusing a powerful man of sexual assault. |
-| Acquiring a gun very easily. |
-| Acting white. |
-| All manners of honors. |
-| All my dead sisters. |
-| All types of girls, even ugly ones. |
-| An 800-foot-long pool noodle. |
-| An ambitious woman who wears pants. |
-| An elite squad known as the Special Victims Unit. |
-| Anything Asian. |
+| A big hot fi e that's bu i g eve ybody. |
+| A big, big, big, a d I mea  BIG big. |
+| A big, sloppy blowjob f om a mea , ti ed cowboy. |
+| A bi d that dies. |
+| A bold  ed lip. |
+| A butto  that whe  you p ess it, the e's jazz. |
+| A cat with... ha ds. |
+| A Ch istmas feast of goose a d jellies. |
+| A co ce i g amou t of white people. |
+| A couple of cold o es. |
+| A c ab  a goo . |
+| A family of  accoo s. |
+| A fou -hou  dep essio   ap. |
+| A full-o  pa ic attack. |
+| A ga bage clow  who makes  o o e laugh a d should die. |
+| A hambu ge  o  a st i g that keeps getti g pulled away. |
+| A hateful 30-yea  ma iage. |
+| A little boy with big d eams a d potatoes fo  ha ds. |
+| A little gi l with a k ife. |
+| A little sewe  gi l st a gli g a pigeo . |
+| A little taste of pe is. |
+| A magicia  fucki g up ove  a d ove  agai . |
+| A pe is that gets too ha d a d explodes blood. |
+| A pipi g-hot casse ole filled with bea s a d hai . |
+| A poop eme ge cy. |
+| A powe ful philosophe   amed B ai head. |
+| A P i gle. |
+| A Pue to Rica  mi otau  f om the B o x. |
+| A  acist boome a g that o ly comes back if you' e white. |
+| A  eal cum-dumpste  of a saxopho ist. |
+| A  eal job with i su a ce a d you  taxes take  out a d eve ythi g. |
+| A sticky t ee hole full of pa cake sauce. |
+| A sti ky hoo-ha. |
+| A toothless woma  gummi g o  a peach. |
+| A u i a y t act i fectio . |
+| A vagi a that beatboxes whe  it's ho y. |
+| A whole diffe e t way of talki g called Spa ish. |
+| Accusi g a powe ful ma  of sexual assault. |
+| Acqui i g a gu  ve y easily. |
+| Acti g white. |
+| All ma e s of ho o s. |
+| All my dead siste s. |
+| All types of gi ls, eve  ugly o es. |
+| A  800-foot-lo g pool  oodle. |
+| A  ambitious woma  who wea s pa ts. |
+| A  elite squad k ow  as the Special Victims U it. |
+| A ythi g Asia . |
 | As ass like a bag of pool balls. |
-| Assembling IKEA furniture. |
+| Assembli g IKEA fu itu e. |
 | Beef. |
-| Being hunted by giant eagles. |
-| Being inside me. |
-| Being seen reading Infinite Jest. |
-| Being shitty to everyone and late for everything. |
+| Bei g hu ted by gia t eagles. |
+| Bei g i side me. |
+| Bei g see   eadi g I fi ite Jest. |
+| Bei g shitty to eve yo e a d late fo  eve ythi g. |
 | Big beefy baseball boys. |
-| Big Italian women making the spicy sauce. |
-| Bimpy, the small styrofoam ball we all jack off into. |
-| Bipolar Disorder. |
-| Blowing into the penis so that the balls inflate. |
-| Blue smoke coming out of my anus. |
-| Canada's worst mangoes. |
-| Carbs. |
-| Carlos Santana's horrible wailing guitar. |
-| Certain things, but not others. |
-| Chinese people. |
-| Chowder. |
-| Clearly asking for no cucumbers in my salad, and yet here we are. |
-| Clippy from Microsoft Office. |
-| Colluding with Russia. |
-| Corn. |
-| Country music legend Toby Keith. |
-| Crunchy snacks for big, flappy mouth. |
-| Cultural appropriation. |
-| Curly fries so good you quit ISIS. |
-| Dating a Republican. |
+| Big Italia  wome  maki g the spicy sauce. |
+| Bimpy, the small sty ofoam ball we all jack off i to. |
+| Bipola  Diso de . |
+| Blowi g i to the pe is so that the balls i flate. |
+| Blue smoke comi g out of my a us. |
+| Ca ada's wo st ma goes. |
+| Ca bs. |
+| Ca los Sa ta a's ho ible waili g guita . |
+| Ce tai  thi gs, but  ot othe s. |
+| Chi ese people. |
+| Chowde . |
+| Clea ly aski g fo   o cucumbe s i  my salad, a d yet he e we a e. |
+| Clippy f om Mic osoft Office. |
+| Colludi g with Russia. |
+| Co . |
+| Cou t y music lege d Toby Keith. |
+| C u chy s acks fo  big, flappy mouth. |
+| Cultu al app op iatio . |
+| Cu ly f ies so good you quit ISIS. |
+| Dati g a Republica . |
 | Death. |
 | Deja vu. |
-| delayed gratification |
-| Denying climate change. |
-| Doing ho shit. |
-| Doing it doggy, no kissing. |
-| Doing stuff bad. |
-| Drake. |
-| Driving to a Walmart parking lot and staring into the distance for eight hours. |
-| Eating pussy bad. |
-| Ejaculating a quart of hollandaise sauce. |
-| Elon Musk. |
-| Enticing a hummingbird to drink nectar out of my urethra. |
+| delayed g atificatio  |
+| De yi g climate cha ge. |
+| Doi g ho shit. |
+| Doi g it doggy,  o kissi g. |
+| Doi g stuff bad. |
+| D ake. |
+| D ivi g to a Walma t pa ki g lot a d sta i g i to the dista ce fo  eight hou s. |
+| Eati g pussy bad. |
+| Ejaculati g a qua t of holla daise sauce. |
+| Elo  Musk. |
+| E tici g a hummi gbi d to d i k  ecta  out of my u eth a. |
 | Fascism. |
 | Fat. |
-| Fingering each other's buttholes. |
-| Foul vegan shits. |
-| Free two-day shipping with Amazon Prime. |
-| Fresh Air with Terry Gross. |
-| Funneling money through a series of shell companies. |
-| Getting #MeToo'd. |
-| Getting banished to the Shadow Realm. |
-| Getting depressed and super fat. |
-| Getting fisted by a man with no fingers. |
-| Getting half-hard and trying to smoosh it in. |
-| Getting herpes from Bruce Willis. |
-| Getting Mommy another beer. |
-| Getting tanned, jacked, and juicy. |
-| Going "oink oink" like a nasty little pig boy. |
-| Good, clean Christian comedy. |
-| Hard-hitting investigative journalism. |
-| Having a wonderful time at the zoo. |
-| Having no legs, just toes. |
-| Having thirty sons named Chad. |
-| Having tuna sandwiches with my favorite honkies. |
-| Healthcare.gov. |
-| Hiding from border patrol. |
-| Hiking up a hillside covered in bear semen yelling "I'm the queen of the forest!" |
-| Hoopnugget, the game where you throw a nugget into a hoop. |
-| How many bagels I can fit on my penis. |
-| How quiet the forest is. |
-| Huffing and puffing and blowing my stepdad. |
-| Hunting white men for sport. |
-| Hush money. |
-| Interrupting women. |
-| Jeremy and his stupid, annoying, dumb, hard, beautiful body. |
-| Jormungandr the World Serpent. |
-| Joyless, wooden Soviet toys. |
-| Just a Luna bar for lunch. |
-| Kanye West but if he were an old Japanese farmer. |
-| Korean barbecue. |
-| Leading a country to war on false pretenses. |
-| Leading children around with a magical flute. |
-| Letting that pussy breathe. |
-| Letting this loser eat me out. |
-| Licking the toilet as Mistress commands. |
+| Fi ge i g each othe 's buttholes. |
+| Foul vega  shits. |
+| F ee two-day shippi g with Amazo  P ime. |
+| F esh Ai  with Te y G oss. |
+| Fu eli g mo ey th ough a se ies of shell compa ies. |
+| Getti g #MeToo'd. |
+| Getti g ba ished to the Shadow Realm. |
+| Getti g dep essed a d supe  fat. |
+| Getti g fisted by a ma  with  o fi ge s. |
+| Getti g half-ha d a d t yi g to smoosh it i . |
+| Getti g he pes f om B uce Willis. |
+| Getti g Mommy a othe  bee . |
+| Getti g ta ed, jacked, a d juicy. |
+| Goi g "oi k oi k" like a  asty little pig boy. |
+| Good, clea  Ch istia  comedy. |
+| Ha d-hitti g i vestigative jou alism. |
+| Havi g a wo de ful time at the zoo. |
+| Havi g  o legs, just toes. |
+| Havi g thi ty so s  amed Chad. |
+| Havi g tu a sa dwiches with my favo ite ho kies. |
+| Healthca e.gov. |
+| Hidi g f om bo de  pat ol. |
+| Hiki g up a hillside cove ed i  bea  seme  yelli g "I'm the quee  of the fo est!" |
+| Hoop ugget, the game whe e you th ow a  ugget i to a hoop. |
+| How ma y bagels I ca  fit o  my pe is. |
+| How quiet the fo est is. |
+| Huffi g a d puffi g a d blowi g my stepdad. |
+| Hu ti g white me  fo  spo t. |
+| Hush mo ey. |
+| I te upti g wome . |
+| Je emy a d his stupid, a oyi g, dumb, ha d, beautiful body. |
+| Jo mu ga d  the Wo ld Se pe t. |
+| Joyless, woode  Soviet toys. |
+| Just a Lu a ba  fo  lu ch. |
+| Ka ye West but if he we e a  old Japa ese fa me . |
+| Ko ea  ba becue. |
+| Leadi g a cou t y to wa  o  false p ete ses. |
+| Leadi g child e  a ou d with a magical flute. |
+| Letti g that pussy b eathe. |
+| Letti g this lose  eat me out. |
+| Licki g the toilet as Mist ess comma ds. |
 | Life. |
-| Little Debbie and her mom, Full-Size Deborah. |
-| Lotion. |
-| Loving America. |
-| Magic: The Gathering. |
-| Making direct eye contact with a horse's asshole. |
-| Mark Zuckerberg. |
-| Maybe getting a little involved in selling heroin sometimes. |
-| Melania Trump. |
-| Murdering our parents. |
+| Little Debbie a d he  mom, Full-Size Debo ah. |
+| Lotio . |
+| Lovi g Ame ica. |
+| Magic: The Gathe i g. |
+| Maki g di ect eye co tact with a ho se's asshole. |
+| Ma k Zucke be g. |
+| Maybe getti g a little i volved i  selli g he oi  sometimes. |
+| Mela ia T ump. |
+| Mu de i g ou  pa e ts. |
 | My buddy Jeff. |
-| My daughter fucking my boyfriend. |
-| My math teacher's bulge. |
-| My real dad. |
-| My secret butt. |
-| My son's dipshit friends. |
-| My son's husband's huge cock. |
-| My wife.(in Borat voice) |
+| My daughte  fucki g my boyf ie d. |
+| My math teache 's bulge. |
+| My  eal dad. |
+| My sec et butt. |
+| My so 's dipshit f ie ds. |
+| My so 's husba d's huge cock. |
+| My wife.
+(i  Bo at voice) |
 | Naked Dad. |
 | Netflix. |
-| New DNA evidence exonerating OJ Simpson. |
+| New DNA evide ce exo e ati g OJ Simpso . |
 | Nipples the size of CDs. |
-| None of your damn business. |
-| Nonsexual activiities, such as roller skating. |
-| Not being a part of my son's life. |
-| Oral. |
-| Outdated gender norms. |
-| Owing a lot of money to some very bad people. |
-| Panda Express. |
-| Panic and confusion. |
-| Pissin' me paants. |
+| No e of you  dam  busi ess. |
+| No sexual activiities, such as  olle  skati g. |
+| Not bei g a pa t of my so 's life. |
+| O al. |
+| Outdated ge de   o ms. |
+| Owi g a lot of mo ey to some ve y bad people. |
+| Pa da Exp ess. |
+| Pa ic a d co fusio . |
+| Pissi ' me paa ts. |
 | Politics. |
-| Poppin' that pussy. |
-| Preparing my asshole for sex. |
-| Pretending golf is fun. |
-| Prison. |
-| Pulling a sick, shit-covered raccoon out of the toilet and nursing it back to health. |
-| Pulling the butt cheeks apart so the fart comes out quieter. |
-| Pushing my boob up to lick the nipple. |
-| Putting dirty dishes in the sink and hoping someone else deals with them. |
-| Quality, affordable menswear. |
-| Reparations for slavery. |
-| Representing the entire black community. |
-| Representing the entire Black community. |
-| Respecting woman. |
-| Rubbing my clit with a handgun. |
-| Sandwich. |
-| Schindler's List. |
-| Setting boundaries with co-workers. |
-| Sewing two hamsters together to make a Double Hamster Supreme. |
+| Poppi ' that pussy. |
+| P epa i g my asshole fo  sex. |
+| P ete di g golf is fu . |
+| P iso . |
+| Pulli g a sick, shit-cove ed  accoo  out of the toilet a d  u si g it back to health. |
+| Pulli g the butt cheeks apa t so the fa t comes out quiete . |
+| Pushi g my boob up to lick the  ipple. |
+| Putti g di ty dishes i  the si k a d hopi g someo e else deals with them. |
+| Quality, affo dable me swea . |
+| Repa atio s fo  slave y. |
+| Rep ese ti g the e ti e black commu ity. |
+| Rep ese ti g the e ti e Black commu ity. |
+| Respecti g woma . |
+| Rubbi g my clit with a ha dgu . |
+| Sa dwich. |
+| Schi dle 's List. |
+| Setti g bou da ies with co-wo ke s. |
+| Sewi g two hamste s togethe  to make a Double Hamste  Sup eme. |
 | Shit. |
-| Shitting perfectly into a hot dog bun. |
+| Shitti g pe fectly i to a hot dog bu . |
 | Slaves. |
-| Slowly releasing a huge fart over the course of two minutes. |
-| Sluts, whores, and bitches. |
-| Small plates, or tapas if you will. |
-| Some cracker-ass motherfucker. |
-| Some light choking. |
-| Square dancing with other racists. |
-| Stapling a butterfly to a cow. |
-| Staying hydrated. |
-| Sticking my hard rat dick in my girlfiend's wet rat pussy. |
-| Substituting sweet potato fries for $2. |
-| Sucking the caviar straight out of a fish's pussy. |
-| Suddenly feeling really sad for 40 years. |
-| Swordplay. |
-| Taking a dump. |
-| Tar. |
-| The Asshole Destroyer 3000. |
-| The Audi Sign-and-Drive Sales Event. |
-| The awesome power of the Lord. |
-| The beautiful backpacks of JanSport. |
-| The boy who sucks the farts our of my sweatpants. |
-| The coming race war. |
-| The current political climate. |
-| The cutest fucking shoes I've ever seen. |
-| The end of all life on Earth. |
-| The express written consent of the National Basketball Association. |
-| The fact that time is moving backwards right now and nobody's noticing. |
-| The harsh reality that all horses are people in horse costumes. |
-| The incredible Gary, he'll suck your nipples. |
-| The kind of porn with poop. |
-| The King of Jews. |
-| The little-known fact that Polish people don't dream. |
-| The man in the basement. |
-| The man who fucks me and my wife. |
-| The Moon. |
+| Slowly  eleasi g a huge fa t ove  the cou se of two mi utes. |
+| Sluts, who es, a d bitches. |
+| Small plates, o  tapas if you will. |
+| Some c acke -ass mothe fucke . |
+| Some light choki g. |
+| Squa e da ci g with othe   acists. |
+| Stapli g a butte fly to a cow. |
+| Stayi g hyd ated. |
+| Sticki g my ha d  at dick i  my gi lfie d's wet  at pussy. |
+| Substituti g sweet potato f ies fo  $2. |
+| Sucki g the cavia  st aight out of a fish's pussy. |
+| Sudde ly feeli g  eally sad fo  40 yea s. |
+| Swo dplay. |
+| Taki g a dump. |
+| Ta . |
+| The Asshole Dest oye  3000. |
+| The Audi Sig -a d-D ive Sales Eve t. |
+| The awesome powe  of the Lo d. |
+| The beautiful backpacks of Ja Spo t. |
+| The boy who sucks the fa ts ou  of my sweatpa ts. |
+| The comi g  ace wa . |
+| The cu e t political climate. |
+| The cutest fucki g shoes I've eve  see . |
+| The e d of all life o  Ea th. |
+| The exp ess w itte  co se t of the Natio al Basketball Associatio . |
+| The fact that time is movi g backwa ds  ight  ow a d  obody's  otici g. |
+| The ha sh  eality that all ho ses a e people i  ho se costumes. |
+| The i c edible Ga y, he'll suck you   ipples. |
+| The ki d of po  with poop. |
+| The Ki g of Jews. |
+| The little-k ow  fact that Polish people do 't d eam. |
+| The ma  i  the baseme t. |
+| The ma  who fucks me a d my wife. |
+| The Moo . |
 | The NRA. |
-| The pelican that will one day eat Scarlett Johansson's baby. |
-| The persecution of Buddhists by the American-backed government of South Vietnam. |
-| The pleasure of watching my boys wolf down my pot roast and scamper into the woods. |
-| The rock after which Dwayne Johnson was named. |
-| The South rising again. |
-| The wonderful giant spoon known as "ladle." |
-| The world's largest baby, weighing over 700 pounds. |
-| The worm that ate my penis and is now my penis. |
-| These breasts of mine. |
-| This boring-ass white bitch from work. |
-| This kid I found. |
-| Thoughts and prayers. |
-| Three men and three hot dogs. |
-| Throwing a man by his big penis. |
-| Thrusting and grunting. |
-| Thumb, the King of the Fingers. |
-| Tiny, sour kisses from a lemon dwarf. |
-| Travolta. |
-| Trees with human skin. |
-| Turning poor people against each other so they don't pay attention to economic inequality. |
-| Twirling a cane, popping it into my anus, and giving a tip of the top hat. |
-| Uncles. |
-| Uncut daddy dick. |
-| Violating the Geneva Convention. |
-| Voldemort. |
-| Voter suppression. |
-| What looked like a chemical weapons facility but turned out to be a children's hospital. |
-| Women in positions of power. |
-| Yo stanky ass. |
-| Yogurt that moans in pleasure as you eat it. |
-| Your little booty in them underpants. |
-| Your mouth. |
-| Yummy yummy yummy yummy rat pussy. |
+| The pelica  that will o e day eat Sca lett Joha sso 's baby. |
+| The pe secutio  of Buddhists by the Ame ica -backed gove me t of South Viet am. |
+| The pleasu e of watchi g my boys wolf dow  my pot  oast a d scampe  i to the woods. |
+| The  ock afte  which Dway e Joh so  was  amed. |
+| The South  isi g agai . |
+| The wo de ful gia t spoo  k ow  as "ladle." |
+| The wo ld's la gest baby, weighi g ove  700 pou ds. |
+| The wo m that ate my pe is a d is  ow my pe is. |
+| These b easts of mi e. |
+| This bo i g-ass white bitch f om wo k. |
+| This kid I fou d. |
+| Thoughts a d p aye s. |
+| Th ee me  a d th ee hot dogs. |
+| Th owi g a ma  by his big pe is. |
+| Th usti g a d g u ti g. |
+| Thumb, the Ki g of the Fi ge s. |
+| Ti y, sou  kisses f om a lemo  dwa f. |
+| T avolta. |
+| T ees with huma  ski . |
+| Tu i g poo  people agai st each othe  so they do 't pay atte tio  to eco omic i equality. |
+| Twi li g a ca e, poppi g it i to my a us, a d givi g a tip of the top hat. |
+| U cles. |
+| U cut daddy dick. |
+| Violati g the Ge eva Co ve tio . |
+| Voldemo t. |
+| Vote  supp essio . |
+| What looked like a chemical weapo s facility but tu ed out to be a child e 's hospital. |
+| Wome  i  positio s of powe . |
+| Yo sta ky ass. |
+| Yogu t that moa s i  pleasu e as you eat it. |
+| You  little booty i  them u de pa ts. |
+| You  mouth. |
+| Yummy yummy yummy yummy  at pussy. |
 
 |Total amount: 257|
 |---|

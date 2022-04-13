@@ -68,8 +68,7 @@ Answers amount: 186
 | People thought I was bat-shit crazy when I said I was gonna _. | 1 |
 | Pregnant moms are really into _ these days. | 1 |
 | Rumor has it that my doctor really loves _. Especially when it comes with _. | 2 |
-| Step 1: _.Step 2: _.
-The End. | 2 |
+| Step 1: _. Step 2: _. The End. | 2 |
 | Stop! I really need to _! | 1 |
 | Studies show that babies are most cloesly related to _. | 1 |
 | Surprise! You just _. | 1 |
@@ -92,193 +91,193 @@ The End. | 2 |
 |---|
 
 ### Answers
-| Question |
+| Answers |
 |---|
 | 2.5 kids. |
-| A baby carrier. |
+| A baby ca ie . |
 | A baby. |
-| A big glass of wine. |
-| A breast pump. |
-| A bucket of hand sanitizer. |
-| A car seat. |
-| A cigar. |
-| A condom. |
+| A big glass of wi e. |
+| A b east pump. |
+| A bucket of ha d sa itize . |
+| A ca  seat. |
+| A ciga . |
+| A co dom. |
 | A day at the spa. |
-| A day in bed. |
-| A defective stroller. |
-| A diaper bag. |
-| A diaper changing strait jacket. |
+| A day i  bed. |
+| A defective st olle . |
+| A diape  bag. |
+| A diape  cha gi g st ait jacket. |
 | A doula. |
-| A far, far away place. |
+| A fa , fa  away place. |
 | A fat baby. |
-| A freezer full of pizza. |
-| A giant cup of coffee. |
+| A f eeze  full of pizza. |
+| A gia t cup of coffee. |
 | A glow. |
-| A Greek God. |
-| A hot doctor. |
-| A menstraul cup. |
+| A G eek God. |
+| A hot docto . |
+| A me st aul cup. |
 | A midwife. |
 | A mucous plug. |
-| A nursing bra. |
-| A paternity test. |
-| A penis. |
-| A personal massager. |
-| A pocket diaper. |
-| A punch in one's own face. |
-| A rabid baby-eating raccoon. |
-| A reality tv host saying, "You are NOT the father." |
-| A rectal thermometer. |
-| A red light. |
-| A shark riding an eagle. |
-| A small bottle of bourbon. |
-| A Snocksucker. |
-| A surrogate. |
-| A tiny butt. |
-| A tiny, crying boob-eating monster. |
-| A turkey baster. |
-| A used condom. |
-| A vaginal exam. |
-| A water birth. |
-| A wrecking ball. |
-| An all-in-one. |
-| An amber necklace. |
-| An entourage. |
-| An IUD. |
-| An OBGYN. |
-| An ugly baby. |
-| Anal leakage. |
-| Ate a diaper. |
-| Bacon! |
-| Balloons. |
+| A  u si g b a. |
+| A pate ity test. |
+| A pe is. |
+| A pe so al massage . |
+| A pocket diape . |
+| A pu ch i  o e's ow  face. |
+| A  abid baby-eati g  accoo . |
+| A  eality tv host sayi g, "You a e NOT the fathe ." |
+| A  ectal the momete . |
+| A  ed light. |
+| A sha k  idi g a  eagle. |
+| A small bottle of bou bo . |
+| A S ocksucke . |
+| A su ogate. |
+| A ti y butt. |
+| A ti y, c yi g boob-eati g mo ste . |
+| A tu key baste . |
+| A used co dom. |
+| A vagi al exam. |
+| A wate  bi th. |
+| A w ecki g ball. |
+| A  all-i -o e. |
+| A  ambe   ecklace. |
+| A  e tou age. |
+| A  IUD. |
+| A  OBGYN. |
+| A  ugly baby. |
+| A al leakage. |
+| Ate a diape . |
+| Baco ! |
+| Balloo s. |
 | Balls. |
-| Being a baby wizard! |
-| Birth control. |
+| Bei g a baby wiza d! |
+| Bi th co t ol. |
 | Boobs. |
-| Breaking out with bacne. |
-| Breastfeeding. |
+| B eaki g out with bac e. |
+| B eastfeedi g. |
 | Butt balm. |
-| Carbucketty. |
-| Change a diaper. |
-| Choking the next person that asks what my due date is. |
-| Co-sleeping. |
-| Coconut oil. |
-| Comments on the internet. |
-| Constipation. |
-| Crack. |
-| Crowning. |
-| Crying. |
-| Diaper liners. |
-| Diaper sprayer. |
-| Diapering. |
-| Dirty Diaper Laundry. |
-| Dropping the baby. |
-| Eating it. |
-| Eating my placenta. |
-| Edible diapers. |
-| Essential oils. |
-| Estrogen. |
-| Everything. |
-| Explosive diarrhea. |
-| Flowers. |
-| Fluffy animals. |
-| Forceps. |
-| Foreplay. |
-| Getting a vasectomy. |
-| Getting peed on. |
-| Getting throat punched. |
-| Giving birth in a mountain stream. |
-| Hemorrhoids. |
-| Hiding a stash of dark chocolate. |
+| Ca bucketty. |
+| Cha ge a diape . |
+| Choki g the  ext pe so  that asks what my due date is. |
+| Co-sleepi g. |
+| Coco ut oil. |
+| Comme ts o  the i te et. |
+| Co stipatio . |
+| C ack. |
+| C ow i g. |
+| C yi g. |
+| Diape  li e s. |
+| Diape  sp aye . |
+| Diape i g. |
+| Di ty Diape  Lau d y. |
+| D oppi g the baby. |
+| Eati g it. |
+| Eati g my place ta. |
+| Edible diape s. |
+| Esse tial oils. |
+| Est oge . |
+| Eve ythi g. |
+| Explosive dia hea. |
+| Flowe s. |
+| Fluffy a imals. |
+| Fo ceps. |
+| Fo eplay. |
+| Getti g a vasectomy. |
+| Getti g peed o . |
+| Getti g th oat pu ched. |
+| Givi g bi th i  a mou tai  st eam. |
+| Hemo hoids. |
+| Hidi g a stash of da k chocolate. |
 | Humpday. |
-| Ice cream. |
-| immaculate manliness |
-| Infectious disease. |
-| Jaundice. |
-| Jerry Springer. |
-| Jump from the Empire State Building. |
-| Justin Bieber. |
-| Labor. |
-| Lactation. |
-| Laughing until you pee. |
-| Leftovers. |
-| Liver and onions. |
-| Lots of therapy. |
-| Making babies. |
-| Menstraul pads. |
-| Menstruation. |
-| Mom jeans. |
-| Morning sickness. |
-| morning wood |
-| Moves like Jagger. |
-| My best friend. |
-| My brother. |
+| Ice c eam. |
+| immaculate ma li ess |
+| I fectious disease. |
+| Jau dice. |
+| Je y Sp i ge . |
+| Jump f om the Empi e State Buildi g. |
+| Justi  Biebe . |
+| Labo . |
+| Lactatio . |
+| Laughi g u til you pee. |
+| Leftove s. |
+| Live  a d o io s. |
+| Lots of the apy. |
+| Maki g babies. |
+| Me st aul pads. |
+| Me st uatio . |
+| Mom jea s. |
+| Mo i g sick ess. |
+| mo i g wood |
+| Moves like Jagge . |
+| My best f ie d. |
+| My b othe . |
 | My dad. |
-| My husband. |
-| My lover. |
+| My husba d. |
+| My love . |
 | My mom. |
-| My mother-in-law. |
-| My partner. |
-| My sister. |
-| My vagina. |
-| Nipple butter. |
-| Nipple stimulation. |
-| Oprah. |
-| Painkillers. |
-| Poop on a stick. |
-| Poop spray. |
+| My mothe -i -law. |
+| My pa t e . |
+| My siste . |
+| My vagi a. |
+| Nipple butte . |
+| Nipple stimulatio . |
+| Op ah. |
+| Pai kille s. |
+| Poop o  a stick. |
+| Poop sp ay. |
 | Poop. |
-| Pooping out of frustration. |
-| Pregnancy brain. |
-| Projectile vomit. |
-| Pubic hair. |
-| Put breastmilk on it. |
+| Poopi g out of f ust atio . |
+| P eg a cy b ai . |
+| P ojectile vomit. |
+| Pubic hai . |
+| Put b eastmilk o  it. |
 | Rabies. |
-| Rancid breastmilk. |
-| Rubber pants. |
-| Sardines. |
+| Ra cid b eastmilk. |
+| Rubbe  pa ts. |
+| Sa di es. |
 | Seedy poop. |
-| Sex with my husband. |
+| Sex with my husba d. |
 | Sex. |
 | Sleep. |
-| Sleeping on the couch. |
-| Slime of questionable origin. |
+| Sleepi g o  the couch. |
+| Slime of questio able o igi . |
 | Slimy poop. |
 | Small blood clots. |
-| Smuggling mesh underwear. |
-| Snoring. |
-| Soiled diapers. |
-| Squiritng breast milk across the room. |
-| Squirting breastmilk. |
-| Stealing samples from the hospital. |
-| Stretch marks. |
+| Smuggli g mesh u de wea . |
+| S o i g. |
+| Soiled diape s. |
+| Squi it g b east milk ac oss the  oom. |
+| Squi ti g b eastmilk. |
+| Steali g samples f om the hospital. |
+| St etch ma ks. |
 | Swaddle |
-| Tampons. |
+| Tampo s. |
 | Tape. |
-| Teething. |
-| Thank you notes. |
-| That sticky spot on my jeans. |
+| Teethi g. |
+| Tha k you  otes. |
+| That sticky spot o  my jea s. |
 | The 5 S's. |
-| The Duggars. |
-| The heart of a child. |
-| The longest pee. |
-| The milk man's baby. |
-| The most expensive one. |
-| The Placenta. |
-| The real father. |
-| The stork. |
-| Throw Up. |
-| Throwing my pie for you. |
-| Thumb sucking. |
-| Thunder from down under. |
-| Tiny terrorists. |
-| Triplets. |
-| Twins. |
-| Vaginal rejuvenation surgery. |
-| Varicose veins. |
-| Week old tuna. |
-| Weird sex dreams. |
+| The Dugga s. |
+| The hea t of a child. |
+| The lo gest pee. |
+| The milk ma 's baby. |
+| The most expe sive o e. |
+| The Place ta. |
+| The  eal fathe . |
+| The sto k. |
+| Th ow Up. |
+| Th owi g my pie fo  you. |
+| Thumb sucki g. |
+| Thu de  f om dow  u de . |
+| Ti y te o ists. |
+| T iplets. |
+| Twi s. |
+| Vagi al  ejuve atio  su ge y. |
+| Va icose vei s. |
+| Week old tu a. |
+| Wei d sex d eams. |
 | Wipes. |
-| World's okayest Mom. |
+| Wo ld's okayest Mom. |
 | Yeast. |
 
 |Total amount: 186|

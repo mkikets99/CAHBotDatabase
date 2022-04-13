@@ -13,23 +13,23 @@ Answers amount: 15
 |---|
 
 ### Answers
-| Question |
+| Answers |
 |---|
-| An orgasm so powerful you travel back in time and jizz in Hitler's face. |
-| Being open to new perspectives on the Holocaust. |
-| Breaking news about what Hitler's penis was like. |
-| Cloning Hitler. |
-| Disco Mussolini. |
-| Donald Trump's personal copy of Mein Kampf. |
-| Electro-Stalin. |
-| Hitler's sound economic policies. |
-| How cool Nazi airplanes are. |
-| Presenting your documents at a checkpoint. |
-| Ruining an entire genre of moustaches. |
-| Straight up fucking loving authority. |
-| The cyanide pill you keep on your person at all times. |
-| The Yad Vashem World Center for Holocaust Research. |
-| Whatever brave hero killed Hitler. |
+| A  o gasm so powe ful you t avel back i  time a d jizz i  Hitle 's face. |
+| Bei g ope  to  ew pe spectives o  the Holocaust. |
+| B eaki g  ews about what Hitle 's pe is was like. |
+| Clo i g Hitle . |
+| Disco Mussoli i. |
+| Do ald T ump's pe so al copy of Mei  Kampf. |
+| Elect o-Stali . |
+| Hitle 's sou d eco omic policies. |
+| How cool Nazi ai pla es a e. |
+| P ese ti g you  docume ts at a checkpoi t. |
+| Rui i g a  e ti e ge e of moustaches. |
+| St aight up fucki g lovi g autho ity. |
+| The cya ide pill you keep o  you  pe so  at all times. |
+| The Yad Vashem Wo ld Ce te  fo  Holocaust Resea ch. |
+| Whateve  b ave he o killed Hitle . |
 
 |Total amount: 15|
 |---|

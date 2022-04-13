@@ -29,8 +29,7 @@ Answers amount: 84
 | _, the newest My Little Pony character. | 1 |
 | Ah, High School. A place for _ and _. | 2 |
 | Hello! Do you have a moment to talk about our lord and savior _. | 1 |
-| Hypothesis: _Experiment: _
-Conclusion: _ | 3 |
+| Hypothesis: _ Experiment: _ Conclusion: _ | 3 |
 | I get to pick a porn name? Then I want to be called _. | 1 |
 | I was chilling with Snoop Dogg when he rolled a joint and said _ | 1 |
 | I'm too rich and famous for _. | 1 |
@@ -58,92 +57,92 @@ Conclusion: _ | 3 |
 |---|
 
 ### Answers
-| Question |
+| Answers |
 |---|
-| A career ending blowjob. |
-| A low cal progressive communion wafer called, I cant believe its not Jesus. |
-| A pregnant lady with feet hanging from her vagina. |
-| A Shirley Temple made from the remains of the actual Shirley Temple. |
-| Accidentally committing rape by not yelling surprise. |
-| Adolf Hitler's gas bill. |
-| An Asian Invasion. |
-| Apologizing for having a boner. |
-| Dating Advice from Taylor Swift |
-| Disastrously misunderstanding the purpose of a whales blowhole. |
-| Feigning death to avoid awkward social situations. |
-| Finally realizing, after so many tries, that Do you suck cock? Is the worst opening line at any church event. |
-| Harvesting the organs of the homeless |
-| I have shit cards and am putting this down in hopeless desperation. |
-| Licking the flavor off of Doritos so you can reuse them as tortilla chips for your salsa. |
-| Only getting 71 virgins, due to a clerical error. |
-| Playing Jenga on 9/11 |
-| Reading erotic braille with your penis. |
-| Slapping the dick right out of someones mouth |
-| The countless times the Toy Story toys were forced to watch Andy masturbate. |
-| 12,000 ants. |
-| A drink called The Bill Cosby; I could tell you what's in it but you won't remember in the morning. |
-| A gang-bang with angry smurfs. |
-| A gluten-free pizza that tastes like the cardboard box it came in. |
+| A ca ee  e di g blowjob. |
+| A low cal p og essive commu io  wafe  called, I ca t believe its  ot Jesus. |
+| A p eg a t lady with feet ha gi g f om he  vagi a. |
+| A Shi ley Temple made f om the  emai s of the actual Shi ley Temple. |
+| Accide tally committi g  ape by  ot yelli g su p ise. |
+| Adolf Hitle 's gas bill. |
+| A  Asia  I vasio . |
+| Apologizi g fo  havi g a bo e . |
+| Dati g Advice f om Taylo  Swift |
+| Disast ously misu de sta di g the pu pose of a whales blowhole. |
+| Feig i g death to avoid awkwa d social situatio s. |
+| Fi ally  ealizi g, afte  so ma y t ies, that Do you suck cock? Is the wo st ope i g li e at a y chu ch eve t. |
+| Ha vesti g the o ga s of the homeless |
+| I have shit ca ds a d am putti g this dow  i  hopeless despe atio . |
+| Licki g the flavo  off of Do itos so you ca   euse them as to tilla chips fo  you  salsa. |
+| O ly getti g 71 vi gi s, due to a cle ical e o . |
+| Playi g Je ga o  9/11 |
+| Readi g e otic b aille with you  pe is. |
+| Slappi g the dick  ight out of someo es mouth |
+| The cou tless times the Toy Sto y toys we e fo ced to watch A dy mastu bate. |
+| 12,000 a ts. |
+| A d i k called The Bill Cosby; I could tell you what's i  it but you wo 't  emembe  i  the mo i g. |
+| A ga g-ba g with a g y smu fs. |
+| A glute -f ee pizza that tastes like the ca dboa d box it came i . |
 | A puppet show of the holocaust. |
-| A sexually active Toyota Prius. |
-| A skankosaurus. |
-| Being friend zoned by a blow-up sex doll. |
-| Darth Vader ass fucking Leia while yelling "Who's Your Daddy"? |
-| Finding a socially acceptable outlet for your nymphomania. |
-| Generic grape soda so awful you swear it's Barney cum. |
-| Hobbit porn starring Dildo backends. |
+| A sexually active Toyota P ius. |
+| A ska kosau us. |
+| Bei g f ie d zo ed by a blow-up sex doll. |
+| Da th Vade  ass fucki g Leia while yelli g "Who's You  Daddy"? |
+| Fi di g a socially acceptable outlet fo  you   ymphoma ia. |
+| Ge e ic g ape soda so awful you swea  it's Ba ey cum. |
+| Hobbit po  sta i g Dildo backe ds. |
 | Muslim with a backpack. |
-| Scouting for porn stars at a high school graduation. |
-| Surprise Funeral. |
-| The blood crusted slime of a used anal bead. |
-| The chunky blue water in an airplane toilet. |
-| The leftover cocaine from the time Charlie Sheen partied with those Asian hookers. |
-| Weighing yourself, then popping a big butt zit, and then weighing yourself again. |
-| White supremacists who refuse to eat brown M&Ms. |
-| Yoda's weird little green penis. |
-| Your gynecologist, who now performs pap smears with a 24 inch two-headed dildo. |
-| A broken heart, an empty wallet, and a bouquet of chlamydia. |
+| Scouti g fo  po  sta s at a high school g aduatio . |
+| Su p ise Fu e al. |
+| The blood c usted slime of a used a al bead. |
+| The chu ky blue wate  i  a  ai pla e toilet. |
+| The leftove  cocai e f om the time Cha lie Shee  pa tied with those Asia  hooke s. |
+| Weighi g you self, the  poppi g a big butt zit, a d the  weighi g you self agai . |
+| White sup emacists who  efuse to eat b ow  M&Ms. |
+| Yoda's wei d little g ee  pe is. |
+| You  gy ecologist, who  ow pe fo ms pap smea s with a 24 i ch two-headed dildo. |
+| A b oke  hea t, a  empty wallet, a d a bouquet of chlamydia. |
 | A dick move. |
 | A moist towelette. |
-| A Tunnel of Gloryholes. |
-| A yeast infection. |
-| An itchy nipple. |
-| Finally catching a leprechaun and then finding out you'll be taking his Lucky Charms, dry. |
-| Having sex with the principal. |
-| Highly racist Asian music. |
-| In bed, pajama clad, non-sexual intimate touching. |
-| Islamic goat porn. |
-| Life-changing wisdom from Jade Smith's twitter account. |
-| Off-duty Nazis just looking for a good time. |
-| One Night in Paris. |
-| Santa Claus teabagging a sleeping child, taking a picture and leaving it in the child's stocking. |
-| Telling 9/11 jokes to the families of 9/11 victims. |
-| The Satanic Verses. |
-| Throwing your hands in the air and shouting Wheeee! |
-| Two Floridians, $10,000 in cash, five crack pipes, and a baby fucking alligator. |
-| When your dog's balls are bigger than yours. |
-| 100,000 dollars, alcohol, and 4 weeks of vacation. |
-| A flock of seagulls that mistakes your penis for a french fry. |
-| A naked gay Mexican guy. |
-| A shockingly realistic reenactment of the Games of Thrones. |
-| Accidentally sexting your mother. |
-| Becoming a superhero by killing your parents. |
-| Being a two-timing whore. |
-| Buying a windowless van and candy to improve your sex life. |
-| Deeply inhaling your own farts. |
-| I ate those fancy soaps you bought for the bathroom. |
-| Making tea with the blood of our enemies. |
-| Masturbating to Law and Order: Special Victims Unit. |
-| Princess Leia in a threesome with Ewoks. |
-| Pulling the plug on Grandma. |
-| Searching for African Slaves on Amazon Prime. |
-| The Dark Side. |
-| The people who jumped on 9/11. |
-| Titty fucking Susan G. Komen. |
-| Tongue punching your fart box. |
-| Yabba Dabba Doin It!: The Bedrocking Memoirs of Fred Flintstone. |
-| Your favorite childhood stuffed animal coming to life, but turning out to be a massive racist. |
-| Your mom's armpit hair. |
+| A Tu el of Glo yholes. |
+| A yeast i fectio . |
+| A  itchy  ipple. |
+| Fi ally catchi g a lep echau  a d the  fi di g out you'll be taki g his Lucky Cha ms, d y. |
+| Havi g sex with the p i cipal. |
+| Highly  acist Asia  music. |
+| I  bed, pajama clad,  o -sexual i timate touchi g. |
+| Islamic goat po . |
+| Life-cha gi g wisdom f om Jade Smith's twitte  accou t. |
+| Off-duty Nazis just looki g fo  a good time. |
+| O e Night i  Pa is. |
+| Sa ta Claus teabaggi g a sleepi g child, taki g a pictu e a d leavi g it i  the child's stocki g. |
+| Telli g 9/11 jokes to the families of 9/11 victims. |
+| The Sata ic Ve ses. |
+| Th owi g you  ha ds i  the ai  a d shouti g Wheeee! |
+| Two Flo idia s, $10,000 i  cash, five c ack pipes, a d a baby fucki g alligato . |
+| Whe  you  dog's balls a e bigge  tha  you s. |
+| 100,000 dolla s, alcohol, a d 4 weeks of vacatio . |
+| A flock of seagulls that mistakes you  pe is fo  a f e ch f y. |
+| A  aked gay Mexica  guy. |
+| A shocki gly  ealistic  ee actme t of the Games of Th o es. |
+| Accide tally sexti g you  mothe . |
+| Becomi g a supe he o by killi g you  pa e ts. |
+| Bei g a two-timi g who e. |
+| Buyi g a wi dowless va  a d ca dy to imp ove you  sex life. |
+| Deeply i hali g you  ow  fa ts. |
+| I ate those fa cy soaps you bought fo  the bath oom. |
+| Maki g tea with the blood of ou  e emies. |
+| Mastu bati g to Law a d O de : Special Victims U it. |
+| P i cess Leia i  a th eesome with Ewoks. |
+| Pulli g the plug o  G a dma. |
+| Sea chi g fo  Af ica  Slaves o  Amazo  P ime. |
+| The Da k Side. |
+| The people who jumped o  9/11. |
+| Titty fucki g Susa  G. Kome . |
+| To gue pu chi g you  fa t box. |
+| Yabba Dabba Doi  It!: The Bed ocki g Memoi s of F ed Fli tsto e. |
+| You  favo ite childhood stuffed a imal comi g to life, but tu i g out to be a massive  acist. |
+| You  mom's a mpit hai . |
 
 |Total amount: 84|
 |---|

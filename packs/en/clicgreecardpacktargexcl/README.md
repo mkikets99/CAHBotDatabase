@@ -16,18 +16,18 @@ Answers amount: 10
 |---|
 
 ### Answers
-| Question |
+| Answers |
 |---|
-| A one-star Uber driver named "Wife of Tarantula." |
-| An explosion of glitter. |
-| Eating my children. |
-| Emerging from my mother's vagina. |
+| A o e-sta  Ube  d ive   amed "Wife of Ta a tula." |
+| A  explosio  of glitte . |
+| Eati g my child e . |
+| Eme gi g f om my mothe 's vagi a. |
 | Give me kiss. |
-| Looking like shit. |
-| Luring my husband to the bedroom with a trail of ferret teeth and appearing on the bed in a ferret costume. |
-| Mom's special birthday rimjob. |
-| My five dead husbands. |
-| Turning 70 and still being fuckable. |
+| Looki g like shit. |
+| Lu i g my husba d to the bed oom with a t ail of fe et teeth a d appea i g o  the bed i  a fe et costume. |
+| Mom's special bi thday  imjob. |
+| My five dead husba ds. |
+| Tu i g 70 a d still bei g fuckable. |
 
 |Total amount: 10|
 |---|

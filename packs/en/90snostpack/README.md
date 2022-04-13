@@ -18,33 +18,33 @@ Answers amount: 25
 |---|
 
 ### Answers
-| Question |
+| Answers |
 |---|
-| A bus that will explode if it goes under 50 miles per hour. |
-| A mulatto, an albino, a mosquito, and my libido. |
-| A threesome with 1996 Denise Richards and 1999 Denise Richards. |
-| Angels interfering in an otherwise fair baseball game. |
-| Cool 90s up-in-the-front hair. |
-| Deregulating the mortgage market. |
-| Freeing Willy. |
-| Getting caught up in the CROSSFIRE™. |
-| Jerking off to a 10-second RealMedia clip. |
-| Kurt Cobain's death. |
-| Liking big butts and not being able to lie about it. |
+| A bus that will explode if it goes u de  50 miles pe  hou . |
+| A mulatto, a  albi o, a mosquito, a d my libido. |
+| A th eesome with 1996 De ise Richa ds a d 1999 De ise Richa ds. |
+| A gels i te fe i g i  a  othe wise fai  baseball game. |
+| Cool 90s up-i -the-f o t hai . |
+| De egulati g the mo tgage ma ket. |
+| F eei g Willy. |
+| Getti g caught up i  the CROSSFIRE™. |
+| Je ki g off to a 10-seco d RealMedia clip. |
+| Ku t Cobai 's death. |
+| Liki g big butts a d  ot bei g able to lie about it. |
 | Log™. |
-| Painting with all the colors of the wind. |
-| Pamela Anderson's boobs running in slow motion. |
-| Patti Mayonnaise. |
-| Pizza in the morning, pizza in the evening, pizza at supper time. |
-| Pure Moods, Vol. 1. |
-| Several Michael Keatons |
-| Stabbing the shit out of a Capri Sun. |
-| Sucking the president's dick. |
-| Sunny D! Alright! |
-| The Great Cornholio. |
+| Pai ti g with all the colo s of the wi d. |
+| Pamela A de so 's boobs  u i g i  slow motio . |
+| Patti Mayo aise. |
+| Pizza i  the mo i g, pizza i  the eve i g, pizza at suppe  time. |
+| Pu e Moods, Vol. 1. |
+| Seve al Michael Keato s |
+| Stabbi g the shit out of a Cap i Su . |
+| Sucki g the p eside t's dick. |
+| Su y D! Al ight! |
+| The G eat Co holio. |
 | The Y2K bug. |
-| Wearing Nicolas Cage's face. |
-| Yelling "girl power!" and doing a high kick. |
+| Wea i g Nicolas Cage's face. |
+| Yelli g "gi l powe !" a d doi g a high kick. |
 
 |Total amount: 25|
 |---|

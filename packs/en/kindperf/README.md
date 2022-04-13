@@ -85,233 +85,233 @@ Answers amount: 225
 |---|
 
 ### Answers
-| Question |
+| Answers |
 |---|
-| A dead battery in the noisy toy |
-| A diaper-eating dog |
-| A kid's birthday party that costs more than our wedding |
-| A pee-free toilet seat |
-| A sandbox fight club |
-| A toddler mute button |
-| An everlasting iPad battery |
-| Another germ-infested, bone-breaking bouncy house |
-| Asking Alexa for parenting advice |
+| A dead batte y i  the  oisy toy |
+| A diape -eati g dog |
+| A kid's bi thday pa ty that costs mo e tha  ou  weddi g |
+| A pee-f ee toilet seat |
+| A sa dbox fight club |
+| A toddle  mute butto  |
+| A  eve lasti g iPad batte y |
+| A othe  ge m-i fested, bo e-b eaki g bou cy house |
+| Aski g Alexa fo  pa e ti g advice |
 | Bedtime battles |
-| Bribing your kids with candy to brush their teeth |
-| Cleaning puke out of your cleavage |
-| Convincing yourself the drive-thru is a healthy dinner option |
-| Diaper blowouts |
-| Disapproving looks from childless couples |
-| Discussing poop with parents you've just met |
-| Doing snow angels on Walmart's dirty floor |
-| Drinking a whole bottle of wine to unwind |
-| Eating chocolate in the closet |
-| Faking a poop just to sit in silence |
-| Fighting over the last Girl Scout cookie |
-| Figuring out you could probably survive a week on the crap in your car |
-| Forgetting their after-school activity . . . Again |
-| Forgetting which twin is which |
-| Getting your period the one weekend your parents have the kids |
-| Giving in to ice cream for dinner just to quiet the kids |
-| Giving the sick kid Tylenol and sending them to daycare anyway |
-| Glitter, the curse of crafting |
-| Grocery store tantrums |
-| Having a favorite child |
-| Helping them look for their candy that you ate last night |
-| Knowing which kid farted by their distinct smell |
-| Letting your kid watch someone else read them books on YouTube |
-| Literally hiding from my kids |
-| Mixing up pajama day with picture day |
-| Noise canceling headphones and a bottle wine |
-| Not giving a sh*t while chaperoning |
-| Oh sh*t . . . twins! |
-| One tequila, two tequila, three tequila, FLOOR |
-| Packing lunches that never get eaten |
-| Pants with elastic wastbands |
-| Pee-soaked mattress |
-| Peeing your pants |
-| Phonetically spelled hate mail from my 5 year old |
-| Playing hide and go poop |
-| Pretending we like other people's children |
-| Putting ketchup on literally everything |
-| Reading the same book over and over and over and over again |
-| Realizing the pre-kids you was so wrong about everything |
-| Redecorating with spill proof fabrics |
-| Running into an ex just as your kid goes full tantrum |
-| Saying thank you when handed a booger |
-| School tuition payments larger than our monthly mortgage |
-| Secretly looking forward to going to work on Mondays |
-| Sending the kid to daycare even when you have the day off |
-| Setting all the clocks forward an hour so they go to bed early |
-| Someone making millions unwrapping toys on YouTube |
-| Taking 3 hours to go on a 15 minute errand |
-| Telling my kids everything is spicy so I don't have to share |
-| That dumbass who parks in the drop off lane |
-| The constant aroma of baby vomit and explosive diarrhea |
-| The fight over whose farts smell the worst |
-| The impossible-to-find Christmas present |
-| The inappropriate honesty of a 5 year old |
-| The Man Flu |
-| Trying to take them to school on a Saturday |
-| Underwear negotiations |
-| Unicorn stickers everywhere |
-| Using a record number of wipes in a single diaper change |
-| Using spit as a cleaning aid |
-| Using your sleeve as a snot rag |
-| Vomit laundry |
-| Waiting in line for 3 hours to meet a Disney character for 3 seconds |
-| Watching cartoons after the kids are in bed |
-| Wiping another ass |
-| A 9-month denial period |
-| A rock hard erection |
-| A toddler drinking out of a plunger |
-| A viral PornHub video |
+| B ibi g you  kids with ca dy to b ush thei  teeth |
+| Clea i g puke out of you  cleavage |
+| Co vi ci g you self the d ive-th u is a healthy di e  optio  |
+| Diape  blowouts |
+| Disapp ovi g looks f om childless couples |
+| Discussi g poop with pa e ts you've just met |
+| Doi g s ow a gels o  Walma t's di ty floo  |
+| D i ki g a whole bottle of wi e to u wi d |
+| Eati g chocolate i  the closet |
+| Faki g a poop just to sit i  sile ce |
+| Fighti g ove  the last Gi l Scout cookie |
+| Figu i g out you could p obably su vive a week o  the c ap i  you  ca  |
+| Fo getti g thei  afte -school activity . . . Agai  |
+| Fo getti g which twi  is which |
+| Getti g you  pe iod the o e weeke d you  pa e ts have the kids |
+| Givi g i  to ice c eam fo  di e  just to quiet the kids |
+| Givi g the sick kid Tyle ol a d se di g them to dayca e a yway |
+| Glitte , the cu se of c afti g |
+| G oce y sto e ta t ums |
+| Havi g a favo ite child |
+| Helpi g them look fo  thei  ca dy that you ate last  ight |
+| K owi g which kid fa ted by thei  disti ct smell |
+| Letti g you  kid watch someo e else  ead them books o  YouTube |
+| Lite ally hidi g f om my kids |
+| Mixi g up pajama day with pictu e day |
+| Noise ca celi g headpho es a d a bottle wi e |
+| Not givi g a sh*t while chape o i g |
+| Oh sh*t . . . twi s! |
+| O e tequila, two tequila, th ee tequila, FLOOR |
+| Packi g lu ches that  eve  get eate  |
+| Pa ts with elastic wastba ds |
+| Pee-soaked matt ess |
+| Peei g you  pa ts |
+| Pho etically spelled hate mail f om my 5 yea  old |
+| Playi g hide a d go poop |
+| P ete di g we like othe  people's child e  |
+| Putti g ketchup o  lite ally eve ythi g |
+| Readi g the same book ove  a d ove  a d ove  a d ove  agai  |
+| Realizi g the p e-kids you was so w o g about eve ythi g |
+| Redeco ati g with spill p oof fab ics |
+| Ru i g i to a  ex just as you  kid goes full ta t um |
+| Sayi g tha k you whe  ha ded a booge  |
+| School tuitio  payme ts la ge  tha  ou  mo thly mo tgage |
+| Sec etly looki g fo wa d to goi g to wo k o  Mo days |
+| Se di g the kid to dayca e eve  whe  you have the day off |
+| Setti g all the clocks fo wa d a  hou  so they go to bed ea ly |
+| Someo e maki g millio s u w appi g toys o  YouTube |
+| Taki g 3 hou s to go o  a 15 mi ute e a d |
+| Telli g my kids eve ythi g is spicy so I do 't have to sha e |
+| That dumbass who pa ks i  the d op off la e |
+| The co sta t a oma of baby vomit a d explosive dia hea |
+| The fight ove  whose fa ts smell the wo st |
+| The impossible-to-fi d Ch istmas p ese t |
+| The i app op iate ho esty of a 5 yea  old |
+| The Ma  Flu |
+| T yi g to take them to school o  a Satu day |
+| U de wea   egotiatio s |
+| U ico  sticke s eve ywhe e |
+| Usi g a  eco d  umbe  of wipes i  a si gle diape  cha ge |
+| Usi g spit as a clea i g aid |
+| Usi g you  sleeve as a s ot  ag |
+| Vomit lau d y |
+| Waiti g i  li e fo  3 hou s to meet a Dis ey cha acte  fo  3 seco ds |
+| Watchi g ca too s afte  the kids a e i  bed |
+| Wipi g a othe  ass |
+| A 9-mo th de ial pe iod |
+| A  ock ha d e ectio  |
+| A toddle  d i ki g out of a plu ge  |
+| A vi al Po Hub video |
 | A weak pull-out game |
-| Babysitter crushes |
-| Being sexually attracted to a cartoon |
-| Being that girl gone wild |
-| Breastfeeding a piranha |
-| Broken condoms and broken dreams |
-| Buying the fancy boxed wine |
-| Cleaning an uncircumcised penis |
-| Crossing my heart and hoping to die |
-| Daydreaming about selling them to gypsies |
-| Discovering your child is the bully |
-| Doing Kegels to tighten up my vag |
-| Drinking heavily to be a better parent |
-| Drinking on the scout camping trip |
-| Expecting it to be all unicorns and rainbows |
-| Explaining daddy's erection |
-| Explaining porn |
-| Explaining your furry kink to the kids |
-| Eye candy at the community pool |
-| F**king selfies |
-| Finding them wearing your leather lingerie |
-| Five uninterrupted minutes to masturbate |
-| Forgetting to take the pill |
-| Getting caught watching online porn |
-| Getting in a quickie while the kids are at soccer practice |
-| Getting too old for this sh*t |
-| Giving in to sex just to stop the begging |
-| Googling if the Safe Haven Law applies to toddlers |
-| Helping them cheat on the SAT |
-| Hooking up at parent-teacher conferences |
+| Babysitte  c ushes |
+| Bei g sexually att acted to a ca too  |
+| Bei g that gi l go e wild |
+| B eastfeedi g a pi a ha |
+| B oke  co doms a d b oke  d eams |
+| Buyi g the fa cy boxed wi e |
+| Clea i g a  u ci cumcised pe is |
+| C ossi g my hea t a d hopi g to die |
+| Dayd eami g about selli g them to gypsies |
+| Discove i g you  child is the bully |
+| Doi g Kegels to tighte  up my vag |
+| D i ki g heavily to be a bette  pa e t |
+| D i ki g o  the scout campi g t ip |
+| Expecti g it to be all u ico s a d  ai bows |
+| Explai i g daddy's e ectio  |
+| Explai i g po  |
+| Explai i g you  fu y ki k to the kids |
+| Eye ca dy at the commu ity pool |
+| F**ki g selfies |
+| Fi di g them wea i g you  leathe  li ge ie |
+| Five u i te upted mi utes to mastu bate |
+| Fo getti g to take the pill |
+| Getti g caught watchi g o li e po  |
+| Getti g i  a quickie while the kids a e at socce  p actice |
+| Getti g too old fo  this sh*t |
+| Givi g i  to sex just to stop the beggi g |
+| Googli g if the Safe Have  Law applies to toddle s |
+| Helpi g them cheat o  the SAT |
+| Hooki g up at pa e t-teache  co fe e ces |
 | Hot stay-at-home dads |
-| Keeping them off the sex-stained sheets |
-| Lazy foreplay |
-| Leaking milk during sex |
-| Losing your child at Walmart |
-| Making daddy cry |
-| Making him sleep in the wet spot |
-| Making the kids flush the goldfish |
-| Mastering how to masturbate in silence |
-| Missing your child's big moment because you were looking at your phone |
-| Missionary . . . again |
-| Not really knowing their paternity |
-| Nothing but fear itself. |
-| Noturnal emissions |
-| Oldest child, practice child |
-| Porn star role models |
-| Princess Aurora working a stripper pole |
-| Realizing they know when you have sex |
-| Saggy old man ass |
-| Secretly happy your ex's kids are ugly |
-| Secretly happy your sibling is getting divorced |
-| Secretly wishing they don't look like your spouse |
-| Sending an Uber to pick up the kids |
-| Seriously considering anal sex after natural childbirth |
-| Sex with an audience |
-| Sexting |
-| Shamelessly flirting with the gay parents |
-| Sifting through my kid's poop to find their first lost tooth |
-| Sleeping off your hangover in the car during Saturday morning practice |
-| Stealing from your kid's piggy bank to buy booze |
-| Teacher cleavage |
-| The day you stop being naked in front of your kid |
-| The half-assed announcement of the 2nd pregnancy |
-| The mailman's baby |
-| The Poison Control app |
-| The sudden realization that your classmate's prom baby is now old enough to drink |
-| Training your kid to get you a beer |
-| Twins . . . again! |
-| Wanting to birth Channing Tatum's love child |
-| When your kids find your anal beads |
-| You're horny, they're asleep |
-| A call from the police |
-| A mysteriously deleted browser history |
+| Keepi g them off the sex-stai ed sheets |
+| Lazy fo eplay |
+| Leaki g milk du i g sex |
+| Losi g you  child at Walma t |
+| Maki g daddy c y |
+| Maki g him sleep i  the wet spot |
+| Maki g the kids flush the goldfish |
+| Maste i g how to mastu bate i  sile ce |
+| Missi g you  child's big mome t because you we e looki g at you  pho e |
+| Missio a y . . . agai  |
+| Not  eally k owi g thei  pate ity |
+| Nothi g but fea  itself. |
+| Notu al emissio s |
+| Oldest child, p actice child |
+| Po  sta   ole models |
+| P i cess Au o a wo ki g a st ippe  pole |
+| Realizi g they k ow whe  you have sex |
+| Saggy old ma  ass |
+| Sec etly happy you  ex's kids a e ugly |
+| Sec etly happy you  sibli g is getti g divo ced |
+| Sec etly wishi g they do 't look like you  spouse |
+| Se di g a  Ube  to pick up the kids |
+| Se iously co side i g a al sex afte   atu al childbi th |
+| Sex with a  audie ce |
+| Sexti g |
+| Shamelessly fli ti g with the gay pa e ts |
+| Sifti g th ough my kid's poop to fi d thei  fi st lost tooth |
+| Sleepi g off you  ha gove  i  the ca  du i g Satu day mo i g p actice |
+| Steali g f om you  kid's piggy ba k to buy booze |
+| Teache  cleavage |
+| The day you stop bei g  aked i  f o t of you  kid |
+| The half-assed a ou ceme t of the 2 d p eg a cy |
+| The mailma 's baby |
+| The Poiso  Co t ol app |
+| The sudde   ealizatio  that you  classmate's p om baby is  ow old e ough to d i k |
+| T ai i g you  kid to get you a bee  |
+| Twi s . . . agai ! |
+| Wa ti g to bi th Cha i g Tatum's love child |
+| Whe  you  kids fi d you  a al beads |
+| You' e ho y, they' e asleep |
+| A call f om the police |
+| A myste iously deleted b owse  histo y |
 | A postiive STD test |
-| A skirt too short |
-| Acne |
-| An encyclopedic knowledge of pop music but no clue about algebra |
-| An uncontrollable erection |
-| Annoying Snapchat filters |
-| Arguing about their hygiene |
-| Awkward gym showers |
-| Awkward sex conversations |
-| AXE deodorant spray clouds |
-| Being the "hangout house" |
-| Being too cool for mom |
-| Catching them shoplifting from the 7-11 |
-| Choosing a high school for its sports team |
-| Code phrases to signify menstrual periods |
-| Counting the days until they move out |
-| Crushing birth control pills into her breakfast every morning |
-| Debating your closely held beliefs with a skeptical tween |
-| Demanding an end to video game addiction |
-| Expecting abstinence |
-| Explaining the news to a smart-ass teen |
-| Finding out your son is a peeping tom |
-| Finding their profile on Tinder |
-| Finding their secret social media profile |
-| Finding your teen at the local strip club |
-| Getting high with your teen |
-| Getting revenge by changing the Wi-Fi password |
-| Giving them "the talk" |
-| Halloween costumes that cross the line |
-| Her first time wearing makeup |
-| Hiding the phone chargers to get them to do their homework |
-| His first attempt at a mustache |
-| His first box of condoms |
-| Junior high drama |
-| Learning how to twerk from your teen |
-| Maxing out the credit card in one weekend |
+| A ski t too sho t |
+| Ac e |
+| A  e cyclopedic k owledge of pop music but  o clue about algeb a |
+| A  u co t ollable e ectio  |
+| A oyi g S apchat filte s |
+| A gui g about thei  hygie e |
+| Awkwa d gym showe s |
+| Awkwa d sex co ve satio s |
+| AXE deodo a t sp ay clouds |
+| Bei g the "ha gout house" |
+| Bei g too cool fo  mom |
+| Catchi g them shoplifti g f om the 7-11 |
+| Choosi g a high school fo  its spo ts team |
+| Code ph ases to sig ify me st ual pe iods |
+| Cou ti g the days u til they move out |
+| C ushi g bi th co t ol pills i to he  b eakfast eve y mo i g |
+| Debati g you  closely held beliefs with a skeptical twee  |
+| Dema di g a  e d to video game addictio  |
+| Expecti g absti e ce |
+| Explai i g the  ews to a sma t-ass tee  |
+| Fi di g out you  so  is a peepi g tom |
+| Fi di g thei  p ofile o  Ti de  |
+| Fi di g thei  sec et social media p ofile |
+| Fi di g you  tee  at the local st ip club |
+| Getti g high with you  tee  |
+| Getti g  eve ge by cha gi g the Wi-Fi passwo d |
+| Givi g them "the talk" |
+| Hallowee  costumes that c oss the li e |
+| He  fi st time wea i g makeup |
+| Hidi g the pho e cha ge s to get them to do thei  homewo k |
+| His fi st attempt at a mustache |
+| His fi st box of co doms |
+| Ju io  high d ama |
+| Lea i g how to twe k f om you  tee  |
+| Maxi g out the c edit ca d i  o e weeke d |
 | Middle school flashbacks |
-| Oversharing on social media |
-| Passing the driver's license test |
+| Ove sha i g o  social media |
+| Passi g the d ive 's lice se test |
 | Peach fuzz pubes |
-| Pretending to enjoy their school concerts |
-| Puberty |
-| Realizing they are growing up to be just like you |
-| Relearning algebra to help them with homework |
-| School friends' uneducated views on sex |
-| Slamming doors |
-| Stealing your kid's weed |
-| Taking pride in their acceptance by the cool kids |
-| Teaching them how to properly stab their best friend in the back |
-| That time they got caught smoking in the school bathroom |
-| The ability to embarrass a teen anytime, anywhere |
-| The constant narration of imaginary YouTube videos |
-| The drama of being chosen last at gym |
-| The first time they say "because you're, like, old" |
-| The groping teen |
-| The horror of a bad selfie |
-| The horrors of middle school band |
-| The life-changing drama of today's breakup |
-| The Parents' Homework Hotline |
-| The squeaky voice of puberty |
-| The sudden interest in the opposite sex |
-| The unrelenting attitude that crushes any sanity you have left |
-| Their diet of cereal, ramen, pizza, and a gallon of milk every day |
-| Their sh*tty taste in music |
-| Their sudden recognition of dirty jokes |
-| Their taste in teen movies |
-| True love! For the third time this week |
-| Two hour showers |
-| Watching their eyes glaze over when you start talking |
-| Wearing ear plugs to the tween pop concert |
-| Wishing they'd waste weekends playing Dungeons and Dragons like you did |
-| Wondering how your parents ever survived your teen years |
-| Wondering whose thing is in the wash |
+| P ete di g to e joy thei  school co ce ts |
+| Pube ty |
+| Realizi g they a e g owi g up to be just like you |
+| Relea i g algeb a to help them with homewo k |
+| School f ie ds' u educated views o  sex |
+| Slammi g doo s |
+| Steali g you  kid's weed |
+| Taki g p ide i  thei  accepta ce by the cool kids |
+| Teachi g them how to p ope ly stab thei  best f ie d i  the back |
+| That time they got caught smoki g i  the school bath oom |
+| The ability to emba ass a tee  a ytime, a ywhe e |
+| The co sta t  a atio  of imagi a y YouTube videos |
+| The d ama of bei g chose  last at gym |
+| The fi st time they say "because you' e, like, old" |
+| The g opi g tee  |
+| The ho o  of a bad selfie |
+| The ho o s of middle school ba d |
+| The life-cha gi g d ama of today's b eakup |
+| The Pa e ts' Homewo k Hotli e |
+| The squeaky voice of pube ty |
+| The sudde  i te est i  the opposite sex |
+| The u ele ti g attitude that c ushes a y sa ity you have left |
+| Thei  diet of ce eal,  ame , pizza, a d a gallo  of milk eve y day |
+| Thei  sh*tty taste i  music |
+| Thei  sudde   ecog itio  of di ty jokes |
+| Thei  taste i  tee  movies |
+| T ue love! Fo  the thi d time this week |
+| Two hou  showe s |
+| Watchi g thei  eyes glaze ove  whe  you sta t talki g |
+| Wea i g ea  plugs to the twee  pop co ce t |
+| Wishi g they'd waste weeke ds playi g Du geo s a d D ago s like you did |
+| Wo de i g how you  pa e ts eve  su vived you  tee  yea s |
+| Wo de i g whose thi g is i  the wash |
 
 |Total amount: 225|
 |---|

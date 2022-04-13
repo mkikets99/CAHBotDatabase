@@ -14,8 +14,7 @@ Answers amount: 200
 | All women flirt with me, consciously or unconsciously, thinking about _. | 1 |
 | Ariana Huffington is unattractive, both inside and out. I fully understand why her former husband left her for (a) _. He made a good decision. | 1 |
 | Being President is easy. You just need _. | 1 |
-| Dear Santa, All I want for Christmas is _. Love, Don 
-PS, Give Hillary _. | 2 |
+| Dear Santa, All I want for Christmas is _. Love, Don   PS, Give Hillary _. | 2 |
 | Ever since _, my life has gotten so much busier. | 1 |
 | Everything is negotiable except _. | 1 |
 | Foreign Policy? You mean _. | 1 |
@@ -62,208 +61,210 @@ PS, Give Hillary _. | 2 |
 |---|
 
 ### Answers
-| Question |
+| Answers |
 |---|
-| #BlackLivesMatter movement. |
-| 8 oz. of sweet Mexican black-tar heroin. |
-| A black man in a cowboy hat. |
-| A bloody heap of Trump steaks. |
-| A box full of razor blades and sleeping pills form your Secret Service. |
-| A dyslexic KKK member who hates gingers. |
-| A Funyun® cock ring. |
-| A gay dentist referring to himself as the tooth fairy. |
-| A good old-fashioned bitch slapping! |
-| A hairpiece made from the souls of dead puppies. |
-| A little boy from Queens. |
-| A man of means by no means. |
-| A plastic kiddie pool, a bottle of Ipecac, one crack whore and a crisp $20 bill. |
-| A pudgy gay man with a combover. |
-| A quick and painless sex change. |
-| A racist bone. |
-| A remarkably convincing argument for slavery. |
-| A young and beautiful piece of ass. |
-| Abortion survivor. |
-| Adolph Hitler, great historian. |
-| America's first orange President. |
-| An old man streaking during a military appreciation baseball game. |
-| Annoying cockney British accents. |
-| Ariana Grande's licked donut. |
-| Asians who want their fair share of white privilege. |
-| Australian Ancestry.com results. |
-| Being someone's prison wife. |
-| Beliebers. |
-| Bernie Sanders' dank meme stash. |
-| Bernie Sanders' nursing home. |
-| Bernie's Communist manifesto. |
-| Bestiality Anonymous. |
-| Beyonce's Superbowl performance. |
-| Black Republicans. |
-| Black students standing in the back. |
-| Blow jobs and no jobs. |
+| #BlackLivesMatte  moveme t. |
+| 8 oz. of sweet Mexica  black-ta  he oi . |
+| A black ma  i  a cowboy hat. |
+| A bloody heap of T ump steaks. |
+| A box full of  azo  blades a d sleepi g pills fo m you  Sec et Se vice. |
+| A dyslexic KKK membe  who hates gi ge s. |
+| A Fu yu ® cock  i g. |
+| A gay de tist  efe i g to himself as the tooth fai y. |
+| A good old-fashio ed bitch slappi g! |
+| A hai piece made f om the souls of dead puppies. |
+| A little boy f om Quee s. |
+| A ma  of mea s by  o mea s. |
+| A plastic kiddie pool, a bottle of Ipecac, o e c ack who e a d a c isp $20 bill. |
+| A pudgy gay ma  with a combove . |
+| A quick a d pai less sex cha ge. |
+| A  acist bo e. |
+| A  ema kably co vi ci g a gume t fo  slave y. |
+| A you g a d beautiful piece of ass. |
+| Abo tio  su vivo . |
+| Adolph Hitle , g eat histo ia . |
+| Ame ica's fi st o a ge P eside t. |
+| A  old ma  st eaki g du i g a milita y app eciatio  baseball game. |
+| A oyi g cock ey B itish acce ts. |
+| A ia a G a de's licked do ut. |
+| Asia s who wa t thei  fai  sha e of white p ivilege. |
+| Aust alia  A cest y.com  esults. |
+| Bei g someo e's p iso  wife. |
+| Beliebe s. |
+| Be ie Sa de s' da k meme stash. |
+| Be ie Sa de s'  u si g home. |
+| Be ie's Commu ist ma ifesto. |
+| Bestiality A o ymous. |
+| Beyo ce's Supe bowl pe fo ma ce. |
+| Black Republica s. |
+| Black stude ts sta di g i  the back. |
+| Blow jobs a d  o jobs. |
 | Blowjob vomit. |
-| Bruce Jenner's balls. |
-| Building designs that overcompensate for a micropenis. |
-| Carly Fiorina's secret Cruz crush. |
-| Celebrating the election with beer and white hoods. |
-| Cheating at Cards Against Humanity™. |
-| Chinese sweatshop operators. |
-| Chris Christie's hostage face. |
-| Colonel Sanders' stolen valor. |
-| Corpse looting. |
-| David Duke for VP. |
-| Dead men selling wineries. |
-| Death by a million paper cuts. |
-| Decent human beings. |
-| Diplomatic immunity. |
-| Disabled reporters. |
-| Donald Trump bobbleheads. |
-| Donald Trump's deleted tweets. |
-| Donald Trump's hand gestures. |
-| Donald Trump's Ill-informed protestors. |
-| Donald Trump's penis. |
+| B uce Je e 's balls. |
+| Buildi g desig s that ove compe sate fo  a mic ope is. |
+| Ca ly Fio i a's sec et C uz c ush. |
+| Celeb ati g the electio  with bee  a d white hoods. |
+| Cheati g at Ca ds Agai st Huma ity™. |
+| Chi ese sweatshop ope ato s. |
+| Ch is Ch istie's hostage face. |
+| Colo el Sa de s' stole  valo . |
+| Co pse looti g. |
+| David Duke fo  VP. |
+| Dead me  selli g wi e ies. |
+| Death by a millio  pape  cuts. |
+| Dece t huma  bei gs. |
+| Diplomatic immu ity. |
+| Disabled  epo te s. |
+| Do ald T ump bobbleheads. |
+| Do ald T ump's deleted tweets. |
+| Do ald T ump's ha d gestu es. |
+| Do ald T ump's Ill-i fo med p otesto s. |
+| Do ald T ump's pe is. |
 | El Chapo's escape. |
-| Electoral fraud. |
-| Emaciated Ethiopians. |
-| Eternal awesomeness. |
-| Exploited veterans. |
-| Faking car crash injuries to get money. |
-| Female presidents. |
-| Fifth Avenue shootouts. |
-| Free Trump water and wine for all. |
-| Freecreditreport.com |
-| Fuckin' rich sugar daddies. |
-| George W Bush's legacy. |
-| Geriatric enema party! |
-| Great fuckin' genes. |
-| Guantanamo Bay summer home. |
-| Having an orgy with a cardboard cutout of yourself. |
-| Having drinks with Bill Cosby. |
-| Having twins and giving one up for adoption. |
-| Hillary and Bill's secret sex tapes. |
-| Hillary Clinton's secret sexts to Obama. |
-| Hillary Clinton's wig. |
-| Hitler youth Easy-Bake Ovens™. |
-| Homeless voters. |
-| Horrible morning breath. |
-| Important votes from Down Syndrome community. |
-| Inevitable impeachment. |
-| Inflexible Democratic assholes. |
-| Islamic State death threats. |
-| Jared's Footlong. |
+| Electo al f aud. |
+| Emaciated Ethiopia s. |
+| Ete al awesome ess. |
+| Exploited vete a s. |
+| Faki g ca  c ash i ju ies to get mo ey. |
+| Female p eside ts. |
+| Fifth Ave ue shootouts. |
+| F ee T ump wate  a d wi e fo  all. |
+| F eec edit epo t.com |
+| Fucki '  ich suga  daddies. |
+| Geo ge W Bush's legacy. |
+| Ge iat ic e ema pa ty! |
+| G eat fucki ' ge es. |
+| Gua ta amo Bay summe  home. |
+| Havi g a  o gy with a ca dboa d cutout of you self. |
+| Havi g d i ks with Bill Cosby. |
+| Havi g twi s a d givi g o e up fo  adoptio . |
+| Hilla y a d Bill's sec et sex tapes. |
+| Hilla y Cli to 's sec et sexts to Obama. |
+| Hilla y Cli to 's wig. |
+| Hitle  youth Easy-Bake Ove s™. |
+| Homeless vote s. |
+| Ho ible mo i g b eath. |
+| Impo ta t votes f om Dow  Sy d ome commu ity. |
+| I evitable impeachme t. |
+| I flexible Democ atic assholes. |
+| Islamic State death th eats. |
+| Ja ed's Footlo g. |
 | Jesus's death. |
-| Jews, gypsies, and homosexuals. |
-| Jihad knock-knock jokes. |
-| Kanye West running in 2020. |
-| Killing a Jew in order to prove a point. |
-| Kim Jong-un look-alikes. |
-| Kim Jong-un's barber. |
-| Kim Jong's relationship with Dennis Rodman. |
-| Kim Kardashian's selfie book. |
-| Kim Kardashian's yeast infections. |
+| Jews, gypsies, a d homosexuals. |
+| Jihad k ock-k ock jokes. |
+| Ka ye West  u i g i  2020. |
+| Killi g a Jew i  o de  to p ove a poi t. |
+| Kim Jo g-u  look-alikes. |
+| Kim Jo g-u 's ba be . |
+| Kim Jo g's  elatio ship with De is Rodma . |
+| Kim Ka dashia 's selfie book. |
+| Kim Ka dashia 's yeast i fectio s. |
 | KKK book clubs. |
-| Larger vaginal walls preventing pregnancy. |
-| Legally changing your name to a symbol. |
+| La ge  vagi al walls p eve ti g p eg a cy. |
+| Legally cha gi g you   ame to a symbol. |
 | Little buses with special kids. |
-| Locking the keys in your car outside an abortion clinic to ask to borrow a coat hanger. |
-| Lording over your inferiors. |
-| Luke Skywalker's missing hand. |
-| Mail order brides. |
-| Make-A-Wish® Christmas tree cards. |
-| Mascot sexual charades. |
-| Mensa poster child. |
-| Mexican drug smugglers bringing crime. |
-| Mexico's totally corrupt government. |
-| Miley Cyrus with clothes on. |
-| Miscellaneous countries that show no purpose to exist. |
-| Money Money Money Money. |
-| Monica Lewinsky, Trump's next running mate. |
-| My next born son, Adolph. |
-| Napoleonic penis complex. |
-| New York society horseshit. |
-| Nigerians on street corners. |
+| Locki g the keys i  you  ca  outside a  abo tio  cli ic to ask to bo ow a coat ha ge . |
+| Lo di g ove  you  i fe io s. |
+| Luke Skywalke 's missi g ha d. |
+| Mail o de  b ides. |
+| Make-A-Wish® Ch istmas t ee ca ds. |
+| Mascot sexual cha ades. |
+| Me sa poste  child. |
+| Mexica  d ug smuggle s b i gi g c ime. |
+| Mexico's totally co upt gove me t. |
+| Miley Cy us with clothes o . |
+| Miscella eous cou t ies that show  o pu pose to exist. |
+| Mo ey Mo ey Mo ey Mo ey. |
+| Mo ica Lewi sky, T ump's  ext  u i g mate. |
+| My  ext bo  so , Adolph. |
+| Napoleo ic pe is complex. |
+| New Yo k society ho seshit. |
+| Nige ia s o  st eet co e s. |
 | Obese sex. |
-| Orange is the New Black (Donald Trump replacing Obama). |
-| Orgies with Trump cutouts. |
-| Paypaling every voter $10 with a thank you note. |
-| Peeing on thing's to claim them as your own. |
-| Polish illegal immigrants. |
-| Post-Trump Canadian against illegal US immigrants. |
-| Prison rape. |
-| Privatized prisons. |
-| Racists for Trump. |
-| Really exciting stuff that is really important and really amazing. |
-| Reincarnation of Jesus. |
-| Robin William's depression. |
-| Rodney King. |
-| Rosa Parks. |
+| O a ge is the New Black (Do ald T ump  eplaci g Obama). |
+| O gies with T ump cutouts. |
+| Paypali g eve y vote  $10 with a tha k you  ote. |
+| Peei g o  thi g's to claim them as you  ow . |
+| Polish illegal immig a ts. |
+| Post-T ump Ca adia  agai st illegal US immig a ts. |
+| P iso   ape. |
+| P ivatized p iso s. |
+| Racists fo  T ump. |
+| Really exciti g stuff that is  eally impo ta t a d  eally amazi g. |
+| Rei ca atio  of Jesus. |
+| Robi  William's dep essio . |
+| Rod ey Ki g. |
+| Rosa Pa ks. |
 | Rule 34 |
-| Second-rate minorities. |
-| Self-praising reality TV shows. |
-| Sex with your clone. |
-| Sexy nuns. |
-| Sloppy seconds. |
-| Sneaking into the back of the White House kitchen and microwaving a full diaper. |
-| SNL impersonators that are more credible than Donald Trump. |
-| Solving a Rubik's cube every time because you're color blind. |
-| Special Olympics booing. |
-| Stealing money from Make-A-Wish®. |
-| Stubby-toed dwarves. |
+| Seco d- ate mi o ities. |
+| Self-p aisi g  eality TV shows. |
+| Sex with you  clo e. |
+| Sexy  u s. |
+| Sloppy seco ds. |
+| S eaki g i to the back of the White House kitche  a d mic owavi g a full diape . |
+| SNL impe so ato s that a e mo e c edible tha  Do ald T ump. |
+| Solvi g a Rubik's cube eve y time because you' e colo  bli d. |
+| Special Olympics booi g. |
+| Steali g mo ey f om Make-A-Wish®. |
+| Stubby-toed dwa ves. |
 | Stuffed ballot boxes. |
-| Stupid French accents and the people attached to them. |
-| Suing Hillary Clinton for being a woman. |
-| Suspicious white powder. |
-| Tampon taxes. |
-| Ted Cruz's booger. |
-| Ted Cruz's tightly clenched anus. |
-| Thanksgiving coming out party. |
-| Thanksgiving with Al Sharpton. |
-| That oddly creepy guy at your work. |
-| The 2016 presidential election. |
-| The Apprentice. |
-| The cabinet is where all the White House booze is stored. |
-| The Ching-Chong Ding-Dong Foundation for Sensitivity to Orientals or Whatever. |
-| The crushing of your enemies while seeing them driven before you while their women lament in foreign dialects. |
-| The cutest ponytail that sways with a wiggle when she walks. |
-| The day the world ends: November 8, 2016. |
-| The end of the world. |
-| The entire continent of Africa. |
+| Stupid F e ch acce ts a d the people attached to them. |
+| Sui g Hilla y Cli to  fo  bei g a woma . |
+| Suspicious white powde . |
+| Tampo  taxes. |
+| Ted C uz's booge . |
+| Ted C uz's tightly cle ched a us. |
+| Tha ksgivi g comi g out pa ty. |
+| Tha ksgivi g with Al Sha pto . |
+| That oddly c eepy guy at you  wo k. |
+| The 2016 p eside tial electio . |
+| The App e tice. |
+| The cabi et is whe e all the White House booze is sto ed. |
+| The Chi g-Cho g Di g-Do g Fou datio  fo  Se sitivity to O ie tals o  Whateve . |
+| The c ushi g of you  e emies while seei g them d ive  befo e you while thei  wome  lame t i  fo eig  dialects. |
+| The cutest po ytail that sways with a wiggle whe  she walks. |
+| The day the wo ld e ds: Novembe  8, 2016. |
+| The e d of the wo ld. |
+| The e ti e co ti e t of Af ica. |
 | The LCBO |
-| The liberal media machine. |
-| The moon landing. |
-| The person sitting to my right. |
-| The pregnant monster known as my wife. |
-| The start of US dictatorship. |
-| The thing I'm hiding in my basement. |
-| The ugly Olsen twin. |
-| The Ultimate TRUMP Card |
-| The Ultimate Yule LogPlay this card and win the round.The gift that keeps on giving. |
-| The United States, a dumping ground for everyone else's problems. |
-| The voices inside my head. |
-| The world's biggest publicity stunt ever. |
-| The world's Largest brain never used. |
-| This week's mass shooting. |
-| Tom Brady's under-inflated balls. |
-| Tom, I mean Ted, Cruz. |
-| Trump Taj Mahal. |
-| Trump's failed businesses. |
-| Trump's future wives. |
-| Trump's hair wearing a suicide vest. |
-| Trump's online store for Presidential wear. |
-| Trump's spray tanned asshole. |
-| Unintentional homoeroticism. |
-| Unrealistic expectations. |
-| US exodus into Canada. |
-| Vaccines that cause autism. |
-| Vladimir Putin's left testicle. |
-| Vladimir Putin's left testicle. |
-| Watching your child slowly die because you were too upper middle class to vaccinate them. |
-| Waving a gun around in a bank. |
+| The libe al media machi e. |
+| The moo  la di g. |
+| The pe so  sitti g to my  ight. |
+| The p eg a t mo ste  k ow  as my wife. |
+| The sta t of US dictato ship. |
+| The thi g I'm hidi g i  my baseme t. |
+| The ugly Olse  twi . |
+| The Ultimate TRUMP Ca d |
+| The Ultimate Yule Log
+Play this ca d a d wi  the  ou d.
+The gift that keeps o  givi g. |
+| The U ited States, a dumpi g g ou d fo  eve yo e else's p oblems. |
+| The voices i side my head. |
+| The wo ld's biggest publicity stu t eve . |
+| The wo ld's La gest b ai   eve  used. |
+| This week's mass shooti g. |
+| Tom B ady's u de -i flated balls. |
+| Tom, I mea  Ted, C uz. |
+| T ump Taj Mahal. |
+| T ump's failed busi esses. |
+| T ump's futu e wives. |
+| T ump's hai  wea i g a suicide vest. |
+| T ump's o li e sto e fo  P eside tial wea . |
+| T ump's sp ay ta ed asshole. |
+| U i te tio al homoe oticism. |
+| U ealistic expectatio s. |
+| US exodus i to Ca ada. |
+| Vacci es that cause autism. |
+| Vladimi  Puti 's left testicle. |
+| Vladimi  Puti 's left testicle. |
+| Watchi g you  child slowly die because you we e too uppe  middle class to vacci ate them. |
+| Wavi g a gu  a ou d i  a ba k. |
 | What's his face? |
-| Wheelchair death race. |
-| White dreams - never black and white. |
-| White Rosa Parks. |
-| Working at Hawley Lane shoes and having a foot fetish. |
-| Yelling "Jenga!" while watching footage from 9/11. |
+| Wheelchai  death  ace. |
+| White d eams -  eve  black a d white. |
+| White Rosa Pa ks. |
+| Wo ki g at Hawley La e shoes a d havi g a foot fetish. |
+| Yelli g "Je ga!" while watchi g footage f om 9/11. |
 
 |Total amount: 200|
 |---|

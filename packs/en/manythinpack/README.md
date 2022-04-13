@@ -6,9 +6,9 @@ Answers amount: 144
 ### Questions
 | Question | Amount of answers |
 |---|---|
-| Coming up on Turner Classic Movies:Sean Connery and Alec Baldwin star in "The Hunt for _." | 1 |
-| FW: re:FBI WARNING!!! VIOLENT GANGS USING _ TO RECRUIT CHILDREN! | 1 |
-| Hey, kids.I'm Connor's dad, but you can call me Mr. _. | 1 |
+| Coming up on Turner Classic Movies: Sean Connery and Alec Baldwin star in "The Hunt for _." | 1 |
+| FW: re: FBI WARNING!!! VIOLENT GANGS USING _ TO RECRUIT CHILDREN! | 1 |
+| Hey, kids. I'm Connor's dad, but you can call me Mr. _. | 1 |
 | So apparently Dad was searching Pornhub for "hot milf _." | 1 |
 | Whaddya think, money grows on trees? I'm not paying for _! | 1 |
 | Young lady, you better knock it off with _ or you're grounded! | 1 |
@@ -47,152 +47,152 @@ Answers amount: 144
 |---|
 
 ### Answers
-| Question |
+| Answers |
 |---|
-| A positive male role model. |
-| Coaching the 7th grade girls basketball team. |
-| Dad coming home drunk. |
-| Dad's big sex night. |
+| A positive male  ole model. |
+| Coachi g the 7th g ade gi ls basketball team. |
+| Dad comi g home d u k. |
+| Dad's big sex  ight. |
 | Dad's famous chili. |
-| Divorce. |
-| Dolby® Digital Surround Sound. |
-| Emotional unavailability. |
-| Finding a place to sit down. |
-| Flirting with the ladies at the bank. |
-| Forty-two years of repressed homosexuality. |
-| Going bald. |
-| Having a bunch of kids by accident. |
-| Having a heart attack. |
-| Kidnapping Liam Neeson's daughter. |
-| Making the printer work. |
-| Puns. |
-| Sitting on the toilet for 45 minutes. |
-| Standing in the middle of the living room holding two remote controls. |
-| Stealing a child's nose and keeping it forever. |
-| The nipples of a man. |
-| The son of a bitch who knocked up my daughter. |
-| Tripping on an object and becoming angry. |
+| Divo ce. |
+| Dolby® Digital Su ou d Sou d. |
+| Emotio al u availability. |
+| Fi di g a place to sit dow . |
+| Fli ti g with the ladies at the ba k. |
+| Fo ty-two yea s of  ep essed homosexuality. |
+| Goi g bald. |
+| Havi g a bu ch of kids by accide t. |
+| Havi g a hea t attack. |
+| Kid appi g Liam Neeso 's daughte . |
+| Maki g the p i te  wo k. |
+| Pu s. |
+| Sitti g o  the toilet fo  45 mi utes. |
+| Sta di g i  the middle of the livi g  oom holdi g two  emote co t ols. |
+| Steali g a child's  ose a d keepi g it fo eve . |
+| The  ipples of a ma . |
+| The so  of a bitch who k ocked up my daughte . |
+| T ippi g o  a  object a d becomi g a g y. |
 | What Dad has to say about Muslims. |
-| A belly full of hard-boiled eggs. |
-| A joyless vegan party. |
-| A sobering quantity of chili cheese fries. |
-| A table for one at The Cheesecake Factory. |
-| Being emotionally and physically dominated by Gordon Ramsay. |
-| Clamping down on a gazelle's jugular and tasting its warm life waters. |
-| Committing suicide at the Old Country Buffet. |
+| A belly full of ha d-boiled eggs. |
+| A joyless vega  pa ty. |
+| A sobe i g qua tity of chili cheese f ies. |
+| A table fo  o e at The Cheesecake Facto y. |
+| Bei g emotio ally a d physically domi ated by Go do  Ramsay. |
+| Clampi g dow  o  a gazelle's jugula  a d tasti g its wa m life wate s. |
+| Committi g suicide at the Old Cou t y Buffet. |
 | Faulty UIDs. |
-| Going vegetarian and feeling so great all the time. |
-| Jizz Twinkies. |
-| Kale farts. |
-| Kevin Bacon Bits. |
-| Licking the cake batter off of grandma's fingers. |
-| Not knowing what to believe anymore about butter. |
-| Oreos for dinner. |
-| Real cheese flavor. |
+| Goi g vegeta ia  a d feeli g so g eat all the time. |
+| Jizz Twi kies. |
+| Kale fa ts. |
+| Kevi  Baco  Bits. |
+| Licki g the cake batte  off of g a dma's fi ge s. |
+| Not k owi g what to believe a ymo e about butte . |
+| O eos fo  di e . |
+| Real cheese flavo . |
 | Soup. |
-| Sucking down thousands of pounds of krill every day. |
-| Swishing the wine around and sniffing it like a big fancy man. |
-| The Dial-A-Slice Apple Divider from Williams-Sonoma. |
-| The Hellman's Mayonnaise Corporation. |
-| The hot dog I put in my vagina ten days ago. |
-| The inaudible screams of carrots. |
-| What to do with all of this chocolate on my penis. |
-| 30 shirtless bears emerging from the fog. |
-| A 6-hour conversation on gender and queer theory. |
-| A big black dick strapped to a frail white body. |
-| A genderless hole. |
-| A messy bitch who lives for drama. |
-| A Subaru. |
-| A twink in a bounce house. |
-| All the different kinds of lesbians. |
-| Black, white, Puerto Rican, and Chinese boys. |
-| Britney, bitch! |
-| Getting your ass ate. |
-| Having your titties sucked while sucking on titties. |
-| Licking that pussy right. |
-| Marsha P. Johnson, the trans woman of color who may have thrown the first brick at Stonewall. |
-| Older fitness gays. |
-| Peeing in a bathroom. |
-| Poppers and lube. |
-| PrEP. |
-| Repeatedly coming out as bisexual. |
-| Talking, laughing, loving, breathing, fighting, fucking, crying, drinking, riding, winning, losing, cheating, kissing, thinking, dreaming. |
-| Telling Heather she can't pull off that top. |
-| The careless cunt who left a water ring on my credenza. |
-| The pan-ethnic, gender-fluid children of the future. |
-| Those cheekbones, honey. |
-| Whatever straight people do for fun. |
-| [A picture of Sean Connery in the movie Zardoz] |
-| A hazmat suit full of farts. |
-| A misty room full of glistening egg sacs. |
-| A planet-devouring space worm named Rachel. |
-| A protagonist with no qualities. |
-| An alternate history where Hitler was gay but he still killed all those people. |
+| Sucki g dow  thousa ds of pou ds of k ill eve y day. |
+| Swishi g the wi e a ou d a d s iffi g it like a big fa cy ma . |
+| The Dial-A-Slice Apple Divide  f om Williams-So oma. |
+| The Hellma 's Mayo aise Co po atio . |
+| The hot dog I put i  my vagi a te  days ago. |
+| The i audible sc eams of ca ots. |
+| What to do with all of this chocolate o  my pe is. |
+| 30 shi tless bea s eme gi g f om the fog. |
+| A 6-hou  co ve satio  o  ge de  a d quee  theo y. |
+| A big black dick st apped to a f ail white body. |
+| A ge de less hole. |
+| A messy bitch who lives fo  d ama. |
+| A Suba u. |
+| A twi k i  a bou ce house. |
+| All the diffe e t ki ds of lesbia s. |
+| Black, white, Pue to Rica , a d Chi ese boys. |
+| B it ey, bitch! |
+| Getti g you  ass ate. |
+| Havi g you  titties sucked while sucki g o  titties. |
+| Licki g that pussy  ight. |
+| Ma sha P. Joh so , the t a s woma  of colo  who may have th ow  the fi st b ick at Sto ewall. |
+| Olde  fit ess gays. |
+| Peei g i  a bath oom. |
+| Poppe s a d lube. |
+| P EP. |
+| Repeatedly comi g out as bisexual. |
+| Talki g, laughi g, lovi g, b eathi g, fighti g, fucki g, c yi g, d i ki g,  idi g, wi i g, losi g, cheati g, kissi g, thi ki g, d eami g. |
+| Telli g Heathe  she ca 't pull off that top. |
+| The ca eless cu t who left a wate   i g o  my c ede za. |
+| The pa -eth ic, ge de -fluid child e  of the futu e. |
+| Those cheekbo es, ho ey. |
+| Whateve  st aight people do fo  fu . |
+| [A pictu e of Sea  Co e y i  the movie Za doz] |
+| A hazmat suit full of fa ts. |
+| A misty  oom full of gliste i g egg sacs. |
+| A pla et-devou i g space wo m  amed Rachel. |
+| A p otago ist with  o qualities. |
+| A  alte ate histo y whe e Hitle  was gay but he still killed all those people. |
 | Beep beep boop beep boop. |
-| Cheerful blowjob robots. |
-| Cosmic bowling. |
-| Darmok and Jalad at Tanagra. |
-| Frantically writing equations on a chalkboard. |
-| Funkified aliens from the planet Groovius. |
-| Going too far with science and bad things happening. |
-| How great of a movie Men In Black was. |
-| Laying thousands of eggs in a man's colon. |
-| Masturbating Yoda's leathery turtle-penis. |
-| Nine seasons of sexual tension with David Duchovny. |
-| That girl from the Hunger Games. |
-| The dystopia we're living in right now. |
-| The ending of Lost. |
-| Three boobs. |
-| Trimming the poop out of Chewbacca's butt hair. |
-| Vulcan sex-madness. |
-| 3.7 billion years of evolution. |
-| A 0.7 waist-to-hip ratio. |
-| A supermassive black hole. |
-| Achieving reproductive success. |
-| Being knowledgeable in a narrow domain that nobody understands or cares about. |
-| David Attenborough watching us mate. |
-| Developing secondary sex characteristics. |
-| Driving into a tornado to learn about tornadoes. |
-| Electroejaculating a capuchin monkey. |
-| Evolving a labyrinthine vagina. |
-| Explosive decompression. |
-| Failing the Turing test. |
-| Fun and interesting facts about rocks. |
-| Getting really worried about global warming for a few seconds. |
-| Infinity. |
-| Insufficient serotonin. |
-| Oxytocin release via manual stimulation of the nipples. |
-| Photosynthesis. |
-| Reconciling quantum theory with general relativity. |
-| Slowly evaporating. |
-| The quiet majesty of the sea turtle. |
-| The Sun engulfing the Earth. |
-| Urban legends |
-| A bong rip so massive it restores justice to the kingdom. |
-| A sandwich with Cheetos in it! |
-| A whole cheese pizza just for me. |
-| An eight-foot man smoking a six-foot bong. |
-| Ancient aliens. |
-| Being too high for airplane. |
-| Cheese crunchies. |
-| Dank ass cancer weed. |
-| Dicking around on the guitar for an hour. |
-| Dropping stuff and knocking everything over. |
-| Eating all the skin off a rotisserie chicken. |
-| Forgetting to breathe and then dying. |
-| Getting high and watching Planet Earth. |
-| Grinning like an idiot. |
+| Chee ful blowjob  obots. |
+| Cosmic bowli g. |
+| Da mok a d Jalad at Ta ag a. |
+| F a tically w iti g equatio s o  a chalkboa d. |
+| Fu kified alie s f om the pla et G oovius. |
+| Goi g too fa  with scie ce a d bad thi gs happe i g. |
+| How g eat of a movie Me  I  Black was. |
+| Layi g thousa ds of eggs i  a ma 's colo . |
+| Mastu bati g Yoda's leathe y tu tle-pe is. |
+| Ni e seaso s of sexual te sio  with David Duchov y. |
+| That gi l f om the Hu ge  Games. |
+| The dystopia we' e livi g i   ight  ow. |
+| The e di g of Lost. |
+| Th ee boobs. |
+| T immi g the poop out of Chewbacca's butt hai . |
+| Vulca  sex-mad ess. |
+| 3.7 billio  yea s of evolutio . |
+| A 0.7 waist-to-hip  atio. |
+| A supe massive black hole. |
+| Achievi g  ep oductive success. |
+| Bei g k owledgeable i  a  a ow domai  that  obody u de sta ds o  ca es about. |
+| David Atte bo ough watchi g us mate. |
+| Developi g seco da y sex cha acte istics. |
+| D ivi g i to a to ado to lea  about to adoes. |
+| Elect oejaculati g a capuchi  mo key. |
+| Evolvi g a laby i thi e vagi a. |
+| Explosive decomp essio . |
+| Faili g the Tu i g test. |
+| Fu  a d i te esti g facts about  ocks. |
+| Getti g  eally wo ied about global wa mi g fo  a few seco ds. |
+| I fi ity. |
+| I sufficie t se oto i . |
+| Oxytoci   elease via ma ual stimulatio  of the  ipples. |
+| Photosy thesis. |
+| Reco cili g qua tum theo y with ge e al  elativity. |
+| Slowly evapo ati g. |
+| The quiet majesty of the sea tu tle. |
+| The Su  e gulfi g the Ea th. |
+| U ba  lege ds |
+| A bo g  ip so massive it  esto es justice to the ki gdom. |
+| A sa dwich with Cheetos i  it! |
+| A whole cheese pizza just fo  me. |
+| A  eight-foot ma  smoki g a six-foot bo g. |
+| A cie t alie s. |
+| Bei g too high fo  ai pla e. |
+| Cheese c u chies. |
+| Da k ass ca ce  weed. |
+| Dicki g a ou d o  the guita  fo  a  hou . |
+| D oppi g stuff a d k ocki g eve ythi g ove . |
+| Eati g all the ski  off a  otisse ie chicke . |
+| Fo getti g to b eathe a d the  dyi g. |
+| Getti g high a d watchi g Pla et Ea th. |
+| G i i g like a  idiot. |
 | Hot tub. |
-| How bright the sun is. |
-| Huge popcorn nugs of hairy alien weed. |
-| My own fingers. |
-| Smoking a blunt butt-ass naked. |
-| Smoking a joint with former President Barack Obama. |
-| Snoop Dogg. |
-| The banks, the media, the entire system, man. |
+| How b ight the su  is. |
+| Huge popco   ugs of hai y alie  weed. |
+| My ow  fi ge s. |
+| Smoki g a blu t butt-ass  aked. |
+| Smoki g a joi t with fo me  P eside t Ba ack Obama. |
+| S oop Dogg. |
+| The ba ks, the media, the e ti e system, ma . |
 | Too much edibles. |
-| Unbelievably soft carpet. |
-| Whatever the fuck I was just talking about. |
+| U believably soft ca pet. |
+| Whateve  the fuck I was just talki g about. |
 
 |Total amount: 144|
 |---|

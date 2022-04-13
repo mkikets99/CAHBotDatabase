@@ -154,669 +154,669 @@ Answers amount: 661
 |---|
 
 ### Answers
-| Question |
+| Answers |
 |---|
-| A baby dressed as the Pope, |
-| A blinged out consecration bracelet. |
-| A camel trying to fit through the eye of the needle. |
-| A chatty cloistered nun. |
-| A Christian fish tattoo. |
-| A Church coordinator that rules with an iron fist. |
-| A church with a broken air conditioner. |
-| A dating fast. |
-| A fig tree. |
-| A friend who only prays in Latin. |
-| A glow in the dark Rosary. |
-| A grumpy spiritual director. |
-| A homeschool conference. |
-| A homily that goes on forever. |
-| A humongous scapu;ar. |
-| A lazy sacristan. |
+| A baby d essed as the Pope, |
+| A bli ged out co sec atio  b acelet. |
+| A camel t yi g to fit th ough the eye of the  eedle. |
+| A chatty cloiste ed  u . |
+| A Ch istia  fish tattoo. |
+| A Chu ch coo di ato  that  ules with a  i o  fist. |
+| A chu ch with a b oke  ai  co ditio e . |
+| A dati g fast. |
+| A fig t ee. |
+| A f ie d who o ly p ays i  Lati . |
+| A glow i  the da k Rosa y. |
+| A g umpy spi itual di ecto . |
+| A homeschool co fe e ce. |
+| A homily that goes o  fo eve . |
+| A humo gous scapu;a . |
+| A lazy sac ista . |
 | A Mama's boy. |
-| A Mass themed tie for Dad. |
-| A mom who prays to St. Jude for her child. |
-| A nun who gives massages. |
-| A poorly made Christian movie. |
-| A prayer bouquet. |
-| A private audience with the Pope. |
-| A rich Franciscan. |
-| A semester in Rome. |
-| A short penance. |
-| A silent retreat. |
-| A spiffy new cardigan. |
-| A super mode3st wedding dress. |
-| A technicolor coat. |
-| A thumbs up from St. Catherine of Siena. |
-| A vow of poverty. |
-| A walking Rosary. |
-| Abrahams facial reaction learning he has to circumcies himself. |
-| ABU fabric purses that are equal parts shame and embarrassment. |
-| Accidentally doing the Sign of the Cross before a meeting at work. |
-| Accidentally licking the priest's thumb. |
-| Adam and Eve's wardrobe. |
-| Adding a new icon to the collection. |
-| Adventures in Odyssey. |
-| An American saint. |
-| An ATM at the back of the church. |
-| An energetic church band. |
-| An extra long confession. |
-| An incorruptable pinky toe. |
-| An overcrowded Chapel. |
-| Anthony Hopkins. |
-| Arguing about when the 12 days of Christmas actually occur. |
-| Avoiding eye contact with the person with the collection basket. |
-| Avoiding the sick during the sign of peace. |
-| Baby Moses floating down the Nile. |
-| Beautiful European churches. |
-| Being a fish during the parting of the Red Sea. |
-| Being afraid of snakes. |
-| Being allergic to incense. |
-| Being devoured by lions. |
-| Being first in line to board Noah's Ark. |
-| Being holier than thou. |
-| Being in 6 weddings in one year. |
-| Being in the state of Grace. |
-| Being jealous of those that know more Bible verses. |
-| Being married with 11 kids. |
-| Being named John Paul along with every other boy in the class. |
-| Being obsessed with babies. |
-| Being one flesh. |
-| Being the oldest of 9. |
-| Being the only person in the choir under 65. |
-| Being too of the world. |
-| Bishop Robert Barron. |
-| Blaming Eve. |
-| Blaring trumpets. |
-| Blessed is She brunch. |
+| A Mass themed tie fo  Dad. |
+| A mom who p ays to St. Jude fo  he  child. |
+| A  u  who gives massages. |
+| A poo ly made Ch istia  movie. |
+| A p aye  bouquet. |
+| A p ivate audie ce with the Pope. |
+| A  ich F a cisca . |
+| A semeste  i  Rome. |
+| A sho t pe a ce. |
+| A sile t  et eat. |
+| A spiffy  ew ca diga . |
+| A supe  mode3st weddi g d ess. |
+| A tech icolo  coat. |
+| A thumbs up f om St. Cathe i e of Sie a. |
+| A vow of pove ty. |
+| A walki g Rosa y. |
+| Ab ahams facial  eactio  lea i g he has to ci cumcies himself. |
+| ABU fab ic pu ses that a e equal pa ts shame a d emba assme t. |
+| Accide tally doi g the Sig  of the C oss befo e a meeti g at wo k. |
+| Accide tally licki g the p iest's thumb. |
+| Adam a d Eve's wa d obe. |
+| Addi g a  ew ico  to the collectio . |
+| Adve tu es i  Odyssey. |
+| A  Ame ica  sai t. |
+| A  ATM at the back of the chu ch. |
+| A  e e getic chu ch ba d. |
+| A  ext a lo g co fessio . |
+| A  i co uptable pi ky toe. |
+| A  ove c owded Chapel. |
+| A tho y Hopki s. |
+| A gui g about whe  the 12 days of Ch istmas actually occu . |
+| Avoidi g eye co tact with the pe so  with the collectio  basket. |
+| Avoidi g the sick du i g the sig  of peace. |
+| Baby Moses floati g dow  the Nile. |
+| Beautiful Eu opea  chu ches. |
+| Bei g a fish du i g the pa ti g of the Red Sea. |
+| Bei g af aid of s akes. |
+| Bei g alle gic to i ce se. |
+| Bei g devou ed by lio s. |
+| Bei g fi st i  li e to boa d Noah's A k. |
+| Bei g holie  tha  thou. |
+| Bei g i  6 weddi gs i  o e yea . |
+| Bei g i  the state of G ace. |
+| Bei g jealous of those that k ow mo e Bible ve ses. |
+| Bei g ma ied with 11 kids. |
+| Bei g  amed Joh  Paul alo g with eve y othe  boy i  the class. |
+| Bei g obsessed with babies. |
+| Bei g o e flesh. |
+| Bei g the oldest of 9. |
+| Bei g the o ly pe so  i  the choi  u de  65. |
+| Bei g too of the wo ld. |
+| Bishop Robe t Ba o . |
+| Blami g Eve. |
+| Bla i g t umpets. |
+| Blessed is She b u ch. |
 | Bob the tomato. |
-| Braided hair. |
-| Breathing on my friends. |
-| Bringing  a sword to the earth. |
-| Canonization. |
-| Carpentry. |
-| Casually having a wall of crucifixes as decoration. |
+| B aided hai . |
+| B eathi g o  my f ie ds. |
+| B i gi g  a swo d to the ea th. |
+| Ca o izatio . |
+| Ca pe t y. |
+| Casually havi g a wall of c ucifixes as deco atio . |
 | Catholic memes. |
-| Catholic school uniforms. |
+| Catholic school u ifo ms. |
 | Catholic School. |
 | CatholicMatch® |
-| Causing scandal to pious ears. |
-| Chalice chippers. |
-| Chanting during Mass. |
-| Chewing gum before Mass. |
-| Christian rap. |
-| Christmas and Easter Catholics. |
-| Circumcisior. |
-| Cold baptismal water. |
-| Confirmation season. |
-| Constantly being pregnant. |
-| Consummation. |
-| Craving Church wine. |
-| Credit scores above 700. |
-| Crushing on the Youth Minister. |
-| Crying kids in Church. |
-| Cutting of the guard's ear. |
+| Causi g sca dal to pious ea s. |
+| Chalice chippe s. |
+| Cha ti g du i g Mass. |
+| Chewi g gum befo e Mass. |
+| Ch istia   ap. |
+| Ch istmas a d Easte  Catholics. |
+| Ci cumcisio . |
+| Cold baptismal wate . |
+| Co fi matio  seaso . |
+| Co sta tly bei g p eg a t. |
+| Co summatio . |
+| C avi g Chu ch wi e. |
+| C edit sco es above 700. |
+| C ushi g o  the Youth Mi iste . |
+| C yi g kids i  Chu ch. |
+| Cutti g of the gua d's ea . |
 | Daily Mass at 6:30 am. |
-| Daniel in the lion's den. |
-| Denial. |
-| Descartes. |
+| Da iel i  the lio 's de . |
+| De ial. |
+| Desca tes. |
 | Deus Vult! |
-| Dipping out after Communion. |
-| Donut Sunday. |
-| Drinking beer. |
-| Driving a Fiat. |
-| Dropping out of seminary. |
-| Dropping the Host. |
-| Dying but miraculously getting brought back to life. |
-| Eating a slice of humble pie after reading the life of any saint. |
-| Eating bacon. |
-| Ending emails with a Latin sign-off. |
-| Ephesians 5. |
-| Exorcism. |
-| Falling asleep in the Chapel. |
-| Fasting. |
-| Fearing the Jews. |
-| Feeling holy with a Bible app on my phone. |
-| Finding the perfect first communion gown. |
-| Fish fries in the basement. |
-| Fishers of men. |
-| Flipping tables. |
-| Flirting in Catechism class. |
-| Floating during prayer. |
-| FOCUS missionaries. |
-| Forgetting about the Novena on day 4. |
-| Forgetting it's Friday right after the first bite of the burger. |
-| Forgetting the words to the Apostle's Creed. |
-| Fr. Mike Schmitz. |
-| Friar Tuck. |
-| Gandalf's perfectly shaped eyebrows. |
-| Genuflecting at the movie theater. |
-| George Bailey's wonderful life. |
-| Getting a new Bible. |
-| Getting food poisoning after a seder meal. |
-| Getting married at 21. |
-| Getting my foot caught under the kneeler. |
-| Getting my MRS degree. |
-| Getting slain by the Spirit. |
-| Getting that "ring by spring." |
-| Getting to the tomb first. |
-| Giving up chocolate for Lent. |
-| Glooooooooooooooooooooria. |
-| Gluten free Communion. |
-| Going on a mission trip. |
-| Gregorian Chant. |
-| Gregory Peck. |
-| Haivng the goal of martyrdom. |
-| Having 147 prayer cards that I just can't throw away. |
-| Having a day as bad as Tobit's. |
-| Having a minor in Catholic Studies. |
-| Having no one to shake hands with at the sign of peace. |
-| Having too many Nativity sets. |
-| Having visions. |
-| Henry the Eighth's wives. |
+| Dippi g out afte  Commu io . |
+| Do ut Su day. |
+| D i ki g bee . |
+| D ivi g a Fiat. |
+| D oppi g out of semi a y. |
+| D oppi g the Host. |
+| Dyi g but mi aculously getti g b ought back to life. |
+| Eati g a slice of humble pie afte   eadi g the life of a y sai t. |
+| Eati g baco . |
+| E di g emails with a Lati  sig -off. |
+| Ephesia s 5. |
+| Exo cism. |
+| Falli g asleep i  the Chapel. |
+| Fasti g. |
+| Fea i g the Jews. |
+| Feeli g holy with a Bible app o  my pho e. |
+| Fi di g the pe fect fi st commu io  gow . |
+| Fish f ies i  the baseme t. |
+| Fishe s of me . |
+| Flippi g tables. |
+| Fli ti g i  Catechism class. |
+| Floati g du i g p aye . |
+| FOCUS missio a ies. |
+| Fo getti g about the Nove a o  day 4. |
+| Fo getti g it's F iday  ight afte  the fi st bite of the bu ge . |
+| Fo getti g the wo ds to the Apostle's C eed. |
+| F . Mike Schmitz. |
+| F ia  Tuck. |
+| Ga dalf's pe fectly shaped eyeb ows. |
+| Ge uflecti g at the movie theate . |
+| Geo ge Bailey's wo de ful life. |
+| Getti g a  ew Bible. |
+| Getti g food poiso i g afte  a sede  meal. |
+| Getti g ma ied at 21. |
+| Getti g my foot caught u de  the k eele . |
+| Getti g my MRS deg ee. |
+| Getti g slai  by the Spi it. |
+| Getti g that " i g by sp i g." |
+| Getti g to the tomb fi st. |
+| Givi g up chocolate fo  Le t. |
+| Gloooooooooooooooooooo ia. |
+| Glute  f ee Commu io . |
+| Goi g o  a missio  t ip. |
+| G ego ia  Cha t. |
+| G ego y Peck. |
+| Haiv g the goal of ma ty dom. |
+| Havi g 147 p aye  ca ds that I just ca 't th ow away. |
+| Havi g a day as bad as Tobit's. |
+| Havi g a mi o  i  Catholic Studies. |
+| Havi g  o o e to shake ha ds with at the sig  of peace. |
+| Havi g too ma y Nativity sets. |
+| Havi g visio s. |
+| He y the Eighth's wives. |
 | HERESY! |
-| High water pants. |
-| Holding hands with my crush during the Lord's prayer. |
-| Holy tax collectors. |
-| Hunting for a wife. |
-| Identifying too closely to young St. Augustine. |
-| Inappropriate applause during Mass. |
-| Invoking St. Anthony Every morning to find the keys. |
-| Invoking St. Joseph of Cupertino rather than studying. |
-| Isaac bargaining with Abraham to scrifice other things. |
-| Jason and Crystalina Evert. |
-| Jean skirts. |
+| High wate  pa ts. |
+| Holdi g ha ds with my c ush du i g the Lo d's p aye . |
+| Holy tax collecto s. |
+| Hu ti g fo  a wife. |
+| Ide tifyi g too closely to you g St. Augusti e. |
+| I app op iate applause du i g Mass. |
+| I voki g St. A tho y Eve y mo i g to fi d the keys. |
+| I voki g St. Joseph of Cupe ti o  athe  tha  studyi g. |
+| Isaac ba gai i g with Ab aham to sc ifice othe  thi gs. |
+| Jaso  a d C ystali a Eve t. |
+| Jea  ski ts. |
 | Jesuits. |
-| Jesus taking the wheel. |
+| Jesus taki g the wheel. |
 | Jim Caviezel. |
-| John 3:16. |
-| John Paul the Great Catholic University. |
-| Josephite marriage. |
-| Kneeling to receive communion making everyone else feel interior. |
-| Knowing all the lines of The Lord of the Rings movies. |
-| Knowing all the words of Silly Songs with Larry. |
-| Knowing the newlyweds are no longer virgins. |
-| Knowing the sign language of Jesus Loves Me. |
-| Lazarus. |
-| Leaving Mass early to watch the football game. |
-| Leaving my mother and father and clinging to my wife. |
-| Leaving room for the Holy Spirit. |
-| Life Teen. |
-| Listening to Matt Maher. |
-| Literally having a log in my eye. |
-| Little Cathiolic bookstores. |
-| Liturgical dancing. |
-| Liturgy of the hours. |
-| Living at my parent's house until marriage. |
-| Living by the motto "modset is bottest." |
-| Living in Community. |
-| Living on a missionary budget. |
-| Living under a rock. |
-| Looking like an old baseball mitt. |
-| Losing a WWJD bracelet and knowing that Jesus wouldn't have done that. |
-| Losing count on my decade of the Rosary. |
-| Loudly dropping the pew. |
-| Making $5/hr as a babysitter. |
-| Making a public confession. |
-| Making cord Rosaries. |
-| Making sure everyone knows about the Cross I bear. |
-| Marian consecration. |
-| Mark Wahlberg. |
-| Mass lasting longer than an hour. |
-| Mean people |
-| Meeting the mother of the woman of my dreams. |
-| Minivan envy. |
-| Mistakenly asking a seminarians for confession. |
-| Mom groups. |
-| Mortification. |
-| Mother Angelica. |
-| Mother's Day. |
-| Mr. Tumnus. |
-| My creepy Godfather. |
-| Naming kids after obscure saints no one's ever heard of. |
-| Naming my grill St. Lawrence. |
-| Naming twins Cain and Abel and wondering how it will turn out. |
-| Natural Family Planning. |
-| Needing a bigger cell phone family plan. |
-| Neing trapped in the belly of a whale. |
-| No intervisitation in college dorms. |
-| Not being able to hear the Sermon on the Mount. |
-| Not being allowed to go Trick-or-Treating. |
-| Not being an animal person at the parish pet blessing. |
-| Not dating within the youth group. |
-| Not drinking the wine because of germs. |
-| Not focusing during a Rosary. |
-| Not getting exactly what I pray for. |
-| Not having extra cash for the second collection. |
-| Not knowing if I should hug during the sign of peace. |
-| Not knowing the words of Praise and Worship songs. |
-| Not wanting to be a lamb around Passover. |
-| Offering it up. |
-| Pagans. |
-| Pancake breakfasts. |
-| Passover. |
-| Paul Ryan. |
+| Joh  3:16. |
+| Joh  Paul the G eat Catholic U ive sity. |
+| Josephite ma iage. |
+| K eeli g to  eceive commu io  maki g eve yo e else feel i te io . |
+| K owi g all the li es of The Lo d of the Ri gs movies. |
+| K owi g all the wo ds of Silly So gs with La y. |
+| K owi g the  ewlyweds a e  o lo ge  vi gi s. |
+| K owi g the sig  la guage of Jesus Loves Me. |
+| Laza us. |
+| Leavi g Mass ea ly to watch the football game. |
+| Leavi g my mothe  a d fathe  a d cli gi g to my wife. |
+| Leavi g  oom fo  the Holy Spi it. |
+| Life Tee . |
+| Liste i g to Matt Mahe . |
+| Lite ally havi g a log i  my eye. |
+| Little Cathiolic booksto es. |
+| Litu gical da ci g. |
+| Litu gy of the hou s. |
+| Livi g at my pa e t's house u til ma iage. |
+| Livi g by the motto "modset is bottest." |
+| Livi g i  Commu ity. |
+| Livi g o  a missio a y budget. |
+| Livi g u de  a  ock. |
+| Looki g like a  old baseball mitt. |
+| Losi g a WWJD b acelet a d k owi g that Jesus would 't have do e that. |
+| Losi g cou t o  my decade of the Rosa y. |
+| Loudly d oppi g the pew. |
+| Maki g $5/h  as a babysitte . |
+| Maki g a public co fessio . |
+| Maki g co d Rosa ies. |
+| Maki g su e eve yo e k ows about the C oss I bea . |
+| Ma ia  co sec atio . |
+| Ma k Wahlbe g. |
+| Mass lasti g lo ge  tha  a  hou . |
+| Mea  people |
+| Meeti g the mothe  of the woma  of my d eams. |
+| Mi iva  e vy. |
+| Mistake ly aski g a semi a ia s fo  co fessio . |
+| Mom g oups. |
+| Mo tificatio . |
+| Mothe  A gelica. |
+| Mothe 's Day. |
+| M . Tum us. |
+| My c eepy Godfathe . |
+| Nami g kids afte  obscu e sai ts  o o e's eve  hea d of. |
+| Nami g my g ill St. Law e ce. |
+| Nami g twi s Cai  a d Abel a d wo de i g how it will tu  out. |
+| Natu al Family Pla i g. |
+| Needi g a bigge  cell pho e family pla . |
+| Nei g t apped i  the belly of a whale. |
+| No i te visitatio  i  college do ms. |
+| Not bei g able to hea  the Se mo  o  the Mou t. |
+| Not bei g allowed to go T ick-o -T eati g. |
+| Not bei g a  a imal pe so  at the pa ish pet blessi g. |
+| Not dati g withi  the youth g oup. |
+| Not d i ki g the wi e because of ge ms. |
+| Not focusi g du i g a Rosa y. |
+| Not getti g exactly what I p ay fo . |
+| Not havi g ext a cash fo  the seco d collectio . |
+| Not k owi g if I should hug du i g the sig  of peace. |
+| Not k owi g the wo ds of P aise a d Wo ship so gs. |
+| Not wa ti g to be a lamb a ou d Passove . |
+| Offe i g it up. |
+| Paga s. |
+| Pa cake b eakfasts. |
+| Passove . |
+| Paul Rya . |
 | Peach fuzz. |
-| People who pray two words ahead of everyone else. |
-| Perpetual adoration. |
-| Philip Rivers. |
-| Plucking my eye out. |
-| Pope Emeritus Benedict XVI. |
-| Pope Francis. |
-| Pope memorabilia. |
-| Pope Peter's pinnacle papacy. |
-| Praying for a future spouse. |
-| Praying for an ex. |
-| Praying in tongues. |
-| Praying the Chaplet because it's shorter than a Rosary. |
-| Praying the wrong Glory Be. |
-| Praying to the saints. |
-| Preparing for the flood. |
-| Pronouncing names wrong in the Prayers of the Faithful. |
-| Providing and protecting. |
-| Punching heretics. |
-| Purgatory shortening engagements. |
-| Purity rings. |
-| Putting blood on the door because I am an Original Israelite. |
-| Raking in cash for Confirmation. |
+| People who p ay two wo ds ahead of eve yo e else. |
+| Pe petual ado atio . |
+| Philip Rive s. |
+| Plucki g my eye out. |
+| Pope Eme itus Be edict XVI. |
+| Pope F a cis. |
+| Pope memo abilia. |
+| Pope Pete 's pi acle papacy. |
+| P ayi g fo  a futu e spouse. |
+| P ayi g fo  a  ex. |
+| P ayi g i  to gues. |
+| P ayi g the Chaplet because it's sho te  tha  a Rosa y. |
+| P ayi g the w o g Glo y Be. |
+| P ayi g to the sai ts. |
+| P epa i g fo  the flood. |
+| P o ou ci g  ames w o g i  the P aye s of the Faithful. |
+| P ovidi g a d p otecti g. |
+| Pu chi g he etics. |
+| Pu gato y sho te i g e gageme ts. |
+| Pu ity  i gs. |
+| Putti g blood o  the doo  because I am a  O igi al Is aelite. |
+| Raki g i  cash fo  Co fi matio . |
 | Rameses. |
-| Reading the Song of Solomon with my parents. |
-| Realizing I left the Savior behind in the Temple. |
-| Receiving Last Rites multiple times. |
-| Referencing the Catechism |
-| Refusing to scrifice to pagan gods. |
-| Relationship milestones in the Adoration chapel. |
-| Ripping the technicolor coat. |
-| Rose scented Rosaries. |
-| Sacrilege. |
-| Salt of the earth. |
-| Saying hi to Jesus for a friend. |
-| Saying yes to the habit. |
-| Scott Hahn. |
-| Scouting the Church before I sit. |
-| Secretly loving trashy TV. |
-| Seeing a dove in Rome. |
-| Seeing a saint statue in the neighbor's yard. |
-| Seeing Adam naked for the first time. |
-| Seeing the Transfigured Jesus and deciding to build a tent. |
-| Seeing the white smoke. |
-| Selling my youngest sibling for a profit. |
-| Shaking the dust off my feet. |
-| Sheep locators for all those lost sheep. |
-| Showing off my new prayer journal. |
-| Showing up to Mass after the first reading. |
-| Sitting for the "few" announcements. |
-| Sitting in the back of the Church. |
-| Skiing with JPII. |
+| Readi g the So g of Solomo  with my pa e ts. |
+| Realizi g I left the Savio  behi d i  the Temple. |
+| Receivi g Last Rites multiple times. |
+| Refe e ci g the Catechism |
+| Refusi g to sc ifice to paga  gods. |
+| Relatio ship milesto es i  the Ado atio  chapel. |
+| Rippi g the tech icolo  coat. |
+| Rose sce ted Rosa ies. |
+| Sac ilege. |
+| Salt of the ea th. |
+| Sayi g hi to Jesus fo  a f ie d. |
+| Sayi g yes to the habit. |
+| Scott Hah . |
+| Scouti g the Chu ch befo e I sit. |
+| Sec etly lovi g t ashy TV. |
+| Seei g a dove i  Rome. |
+| Seei g a sai t statue i  the  eighbo 's ya d. |
+| Seei g Adam  aked fo  the fi st time. |
+| Seei g the T a sfigu ed Jesus a d decidi g to build a te t. |
+| Seei g the white smoke. |
+| Selli g my you gest sibli g fo  a p ofit. |
+| Shaki g the dust off my feet. |
+| Sheep locato s fo  all those lost sheep. |
+| Showi g off my  ew p aye  jou al. |
+| Showi g up to Mass afte  the fi st  eadi g. |
+| Sitti g fo  the "few" a ou ceme ts. |
+| Sitti g i  the back of the Chu ch. |
+| Skii g with JPII. |
 | Skillet. |
-| Smoking a pipe with G. K. Chesterton. |
-| Socks with Birkenstocksd. |
-| Speaking in a Scottish accent after watching Braveheart. |
-| Sports jerseys at Mass. |
-| St. Valentine's bitter attitude towards Hallmark. |
-| Standing during the Palm Sunday Gospel reading. |
-| Starting a blog. |
+| Smoki g a pipe with G. K. Cheste to . |
+| Socks with Bi ke stocksd. |
+| Speaki g i  a Scottish acce t afte  watchi g B avehea t. |
+| Spo ts je seys at Mass. |
+| St. Vale ti e's bitte  attitude towa ds Hallma k. |
+| Sta di g du i g the Palm Su day Gospel  eadi g. |
+| Sta ti g a blog. |
 | Stay at home dads. |
-| Stealing Grandma's Magnificat. |
-| Still saying "and also with you." |
-| Striving for holiness. |
-| Striving to convert the Protestant evangelists at the door. |
-| Suffocating from the incense. |
-| Sunday School. |
-| Superhero movies. |
-| Sweaty hands at the Sign of Peace. |
-| Taking full advantage of Fat Tuesday. |
-| Taking the Bible literally. |
-| Tellig personal Jesus stories. |
-| The "Friend Zone." |
-| The altar boy who can't stay awake. |
-| The attractive seminarian. |
-| The Big Bang Theory. |
+| Steali g G a dma's Mag ificat. |
+| Still sayi g "a d also with you." |
+| St ivi g fo  holi ess. |
+| St ivi g to co ve t the P otesta t eva gelists at the doo . |
+| Suffocati g f om the i ce se. |
+| Su day School. |
+| Supe he o movies. |
+| Sweaty ha ds at the Sig  of Peace. |
+| Taki g full adva tage of Fat Tuesday. |
+| Taki g the Bible lite ally. |
+| Tellig pe so al Jesus sto ies. |
+| The "F ie d Zo e." |
+| The alta  boy who ca 't stay awake. |
+| The att active semi a ia . |
+| The Big Ba g Theo y. |
 | The Book of James. |
-| The Boondock Saints. |
-| The Burning Bush. |
-| The Byzantine Rite. |
-| The Cardinal who is yearning to be Pope. |
+| The Boo dock Sai ts. |
+| The Bu i g Bush. |
+| The Byza ti e Rite. |
+| The Ca di al who is yea i g to be Pope. |
 | The catacombs. |
-| The Charismatic Renewal. |
-| The choir director who loves the sound of their own voice. |
-| The Church being represesnted accurately in the news. |
-| The crown of creation. |
-| The Crusades. |
-| The cry room at Church. |
-| The donkey wondering what on earth is happening in his manger. |
-| The extraordinary form of Mass. |
-| The fast dinner blessing. |
+| The Cha ismatic Re ewal. |
+| The choi  di ecto  who loves the sou d of thei  ow  voice. |
+| The Chu ch bei g  ep eses ted accu ately i  the  ews. |
+| The c ow  of c eatio . |
+| The C usades. |
+| The c y  oom at Chu ch. |
+| The do key wo de i g what o  ea th is happe i g i  his ma ge . |
+| The ext ao di a y fo m of Mass. |
+| The fast di e  blessi g. |
 | The Filet O'Fish™. |
-| The first Lord's day dinner with future in-laws. |
-| The flirt to convert movement. |
-| The golden calf. |
-| The Good Samaritan. |
-| The indistinguishable Ash Wednesday cross. |
-| The infectious Rosary yawn. |
-| The kid that stares at me in Mass. |
-| The King James Bible. |
-| The Last Supper. |
-| The March for Life. |
-| The narrow path. |
-| The one whom Jesus loved. |
-| The Passion of Christ. |
-| The passive-aggressive Church lady. |
+| The fi st Lo d's day di e  with futu e i -laws. |
+| The fli t to co ve t moveme t. |
+| The golde  calf. |
+| The Good Sama ita . |
+| The i disti guishable Ash Wed esday c oss. |
+| The i fectious Rosa y yaw . |
+| The kid that sta es at me i  Mass. |
+| The Ki g James Bible. |
+| The Last Suppe . |
+| The Ma ch fo  Life. |
+| The  a ow path. |
+| The o e whom Jesus loved. |
+| The Passio  of Ch ist. |
+| The passive-agg essive Chu ch lady. |
 | The Popemobile. |
-| The Prince of Egypt. |
-| The Protestant Reformation. |
-| The real father. |
-| The Resurrection. |
-| The Rock of the Church. |
-| The sacrifical giving talk during a homily. |
-| The Scarlet and the Black. |
-| The Second Vatican Council. |
+| The P i ce of Egypt. |
+| The P otesta t Refo matio . |
+| The  eal fathe . |
+| The Resu ectio . |
+| The Rock of the Chu ch. |
+| The sac ifical givi g talk du i g a homily. |
+| The Sca let a d the Black. |
+| The Seco d Vatica  Cou cil. |
 | The Sex Talk. |
-| The sin of Simony. |
+| The si  of Simo y. |
 | The statue of David. |
 | The Summa Theologica. |
-| The three wise men getting into a scuffle. |
-| The tomb of St. Peter. |
-| The Tower of Babel. |
-| The visiting priest that barely speaks English. |
-| The walls of Jericho. |
-| The woman who sings loudly out of key. |
-| The worm that ate Jonah's plant. |
+| The th ee wise me  getti g i to a scuffle. |
+| The tomb of St. Pete . |
+| The Towe  of Babel. |
+| The visiti g p iest that ba ely speaks E glish. |
+| The walls of Je icho. |
+| The woma  who si gs loudly out of key. |
+| The wo m that ate Jo ah's pla t. |
 | The youth. |
-| Theologians with beards. |
-| Theology on Tap. |
-| Thinking Brother Sun, Sister Moon was a good movie. |
-| Thinking Harry Potter is the devil. |
-| Thomas Aquinas' haircut. |
-| Tithing less than 10%. |
-| Too much holy water on my fingers. |
-| Transubstantiation. |
-| Tripping while bringing up the gifts. |
-| Trying not to stare at the Knights of Columbus feather hats. |
-| Trying to explain the Trinity. |
-| Trying to stay in the state of grace in the parking lot. |
-| Ugy Church websites. |
-| Using a big rock altar on retreat. |
-| Vacation Bible School. |
-| Val Kilmer as God. |
-| Voting got a thrid-party. |
-| Waiting for the flower after finishing the Novena to St. Therese. |
-| Waking up at 5 am to pray. |
-| Walking on water. |
-| Walking the Camino. |
-| Wandering in the desert. |
-| Wanting more descendants than stars in the sky. |
-| Wanting the birthright of the firstborn. |
-| Wanting the stigmata, but not really. |
-| Washing feet with toe fungus. |
-| Watching the Exorcist while babysitting. |
-| Weak Church coffee. |
-| Wearing so many miraculous medals it causes a headache. |
-| Whispering "sinner" at people on the street. |
-| Winning a goldfish at the church festival. |
-| Wondering where dinosaurs fit in with the Creation story. |
+| Theologia s with bea ds. |
+| Theology o  Tap. |
+| Thi ki g B othe  Su , Siste  Moo  was a good movie. |
+| Thi ki g Ha y Potte  is the devil. |
+| Thomas Aqui as' hai cut. |
+| Tithi g less tha  10%. |
+| Too much holy wate  o  my fi ge s. |
+| T a substa tiatio . |
+| T ippi g while b i gi g up the gifts. |
+| T yi g  ot to sta e at the K ights of Columbus feathe  hats. |
+| T yi g to explai  the T i ity. |
+| T yi g to stay i  the state of g ace i  the pa ki g lot. |
+| Ugy Chu ch websites. |
+| Usi g a big  ock alta  o   et eat. |
+| Vacatio  Bible School. |
+| Val Kilme  as God. |
+| Voti g got a th id-pa ty. |
+| Waiti g fo  the flowe  afte  fi ishi g the Nove a to St. The ese. |
+| Waki g up at 5 am to p ay. |
+| Walki g o  wate . |
+| Walki g the Cami o. |
+| Wa de i g i  the dese t. |
+| Wa ti g mo e desce da ts tha  sta s i  the sky. |
+| Wa ti g the bi th ight of the fi stbo . |
+| Wa ti g the stigmata, but  ot  eally. |
+| Washi g feet with toe fu gus. |
+| Watchi g the Exo cist while babysitti g. |
+| Weak Chu ch coffee. |
+| Wea i g so ma y mi aculous medals it causes a headache. |
+| Whispe i g "si e " at people o  the st eet. |
+| Wi i g a goldfish at the chu ch festival. |
+| Wo de i g whe e di osau s fit i  with the C eatio  sto y. |
 | Zacchaeus. |
 | Zmoses' pet quail. |
-| "Worshipping" the saints. |
-| A cardboard cutout of Pope St. John Paul II. |
-| A fight between a Dominican and a Franciscan. |
-| A large priest. |
-| A monotone audiobook narrator. |
-| A motivating Scripture reading. |
-| A non-Thomist Dominican. |
-| A not so special payer intention. |
-| A promising philosophy degree. |
-| A rejected marriage proposal. |
-| A sexy chastity speaker. |
-| Actualizing my potential. |
-| An "I love my priest" bumper sticker. |
-| An amateur preacher. |
-| An artisinal podcast. |
-| An empty tomb. |
-| An ongoing homily series. |
-| Anima Technica Vacua. |
-| Asking God for a sign. |
-| Avant-garde jazz. |
-| Awkwardly receiving a gift I don't want. |
-| Baby Boomers. |
-| Beefing with Catholic speakers on Twitter. |
-| Being a dumb ox. |
-| Being a fallen, broken human creature. |
-| Being a sheep. |
-| Being an aspiring beekeeper. |
-| Being attacked by swine. |
-| Being awake and sober. |
-| Being brutally honest about my feelings. |
-| Being forced against my will to listen to The Crunch. |
-| Being in adoration with a loud breather. |
-| Being shirtless in the confessional again. |
-| Being single in my 30s. |
-| Being too good at prayer. |
-| Being worth many sparrows. |
-| Blaming my problems on my thyroid. |
-| Blaming Ockam. |
+| "Wo shippi g" the sai ts. |
+| A ca dboa d cutout of Pope St. Joh  Paul II. |
+| A fight betwee  a Domi ica  a d a F a cisca . |
+| A la ge p iest. |
+| A mo oto e audiobook  a ato . |
+| A motivati g Sc iptu e  eadi g. |
+| A  o -Thomist Domi ica . |
+| A  ot so special paye  i te tio . |
+| A p omisi g philosophy deg ee. |
+| A  ejected ma iage p oposal. |
+| A sexy chastity speake . |
+| Actualizi g my pote tial. |
+| A  "I love my p iest" bumpe  sticke . |
+| A  amateu  p eache . |
+| A  a tisi al podcast. |
+| A  empty tomb. |
+| A  o goi g homily se ies. |
+| A ima Tech ica Vacua. |
+| Aski g God fo  a sig . |
+| Ava t-ga de jazz. |
+| Awkwa dly  eceivi g a gift I do 't wa t. |
+| Baby Boome s. |
+| Beefi g with Catholic speake s o  Twitte . |
+| Bei g a dumb ox. |
+| Bei g a falle , b oke  huma  c eatu e. |
+| Bei g a sheep. |
+| Bei g a  aspi i g beekeepe . |
+| Bei g attacked by swi e. |
+| Bei g awake a d sobe . |
+| Bei g b utally ho est about my feeli gs. |
+| Bei g fo ced agai st my will to liste  to The C u ch. |
+| Bei g i  ado atio  with a loud b eathe . |
+| Bei g shi tless i  the co fessio al agai . |
+| Bei g si gle i  my 30s. |
+| Bei g too good at p aye . |
+| Bei g wo th ma y spa ows. |
+| Blami g my p oblems o  my thy oid. |
+| Blami g Ockam. |
 | Blesed Vegemite. |
-| Buying clams at Long John Silver's during Lent. |
-| Calling Jesus my mate. |
-| Casually chatting with St. Peter and St. Paul. |
-| Cathedrals. |
-| Cathilic Twitter. |
-| Catholic adult coloring books. |
+| Buyi g clams at Lo g Joh  Silve 's du i g Le t. |
+| Calli g Jesus my mate. |
+| Casually chatti g with St. Pete  a d St. Paul. |
+| Cathed als. |
+| Cathilic Twitte . |
+| Catholic adult colo i g books. |
 | Catholics that cuss. |
-| Celebrating Mothering Sunday AND Mother's Day. |
-| Censoring Game of Thrones. |
-| Clever Catholic shirts. |
-| Collecting taxes. |
-| Constantly functioning on 4 hours of sleep. |
-| Contemplating predetination. |
-| Coughing loudly to let the priest know to wrap it up. |
-| Dan Brown novels. |
-| Dancing Nuns. |
-| Deliverance ministry. |
-| Disapointed Jesus. |
-| Disney taking all my money. |
-| Disturbingly European Jesus. |
-| Drawing Jesus as an anime character. |
-| Drinking coffee out of a beer stein. |
-| Dunking the baby for baptism. |
-| Eating cereal as fast as you can an hour before Mass. |
-| Encountering me. |
-| Enjoying Christian films. |
-| Evangelizing to kangaroos. |
-| Evolving a labyrinthine vagina. |
-| Feminist men. |
-| Flying buttresses. |
-| Frantically cleaning before a priest comes over for dinner. |
-| Frantically texting my spiritual director asking for confession ASAP. |
-| Gently tossing Michael Vorris' "hair." |
-| Getting an S.T.D. |
-| Getting into Catholic speaking for the money. |
-| Getting much fatter after Fat Tuesday. |
-| Getting that retreat high. |
-| Giving amazing advice to all my friends. |
-| Giving up The Office for Lent. |
-| Going to Mass at noon. |
-| Having a nice ash... cross. |
-| Having a painful disease in my loins. |
-| Having a pint with Aquinas. |
-| Having a stroke. |
-| Having a superior complex. |
-| Having Catholic guilt. |
-| Having priests as friends. |
-| Having the appetite of Aquinas. |
-| Having two feast days. |
-| Having ugly feet. |
-| Heretical tweets. |
-| Hiding miraculous medals in a Protestant church. |
-| Hiring murderers as religious leaders. |
-| Humble bragging. |
-| Idolatry. |
-| Jesus coming down from Heaven riding on a slide. |
+| Celeb ati g Mothe i g Su day AND Mothe 's Day. |
+| Ce so i g Game of Th o es. |
+| Cleve  Catholic shi ts. |
+| Collecti g taxes. |
+| Co sta tly fu ctio i g o  4 hou s of sleep. |
+| Co templati g p edeti atio . |
+| Coughi g loudly to let the p iest k ow to w ap it up. |
+| Da  B ow   ovels. |
+| Da ci g Nu s. |
+| Delive a ce mi ist y. |
+| Disapoi ted Jesus. |
+| Dis ey taki g all my mo ey. |
+| Distu bi gly Eu opea  Jesus. |
+| D awi g Jesus as a  a ime cha acte . |
+| D i ki g coffee out of a bee  stei . |
+| Du ki g the baby fo  baptism. |
+| Eati g ce eal as fast as you ca  a  hou  befo e Mass. |
+| E cou te i g me. |
+| E joyi g Ch istia  films. |
+| Eva gelizi g to ka ga oos. |
+| Evolvi g a laby i thi e vagi a. |
+| Femi ist me . |
+| Flyi g butt esses. |
+| F a tically clea i g befo e a p iest comes ove  fo  di e . |
+| F a tically texti g my spi itual di ecto  aski g fo  co fessio  ASAP. |
+| Ge tly tossi g Michael Vo is' "hai ." |
+| Getti g a  S.T.D. |
+| Getti g i to Catholic speaki g fo  the mo ey. |
+| Getti g much fatte  afte  Fat Tuesday. |
+| Getti g that  et eat high. |
+| Givi g amazi g advice to all my f ie ds. |
+| Givi g up The Office fo  Le t. |
+| Goi g to Mass at  oo . |
+| Havi g a  ice ash... c oss. |
+| Havi g a pai ful disease i  my loi s. |
+| Havi g a pi t with Aqui as. |
+| Havi g a st oke. |
+| Havi g a supe io  complex. |
+| Havi g Catholic guilt. |
+| Havi g p iests as f ie ds. |
+| Havi g the appetite of Aqui as. |
+| Havi g two feast days. |
+| Havi g ugly feet. |
+| He etical tweets. |
+| Hidi g mi aculous medals i  a P otesta t chu ch. |
+| Hi i g mu de e s as  eligious leade s. |
+| Humble b aggi g. |
+| Idolat y. |
+| Jesus comi g dow  f om Heave   idi g o  a slide. |
 | Jesus's death. |
-| Justifying a bar crawl as "evangelization." |
-| Knitting. |
-| Knowing more rap lyrics than Bible verses. |
-| Knowing my future husband is in seminary. |
-| Knowing that vinyl records are worse than CDs. |
-| Knowing the difference between dulia, hyperdulia, and latria. |
-| Knowing too much about cervical mucus. |
-| Leaving the European Union. |
-| Leggings. |
-| Lifting all yachts equally. |
-| Listening to Catching Foxes to feel better about myself. |
-| Living a moderate life. |
-| Lying to my kids about Santa. |
-| Making incredible puns. |
-| Mama Mary. |
-| Marital intimacy. |
-| Matt Fradd. |
-| Meeting God face to face and realizing how dumb I am. |
-| Misquoting the saints. |
-| Not knowing how to respond when someone says "God bless!" |
-| Not knowing the difference between a dating fast and speed dating. |
-| Not making any friends at a Church mixer. |
-| Not reflecting the views of my employer. |
-| Not using my phone on the toilet. |
-| Only believing in science. |
-| Only drinking sippable beer. |
-| Our Lady of Flimbo Flambo. |
-| Pascal's Wager. |
-| Playing the Didgeridoo at Mass. |
+| Justifyi g a ba  c awl as "eva gelizatio ." |
+| K itti g. |
+| K owi g mo e  ap ly ics tha  Bible ve ses. |
+| K owi g my futu e husba d is i  semi a y. |
+| K owi g that vi yl  eco ds a e wo se tha  CDs. |
+| K owi g the diffe e ce betwee  dulia, hype dulia, a d lat ia. |
+| K owi g too much about ce vical mucus. |
+| Leavi g the Eu opea  U io . |
+| Leggi gs. |
+| Lifti g all yachts equally. |
+| Liste i g to Catchi g Foxes to feel bette  about myself. |
+| Livi g a mode ate life. |
+| Lyi g to my kids about Sa ta. |
+| Maki g i c edible pu s. |
+| Mama Ma y. |
+| Ma ital i timacy. |
+| Matt F add. |
+| Meeti g God face to face a d  ealizi g how dumb I am. |
+| Misquoti g the sai ts. |
+| Not k owi g how to  espo d whe  someo e says "God bless!" |
+| Not k owi g the diffe e ce betwee  a dati g fast a d speed dati g. |
+| Not maki g a y f ie ds at a Chu ch mixe . |
+| Not  eflecti g the views of my employe . |
+| Not usi g my pho e o  the toilet. |
+| O ly believi g i  scie ce. |
+| O ly d i ki g sippable bee . |
+| Ou  Lady of Flimbo Flambo. |
+| Pascal's Wage . |
+| Playi g the Didge idoo at Mass. |
 | Pope Michael. |
-| Post-Evangelical Protestants. |
-| Praise & Worship pump up songs. |
-| Praising God through whom all blessings flow. |
-| Preachy teenage musicians. |
-| Preparing for Mass with the wrong readings. |
-| Priests wearing "rose" vestments. |
-| Pure, unadulterated evil. |
-| Questionable bromances. |
-| Rad Trads. |
+| Post-Eva gelical P otesta ts. |
+| P aise & Wo ship pump up so gs. |
+| P aisi g God th ough whom all blessi gs flow. |
+| P eachy tee age musicia s. |
+| P epa i g fo  Mass with the w o g  eadi gs. |
+| P iests wea i g " ose" vestme ts. |
+| Pu e, u adulte ated evil. |
+| Questio able b oma ces. |
+| Rad T ads. |
 | Radical hospitality. |
-| Reading The Porn Myth in public. |
-| Recieving the Eucharist in hand. |
-| Retreating to the mountains. |
-| Scouting for disciples. |
-| Scrupulosity. |
-| Seein beauty in everything. |
-| Seeing Jesus in my toast. |
-| Shorts that don't reach below the fingertips. |
-| Social media evangelization. |
-| Speed praying for intentions in the silence of my heart. |
-| St. Michael the Archangel. |
-| St. Peter |
-| Staying up until midnight to eat meat during Lent. |
-| Steubenville. |
-| Supporting every Catholic on Patreon. |
-| Taking a rip from my Juul to relate to the youth. |
-| Taking a selfie with the Pope. |
-| Terrible Catholic podcasts. |
-| That one rebellious youth group kid. |
-| The Ascencion. |
-| The complimentarity of men and women. |
-| The fine cuisine of locusts and honey. |
-| The Five Proofs for God's existence. |
-| The Great Fast. |
-| The Monk Life. |
-| The Pharisees talking AGAIN. |
-| The Spanish Inquisition. |
+| Readi g The Po  Myth i  public. |
+| Recievi g the Eucha ist i  ha d. |
+| Ret eati g to the mou tai s. |
+| Scouti g fo  disciples. |
+| Sc upulosity. |
+| Seei  beauty i  eve ythi g. |
+| Seei g Jesus i  my toast. |
+| Sho ts that do 't  each below the fi ge tips. |
+| Social media eva gelizatio . |
+| Speed p ayi g fo  i te tio s i  the sile ce of my hea t. |
+| St. Michael the A cha gel. |
+| St. Pete  |
+| Stayi g up u til mid ight to eat meat du i g Le t. |
+| Steube ville. |
+| Suppo ti g eve y Catholic o  Pat eo . |
+| Taki g a  ip f om my Juul to  elate to the youth. |
+| Taki g a selfie with the Pope. |
+| Te ible Catholic podcasts. |
+| That o e  ebellious youth g oup kid. |
+| The Asce cio . |
+| The complime ta ity of me  a d wome . |
+| The fi e cuisi e of locusts a d ho ey. |
+| The Five P oofs fo  God's existe ce. |
+| The G eat Fast. |
+| The Mo k Life. |
+| The Pha isees talki g AGAIN. |
+| The Spa ish I quisitio . |
 | The theology of my body. |
 | The Theotokos. |
-| The un-intellectual life. |
-| thousand year old eggs |
-| Using discerning religious life to get out of a relationship. |
-| Waiting to drink until I'm 21. |
-| Wedding receptions at the Knights of Columbus hall. |
-| Winning arguments left and right. |
-| Working for the Church. |
-| Yet another Crusade. |
-| Young adult events without alcohol. |
-| Being afraid of the word sex. |
-| Being at every daily Mass. |
-| Being married for 50 years. |
-| Being obessed with board games. |
-| Being raised up on eagles wings. |
-| Bringing my parents back to Mass. |
-| Calling my body a Cathedral. |
-| Catholic Feminism. |
-| Chrism smelling laundry soap. |
-| Clericalism. |
-| Complaining. |
-| Dancing in the forest and playing in the fields. |
-| Dating strictly for marriage. |
-| Felt Joy Joy Joy banners. |
-| Growing up in Catholic school and not being better for it. |
-| Having an eligible daughter. |
-| Having carpel tunnel from too many Rosaries. |
-| Having the Tabernacle off to the side. |
-| Jan from the parish office. |
-| Living in an old rectory with other singles. |
-| Not wanting the "Catholic" label. |
-| Overpaying for a youth ministry degree. |
-| Parades for Our Lady. |
-| Playing irrelevant songs at Christmas Mass. |
-| Praying with my hands in the air (like I just don't care). |
-| Singing Salve Regina as a lullaby. |
-| Sitting at the end of the pew so late people can't get in. |
-| Starting another apostolate. |
-| Starting fights with other Catholics. |
-| Starting the collection during the Consecration. |
-| Taking liberties in the liturgy. |
-| Televangelists. |
-| The forgettable Gen Xers. |
-| The incredible lack of eligible men. |
-| The sacristan that knows where everything is. |
-| Thiniking the Latin Mass is outdated. |
-| Thinking I am so profound. |
-| Thinking the Novus Ordo is invalid. |
-| Traveling to Jerusalem. |
-| Vlogging. |
-| Watching the Mass on TV. |
-| Yoga to the Sorrowful Mysteries. |
-| A not so special prayer intention. |
-| Accidentally drinking holy water. |
-| Awkward silence in small groups. |
-| Baking a little cake. |
-| Being overwhelmed by all the devotions I should have. |
-| Being superior for not going to public school. |
-| Being the smartest kid in the youth group. |
-| Camping retreats in the wilderness. |
-| Catholic pickup lines. |
-| Chanting "I love Jesus yes I do." |
-| Choosing my confirmation Saint on a whim. |
-| Clothespins. |
-| Conga lines at conferences. |
-| Dating Jesus. |
-| Feeling weak after a haircut. |
-| Going to adoration for a first date. |
-| Going to youth group to see my crush. |
-| Having a dove for a pet. |
-| Having wet hair at Mass. |
-| Lazarus' morning breath. |
-| Looking for any excuse to show off my guitar skills. |
-| Looking good for Jesus. |
-| Loving my enemies. |
-| Matching youth group t-shirts. |
-| Mischievous altar servers. |
-| My lifeguard walks on water. |
-| My stomach growling in adoration. |
+| The u -i tellectual life. |
+| thousa d yea  old eggs |
+| Usi g disce i g  eligious life to get out of a  elatio ship. |
+| Waiti g to d i k u til I'm 21. |
+| Weddi g  eceptio s at the K ights of Columbus hall. |
+| Wi i g a gume ts left a d  ight. |
+| Wo ki g fo  the Chu ch. |
+| Yet a othe  C usade. |
+| You g adult eve ts without alcohol. |
+| Bei g af aid of the wo d sex. |
+| Bei g at eve y daily Mass. |
+| Bei g ma ied fo  50 yea s. |
+| Bei g obessed with boa d games. |
+| Bei g  aised up o  eagles wi gs. |
+| B i gi g my pa e ts back to Mass. |
+| Calli g my body a Cathed al. |
+| Catholic Femi ism. |
+| Ch ism smelli g lau d y soap. |
+| Cle icalism. |
+| Complai i g. |
+| Da ci g i  the fo est a d playi g i  the fields. |
+| Dati g st ictly fo  ma iage. |
+| Felt Joy Joy Joy ba e s. |
+| G owi g up i  Catholic school a d  ot bei g bette  fo  it. |
+| Havi g a  eligible daughte . |
+| Havi g ca pel tu el f om too ma y Rosa ies. |
+| Havi g the Tabe acle off to the side. |
+| Ja  f om the pa ish office. |
+| Livi g i  a  old  ecto y with othe  si gles. |
+| Not wa ti g the "Catholic" label. |
+| Ove payi g fo  a youth mi ist y deg ee. |
+| Pa ades fo  Ou  Lady. |
+| Playi g i eleva t so gs at Ch istmas Mass. |
+| P ayi g with my ha ds i  the ai  (like I just do 't ca e). |
+| Si gi g Salve Regi a as a lullaby. |
+| Sitti g at the e d of the pew so late people ca 't get i . |
+| Sta ti g a othe  apostolate. |
+| Sta ti g fights with othe  Catholics. |
+| Sta ti g the collectio  du i g the Co sec atio . |
+| Taki g libe ties i  the litu gy. |
+| Televa gelists. |
+| The fo gettable Ge  Xe s. |
+| The i c edible lack of eligible me . |
+| The sac ista  that k ows whe e eve ythi g is. |
+| Thi iki g the Lati  Mass is outdated. |
+| Thi ki g I am so p ofou d. |
+| Thi ki g the Novus O do is i valid. |
+| T aveli g to Je usalem. |
+| Vloggi g. |
+| Watchi g the Mass o  TV. |
+| Yoga to the So owful Myste ies. |
+| A  ot so special p aye  i te tio . |
+| Accide tally d i ki g holy wate . |
+| Awkwa d sile ce i  small g oups. |
+| Baki g a little cake. |
+| Bei g ove whelmed by all the devotio s I should have. |
+| Bei g supe io  fo   ot goi g to public school. |
+| Bei g the sma test kid i  the youth g oup. |
+| Campi g  et eats i  the wilde ess. |
+| Catholic pickup li es. |
+| Cha ti g "I love Jesus yes I do." |
+| Choosi g my co fi matio  Sai t o  a whim. |
+| Clothespi s. |
+| Co ga li es at co fe e ces. |
+| Dati g Jesus. |
+| Feeli g weak afte  a hai cut. |
+| Goi g to ado atio  fo  a fi st date. |
+| Goi g to youth g oup to see my c ush. |
+| Havi g a dove fo  a pet. |
+| Havi g wet hai  at Mass. |
+| Laza us' mo i g b eath. |
+| Looki g fo  a y excuse to show off my guita  skills. |
+| Looki g good fo  Jesus. |
+| Lovi g my e emies. |
+| Matchi g youth g oup t-shi ts. |
+| Mischievous alta  se ve s. |
+| My lifegua d walks o  wate . |
+| My stomach g owli g i  ado atio . |
 | NCYC hats. |
-| Needing grace upon grace. |
-| No purple! |
-| Not having silly talk. |
-| Offering my second fruits. |
-| Only listening to Christian music. |
-| Pixie Sticks and Soda. |
-| Popping my knuckles when it suddenly gets quiet at church. |
-| Putting my leftovers in wicker baskets. |
-| Saturday night at a Steubenville Conference. |
-| Speed praying to be done faster. |
-| St. Therese of Lisieux. |
-| Talking about who among us is greatest. |
-| The bus breaking down on the way to retreat. |
-| The Cross Clap. |
-| The Vatican flag emoji. |
-| Watching people's shoes pass by during Communion. |
-| Women's sessions. |
+| Needi g g ace upo  g ace. |
+| No pu ple! |
+| Not havi g silly talk. |
+| Offe i g my seco d f uits. |
+| O ly liste i g to Ch istia  music. |
+| Pixie Sticks a d Soda. |
+| Poppi g my k uckles whe  it sudde ly gets quiet at chu ch. |
+| Putti g my leftove s i  wicke  baskets. |
+| Satu day  ight at a Steube ville Co fe e ce. |
+| Speed p ayi g to be do e faste . |
+| St. The ese of Lisieux. |
+| Talki g about who amo g us is g eatest. |
+| The bus b eaki g dow  o  the way to  et eat. |
+| The C oss Clap. |
+| The Vatica  flag emoji. |
+| Watchi g people's shoes pass by du i g Commu io . |
+| Wome 's sessio s. |
 
 |Total amount: 661|
 |---|

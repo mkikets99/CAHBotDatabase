@@ -8,10 +8,8 @@ Answers amount: 1328
 |---|---|
 | _ is no stranger to an AGE Ranger! | 1 |
 | _! the SecAF exclaimed ass he shape-shifted into a lizard person and scurried through the Pentagon. | 1 |
-| "I want you for _!"
--- Uncle Sam | 1 |
-| "What flight are you on?!?"
-"Flight _, Sir!" | 1 |
+| "I want you for _!"  -- Uncle Sam | 1 |
+| "What flight are you on?!?"  "Flight _, Sir!" | 1 |
 | A commissary bagger gives you the death stare. Tip them with _ and get the hell out of there! | 1 |
 | A dorm party isn't a dorm party without _! | 1 |
 | A superior officer approaches. You salute and say _, and they respond with _. | 2 |
@@ -61,10 +59,7 @@ Answers amount: 1328
 | Smug Air Force Academy grads believe they're the best at _. | 1 |
 | So you're saying you have a PT waiver for _? Niiiice... | 1 |
 | Standing at attention, the trainees yel, "Off we go, into _!" | 1 |
-| Step 1: Request any DSD except MTI.
-Step 2: _.
-
-Step 3: You're an MTI now. | 1 |
+| Step 1: Request any DSD except MTI.  Step 2: _.  Step 3: You're an MTI now. | 1 |
 | Surprise! AETC's new supplement covers _. | 1 |
 | That's not a technique or a procedure! That's just _! | 1 |
 | The Air Force Core Values: _ first, _ before self, and _ in all we do. | 3 |
@@ -153,8 +148,7 @@ Step 3: You're an MTI now. | 1 |
 | Sing: "When my granny was 95, she did _ just to stay alive!" | 1 |
 | Sir, why are you crying? | 1 |
 | Soldiers have created a new religion, where _ is held sacred above all else. | 1 |
-| Step 1: Deploy.Step 2: _
-Step 3: Receive Bronze Star. | 1 |
+| Step 1: Deploy. Step 2: _ Step 3: Receive Bronze Star. | 1 |
 | The Army is using virtual reality to prepare for combat, which forces Soldiers to endure hours of _. | 1 |
 | The curious lieutenant found _ on the other side of the latrine gloryhole. | 1 |
 | The final event of the Best Ranger Competition involves the competitors paying homage to _. | 1 |
@@ -264,9 +258,7 @@ Step 3: Receive Bronze Star. | 1 |
 | Hey, boot! What happened to your fucking face?!? | 1 |
 | Honor those lost at sea. Seriously, pause the game and raise your glasses for those who unknowingly made their final voyage. | 1 |
 | Honor, Courage, Commitment, and _: The Newest Marine Corps Value. | 1 |
-| How to be a Marine Recruiter:- Lie to dumb kids;
-- Have sex with dumb kids;
-- _. | 1 |
+| How to be a Marine Recruiter: - Lie to dumb kids; - Have sex with dumb kids; - _. | 1 |
 | I don't care what your team leader says, _ is not an excuse for being drunk on duty! | 1 |
 | I lied and blamed _, but the actual reason I was late to formation was because of _. | 2 |
 | I walked in the house, saw _, and KNEW Jody had just been there! | 1 |
@@ -280,9 +272,7 @@ Step 3: Receive Bronze Star. | 1 |
 | Instead of using wax to buff the deck, the E-5 and below are forced to use _. | 1 |
 | Interrogators are now using _ and _ as their new go-to torture methods. | 2 |
 | June is LGBT Pride Month. What is the Marine Corps doing to celebrate? | 1 |
-| Look, over there!It's a bomb crater!
-It's a mass grave!
-No, it's _! | 1 |
+| Look, over there! It's a bomb crater! It's a mass grave! No, it's _! | 1 |
 | Marine Corps coloring books filled with pictures of _ and _ are now being issued to all Recruits. | 2 |
 | Marines are to _ as Sailors are to _. | 2 |
 | Marines make numerous sacrifices to keep this country safe, which is why they should always be provided with _. | 1 |
@@ -293,16 +283,13 @@ No, it's _! | 1 |
 | Semper Fidelis has been replaced with "_ and _," the new Marine Corps motto. | 2 |
 | Smug Naval Academy grads believe they're the best at _. | 1 |
 | So you can give _ to Jesus, but your ass belongs to the Corps! | 1 |
-| Step 1: Ship to boot camp.Step 2: _.
-Step 3: NJP'd. | 1 |
+| Step 1: Ship to boot camp. Step 2: _. Step 3: NJP'd. | 1 |
 | Terminal Lance comics need more _! | 1 |
 | That dumb shit new boot got a moto tattoo across his back that says _. | 1 |
 | The "new" Marine Corps is now kinder, gentler, and more focused on _. | 1 |
 | The deplorable state of morale in the Corps can be attributed to a combination of _ and _. | 2 |
 | The Few, the Proud, _. | 1 |
-| The Grunt Diet:- 1 part _;
-- 2 parts _;
-- And a dash of _. | 3 |
+| The Grunt Diet: - 1 part _; - 2 parts _; - And a dash of _. | 3 |
 | The key to being the ideal Marine is _. | 1 |
 | The Marine Corps ensurs _ is hand delivered to needy children around the world. | 1 |
 | The new Amphibious Assault Vehicle is really just a pontoon boat filled with _. | 1 |
@@ -332,8 +319,7 @@ Step 3: NJP'd. | 1 |
 | _ is the only thing more patriotic than Master Chief Carl Brashear's prosthetic leg. | 1 |
 | _ will attempt to destroy the Navy. _ will ensure that threat is defeated. | 2 |
 | _: it's what Academy grads do best! | 1 |
-| *Read this in your best tranny voice*
-Hey, Sailor! Come over here and let me show you _! | 1 |
+| *Read this in your best tranny voice*  Hey, Sailor! Come over here and let me show you _! | 1 |
 | According to the international best seller Breaking Up With Your Boat Boo, _ is the #1 way to cope with your loss. | 1 |
 | Admit it, Seaman! You've always suspected your LPO of _. | 1 |
 | After drifting off in your rack, a gooey wet nightmare about _ ruins a good night's sleep. | 1 |
@@ -370,7 +356,7 @@ Hey, Sailor! Come over here and let me show you _! | 1 |
 | Instead of "Hooyah!" the new Navy catch phrase should be "_!" | 1 |
 | ISIS is now demanding _ in exchange for hostages. | 1 |
 | It's the Navy's birthday! What are you doing to celebrate? | 1 |
-| IYAOYAS.Translation: _. | 1 |
+| IYAOYAS. Translation: _. | 1 |
 | Locking your coffin rack prevents berthing rats from pilfering your secret stash of _. | 1 |
 | Loose lips sink ships. Don't ever discuss _ or _. | 2 |
 | Need to get revenge on a jacket-wearing OS? Try cramming their freshly polished boots inside of _. | 1 |
@@ -381,10 +367,7 @@ Hey, Sailor! Come over here and let me show you _! | 1 |
 | Recruiters will lie about anything, but they REALLY love spreading bullshit about _. | 1 |
 | Rip Its® and _ destroyed this Sailor's life! | 1 |
 | Some chuckle fuck got busted for _ and now we have to stay late for ORM training. | 1 |
-| Step 1: Liberty in Thailand.
-Step 2: Captain's Mast for _.
-
-Step 3: Die of antibiotic-resistant dick rot. | 1 |
+| Step 1: Liberty in Thailand.  Step 2: Captain's Mast for _.  Step 3: Die of antibiotic-resistant dick rot. | 1 |
 | The Chinese were surprised to learn that the three major components of the Aegis Ballistic Missile Defense System are _, _, and _. | 3 |
 | The Cunt for Red Cock-tober, a submarine-themed porn parody, features a disturbing scene where _ is thrust into _. | 2 |
 | The fan room is frequently used for committing unspeakeable acts involving _ and _. | 2 |
@@ -426,1336 +409,1336 @@ Step 3: Die of antibiotic-resistant dick rot. | 1 |
 |---|
 
 ### Answers
-| Question |
+| Answers |
 |---|
-| 100 wheelchair-bound children rolling around in the back of a C-5. |
-| A 2 EPR that was truly deserved. |
-| A big empty plane with no seats and a bucket to shit in. |
+| 100 wheelchai -bou d child e   olli g a ou d i  the back of a C-5. |
+| A 2 EPR that was t uly dese ved. |
+| A big empty pla e with  o seats a d a bucket to shit i . |
 | A big fat OPSEC fail. |
-| A break in service. |
-| A bucket of prop wash. |
-| A contractor who is so badass that he grows a beard and tells war stories. |
-| A court-martial for stealing panties and then trying to hide the evidence by eating all of them. |
-| A decomposing Airman found inside a dorm wall locker. |
-| A delightful old woman at an airport USO. |
-| A DFAC entree covered in cockroach eggs and curly black hairs. |
-| A disgsutingly fat National Guardsman wearing a wrinkled, mustard-stained uniform. |
-| A DITY move in an old covered wagon. |
-| A dorm bathroom haunted by jizz demons and spooge spirits of amsturbations past. |
-| A finance clerk telling you to take your complaint and shove it right up your ass. |
-| A former Hooters waitress who's now a 2nd Lt. |
-| A hangar filled with bird shit. |
-| A hardcore PT session of Duck, Duck, Goose. |
-| A hideously deformed Iraqi teenager winking at you with his one good eye. |
-| A Human Weapon System. |
-| A JTAC with a terrible stutter. |
-| A lieutenant defending their stupid ideas like they're Billy-fucking-Mitchell! |
-| A lubed-up Jimmy Doolittle pushing a naked President Roosevelt through the White House Rose Garden. |
-| A malfunctioning fuel truck spraying an ejaculating bull elephant. |
-| A MEPS adventure that ends with old man breath on the back of your nutsack. |
-| A military working dog eating its handler. |
+| A b eak i  se vice. |
+| A bucket of p op wash. |
+| A co t acto  who is so badass that he g ows a bea d a d tells wa  sto ies. |
+| A cou t-ma tial fo  steali g pa ties a d the  t yi g to hide the evide ce by eati g all of them. |
+| A decomposi g Ai ma  fou d i side a do m wall locke . |
+| A delightful old woma  at a  ai po t USO. |
+| A DFAC e t ee cove ed i  cock oach eggs a d cu ly black hai s. |
+| A disgsuti gly fat Natio al Gua dsma  wea i g a w i kled, musta d-stai ed u ifo m. |
+| A DITY move i  a  old cove ed wago . |
+| A do m bath oom hau ted by jizz demo s a d spooge spi its of amstu batio s past. |
+| A fi a ce cle k telli g you to take you  complai t a d shove it  ight up you  ass. |
+| A fo me  Hoote s wait ess who's  ow a 2 d Lt. |
+| A ha ga  filled with bi d shit. |
+| A ha dco e PT sessio  of Duck, Duck, Goose. |
+| A hideously defo med I aqi tee age  wi ki g at you with his o e good eye. |
+| A Huma  Weapo  System. |
+| A JTAC with a te ible stutte . |
+| A lieute a t defe di g thei  stupid ideas like they' e Billy-fucki g-Mitchell! |
+| A lubed-up Jimmy Doolittle pushi g a  aked P eside t Roosevelt th ough the White House Rose Ga de . |
+| A malfu ctio i g fuel t uck sp ayi g a  ejaculati g bull elepha t. |
+| A MEPS adve tu e that e ds with old ma  b eath o  the back of you   utsack. |
+| A milita y wo ki g dog eati g its ha dle . |
 | A MSgt who still uses Myspace. |
-| A National Defense Service Medal license plate that lets people know you're not fucking around. |
-| A Nuclear Deterrence Operations Service Medal that somehow gives your worthless life meaning. |
-| A nuclear warhead hidden inside a short bus full of special needs children. |
-| A post-deployment RED HORSE troop fucking everyone and everything in their path. |
-| A promotion system based on explicit sexual favors. |
-| A rainbow flag morale patch. |
-| A retired general making money off the same Air Force he failed. |
-| A retiree dragging his balls across the base gym's locker room. |
-| A Rite in the Rain® notebook filled with doodles and angsty teen poems. |
-| A running track that's a dick's length too long. |
-| A shit-hot flight line cop. |
-| A shop chief who you wouldn't mind violently murdering. |
-| A shortage of fighter pilots. |
-| A six month vacation to the Third World. |
-| A sketch landing. |
-| A smooth-talking WWII Vet scoring some sweet nursing home trim. |
-| A super dead Airman. |
-| A White Rope running their fingers through a Catholic Chaplain's coarse gray pubes. |
-| A Wing Commander stealing breast milk from the pumping room's fridge and then dousing himself in dat sweet titty juice. |
-| A ZJ from a PJ. |
-| AAFES, those classy mother fuckers. |
-| ABU fabric purses that are equal parts shame and embarrassment. |
-| Abusing the system more than it abuses you. |
-| Academy grads. |
-| Accusing an instructor of mansplaining. |
-| Accusing fellow Airmen of stealing all of your jerk-off goblins. |
-| Aiming high. |
-| Air Force Jesus. |
-| Air Force-branded selfie sticks. |
-| Airborne frickin' lasers! |
-| Aircraft of the future! |
-| Airmen of races much different from your own. |
-| All the additional duties I have. |
-| An A1C charging Mess Dress purchases to their Star Card. |
-| An Ammo Troop with strange, incurable STDs. |
-| An armless pilot. |
-| An autistic cyber warrior with Doritos®-stained hands fucking an anime pillow in the supply closet. |
-| An HIV epidemic rapidly spreading throughout the dorms. |
-| An interracial command team. |
-| An ISIS unit ball where the goats are all prettied up in little goat dresses. |
-| An Outlook® inbox filled with Chinese spear phishing emails and group BBQ reminders. |
-| An overweight A1C who's just existing. |
-| Another deployment to Behead-istan. |
-| Another John Q Public rant. |
-| Another pointless meeting where the commander sticks his head in between his legs and kisses his own ass. |
-| Anti-brown people munitions. |
-| Assuming a bird strike is just that plane's time of the month. |
-| Autoerotic hypoxia. |
-| Averaging one marriage per enlistment. |
-| Bailing out the Army with some clit-hardening CAS. |
-| Barkatraz. |
-| Base housing swinger parties. |
-| Base-wide "fun runs" that are as slow as old people screwing. |
-| Being "Air Force Cool." |
-| Being the Red Dot. |
-| Being triggered by poetry years after resistance training. |
-| Betraying the American people's trust. |
+| A Natio al Defe se Se vice Medal lice se plate that lets people k ow you' e  ot fucki g a ou d. |
+| A Nuclea  Dete e ce Ope atio s Se vice Medal that somehow gives you  wo thless life mea i g. |
+| A  uclea  wa head hidde  i side a sho t bus full of special  eeds child e . |
+| A post-deployme t RED HORSE t oop fucki g eve yo e a d eve ythi g i  thei  path. |
+| A p omotio  system based o  explicit sexual favo s. |
+| A  ai bow flag mo ale patch. |
+| A  eti ed ge e al maki g mo ey off the same Ai  Fo ce he failed. |
+| A  eti ee d aggi g his balls ac oss the base gym's locke   oom. |
+| A Rite i  the Rai ®  otebook filled with doodles a d a gsty tee  poems. |
+| A  u i g t ack that's a dick's le gth too lo g. |
+| A shit-hot flight li e cop. |
+| A shop chief who you would 't mi d viole tly mu de i g. |
+| A sho tage of fighte  pilots. |
+| A six mo th vacatio  to the Thi d Wo ld. |
+| A sketch la di g. |
+| A smooth-talki g WWII Vet sco i g some sweet  u si g home t im. |
+| A supe  dead Ai ma . |
+| A White Rope  u i g thei  fi ge s th ough a Catholic Chaplai 's coa se g ay pubes. |
+| A Wi g Comma de  steali g b east milk f om the pumpi g  oom's f idge a d the  dousi g himself i  dat sweet titty juice. |
+| A ZJ f om a PJ. |
+| AAFES, those classy mothe  fucke s. |
+| ABU fab ic pu ses that a e equal pa ts shame a d emba assme t. |
+| Abusi g the system mo e tha  it abuses you. |
+| Academy g ads. |
+| Accusi g a  i st ucto  of ma splai i g. |
+| Accusi g fellow Ai me  of steali g all of you  je k-off gobli s. |
+| Aimi g high. |
+| Ai  Fo ce Jesus. |
+| Ai  Fo ce-b a ded selfie sticks. |
+| Ai bo e f icki ' lase s! |
+| Ai c aft of the futu e! |
+| Ai me  of  aces much diffe e t f om you  ow . |
+| All the additio al duties I have. |
+| A  A1C cha gi g Mess D ess pu chases to thei  Sta  Ca d. |
+| A  Ammo T oop with st a ge, i cu able STDs. |
+| A  a mless pilot. |
+| A  autistic cybe  wa io  with Do itos®-stai ed ha ds fucki g a  a ime pillow i  the supply closet. |
+| A  HIV epidemic  apidly sp eadi g th oughout the do ms. |
+| A  i te acial comma d team. |
+| A  ISIS u it ball whe e the goats a e all p ettied up i  little goat d esses. |
+| A  Outlook® i box filled with Chi ese spea  phishi g emails a d g oup BBQ  emi de s. |
+| A  ove weight A1C who's just existi g. |
+| A othe  deployme t to Behead-ista . |
+| A othe  Joh  Q Public  a t. |
+| A othe  poi tless meeti g whe e the comma de  sticks his head i  betwee  his legs a d kisses his ow  ass. |
+| A ti-b ow  people mu itio s. |
+| Assumi g a bi d st ike is just that pla e's time of the mo th. |
+| Autoe otic hypoxia. |
+| Ave agi g o e ma iage pe  e listme t. |
+| Baili g out the A my with some clit-ha de i g CAS. |
+| Ba kat az. |
+| Base housi g swi ge  pa ties. |
+| Base-wide "fu   u s" that a e as slow as old people sc ewi g. |
+| Bei g "Ai  Fo ce Cool." |
+| Bei g the Red Dot. |
+| Bei g t igge ed by poet y yea s afte   esista ce t ai i g. |
+| Bet ayi g the Ame ica  people's t ust. |
 | Big Blue. |
-| Bird strikes. |
-| Blowing kisses to a mongoloid chow hall worker. |
-| Boots the color of baby diarrhea. |
-| Breaking the speed of stupid. |
-| Breastfeeding in uniform. |
-| Bring your Butterbar to Work Day. |
-| Bringing back Tops in Blue. |
-| Bullshitting your way through yet another PHA. |
-| Butt stuff in exchange for orders. |
-| Cancerous USAF leadership. |
+| Bi d st ikes. |
+| Blowi g kisses to a mo goloid chow hall wo ke . |
+| Boots the colo  of baby dia hea. |
+| B eaki g the speed of stupid. |
+| B eastfeedi g i  u ifo m. |
+| B i g you  Butte ba  to Wo k Day. |
+| B i gi g back Tops i  Blue. |
+| Bullshitti g you  way th ough yet a othe  PHA. |
+| Butt stuff i  excha ge fo  o de s. |
+| Ca ce ous USAF leade ship. |
 | CAOC fuck fests. |
-| Captain Baggadix. |
-| Charging lap dances and boner pills to a Government Travel Card. |
-| Checkride beers. |
-| Chuck Yeager's 75 lb. testicles. |
-| Commander's Call. |
-| Commissioned officers. |
-| Crashing a GOV and then just walking away. |
-| Crew rest. |
+| Captai  Baggadix. |
+| Cha gi g lap da ces a d bo e  pills to a Gove me t T avel Ca d. |
+| Check ide bee s. |
+| Chuck Yeage 's 75 lb. testicles. |
+| Comma de 's Call. |
+| Commissio ed office s. |
+| C ashi g a GOV a d the  just walki g away. |
+| C ew  est. |
 | CUMSEC. |
-| Curtis LeMay totally wrecking Airmen with his big cigar. |
-| Deflecting fuckery with your DD 214. |
-| Defrauding the government bigly. |
-| Dirty dorm sponges. |
-| Discharging dishonorably. |
-| Doing stupid shit because a general is visiting the squadron. |
-| Double reflective belts! |
-| Dropping warheads on foreheads. |
-| Dying in line at the VA. |
-| Dyslexic, atheist pilots who don't nelieve in dog fights. |
-| Ejecting. |
-| Eloping with your MTL after their court-martial. |
+| Cu tis LeMay totally w ecki g Ai me  with his big ciga . |
+| Deflecti g fucke y with you  DD 214. |
+| Def audi g the gove me t bigly. |
+| Di ty do m spo ges. |
+| Discha gi g disho o ably. |
+| Doi g stupid shit because a ge e al is visiti g the squad o . |
+| Double  eflective belts! |
+| D oppi g wa heads o  fo eheads. |
+| Dyi g i  li e at the VA. |
+| Dyslexic, atheist pilots who do 't  elieve i  dog fights. |
+| Ejecti g. |
+| Elopi g with you  MTL afte  thei  cou t-ma tial. |
 | EXERCISE EXERCISE EXERCISE! |
-| Expedient mid-shift sex in a cocked B-52 crew bunk. |
-| Exploding an Afghan hospital because WHOOOPS! |
-| Fat shaming Soldiers. |
-| Feeling a hint of guilt for thinking Nazi uniforms looked cool. |
-| Fiery death at an air show. |
-| Flagging the range with a MK 19. |
-| Flight line drive-by staredowns. |
-| Flying a desk and absolutely loving it! |
-| Flying Under the Influence. |
-| Fraud, waste, abuse, repeat. |
-| Fucking Nonners. |
-| Fuel savings iniatives that don't make no got-damn sense! |
-| Gaining rank one ass smooch at a time. |
-| Getting eaten out by a fighter pilot. |
-| Getting fucked to death by a four-star general. |
-| Giving zero fucks about the Middle East. |
+| Expedie t mid-shift sex i  a cocked B-52 c ew bu k. |
+| Explodi g a  Afgha  hospital because WHOOOPS! |
+| Fat shami g Soldie s. |
+| Feeli g a hi t of guilt fo  thi ki g Nazi u ifo ms looked cool. |
+| Fie y death at a  ai  show. |
+| Flaggi g the  a ge with a MK 19. |
+| Flight li e d ive-by sta edow s. |
+| Flyi g a desk a d absolutely lovi g it! |
+| Flyi g U de  the I flue ce. |
+| F aud, waste, abuse,  epeat. |
+| Fucki g No e s. |
+| Fuel savi gs i iatives that do 't make  o got-dam  se se! |
+| Gai i g  a k o e ass smooch at a time. |
+| Getti g eate  out by a fighte  pilot. |
+| Getti g fucked to death by a fou -sta  ge e al. |
+| Givi g ze o fucks about the Middle East. |
 | Good Kill. |
-| Gorging yourself onn cabbage and meats right before the altitude chamber. |
-| Green Dot. |
-| Guard Mount!!! |
-| Hardcore fraternization. |
-| Hating piggybackers. |
-| Hating stupid pilot culture because it's stupid and you hate it. |
-| Having acronyms for your acronyms (HAFYA). |
-| Having all the planes! |
-| Honoring C-130 heritage by shitting in front of 30 paratroopers. |
-| Horny young Airman. |
-| Hot Sister Thursdays at the Lackland BX. |
-| How an Airman grows up to be big and strong. |
+| Go gi g you self o  cabbage a d meats  ight befo e the altitude chambe . |
+| G ee  Dot. |
+| Gua d Mou t!!! |
+| Ha dco e f ate izatio . |
+| Hati g piggybacke s. |
+| Hati g stupid pilot cultu e because it's stupid a d you hate it. |
+| Havi g ac o yms fo  you  ac o yms (HAFYA). |
+| Havi g all the pla es! |
+| Ho o i g C-130 he itage by shitti g i  f o t of 30 pa at oope s. |
+| Ho y you g Ai ma . |
+| Hot Siste  Thu sdays at the Lackla d BX. |
+| How a  Ai ma  g ows up to be big a d st o g. |
 | I fly the M16. |
-| IEDs, mortar fire, and other dumb things that make your booty hole pucker. |
-| Jamming a CAC into a slot. |
-| Knocking up multiple Airmen. |
-| Lackland funk. |
-| Leading by email. |
-| Leather jackets. |
-| Leaving an Airman so, so far behind. |
-| Lietenants. |
-| Loading 10,000 learnin' books onto a B-52 and dropping them over Alabama. |
-| Lobster Night... because we're not in one of those peasant branches. |
-| Locking your knees. |
-| Maintainer debauchery. |
-| Making a Black Power fist mid-promotion. |
-| Med Bros and Med Hoes screwing up your ASIMS. |
-| Mentorshit. |
-| Military bearing of the highest caliber! |
-| Millennial Airmen. |
-| Misplaced Air Force assets. |
-| Missileers. |
+| IEDs, mo ta  fi e, a d othe  dumb thi gs that make you  booty hole pucke . |
+| Jammi g a CAC i to a slot. |
+| K ocki g up multiple Ai me . |
+| Lackla d fu k. |
+| Leadi g by email. |
+| Leathe  jackets. |
+| Leavi g a  Ai ma  so, so fa  behi d. |
+| Liete a ts. |
+| Loadi g 10,000 lea i ' books o to a B-52 a d d oppi g them ove  Alabama. |
+| Lobste  Night... because we' e  ot i  o e of those peasa t b a ches. |
+| Locki g you  k ees. |
+| Mai tai e  debauche y. |
+| Maki g a Black Powe  fist mid-p omotio . |
+| Med B os a d Med Hoes sc ewi g up you  ASIMS. |
+| Me to shit. |
+| Milita y bea i g of the highest calibe ! |
+| Mille ial Ai me . |
+| Misplaced Ai  Fo ce assets. |
+| Missilee s. |
 | Mmmmmmm, dat CAS! |
-| Motrin® addiction. |
-| Mutually Assured Destruction, dude! |
-| Naked gunner hugs. |
-| Naming everything to sound way more high speed that it actually is. |
-| Newly incorporated kamikaze tactics. |
+| Mot i ® addictio . |
+| Mutually Assu ed Dest uctio , dude! |
+| Naked gu e  hugs. |
+| Nami g eve ythi g to sou d way mo e high speed that it actually is. |
+| Newly i co po ated kamikaze tactics. |
 | No Hope Pope. |
-| Non-combat deaths. |
-| Non-commissioned officers. |
-| North Korean military aircraft. |
-| Not Mission Capable. |
-| Offering to fuck away people's PTSD. |
-| Operation Enduring Semen. |
-| Ordnance. |
-| Overdue training. |
-| Pages intentionally left blank. |
-| Parachute cord wrapped around a penis. |
-| Pausing some steamy dorm romance mid-stroke when Taps starts playing. |
-| Phoning the parents of a half-retarded Airman to tell them they're fucking failures. |
-| Physically abusing dependents because you're a drunk piece of shit. |
-| Pilot hair. |
-| Pilot Retention. |
+| No -combat deaths. |
+| No -commissio ed office s. |
+| No th Ko ea  milita y ai c aft. |
+| Not Missio  Capable. |
+| Offe i g to fuck away people's PTSD. |
+| Ope atio  E du i g Seme . |
+| O d a ce. |
+| Ove due t ai i g. |
+| Pages i te tio ally left bla k. |
+| Pa achute co d w apped a ou d a pe is. |
+| Pausi g some steamy do m  oma ce mid-st oke whe  Taps sta ts playi g. |
+| Pho i g the pa e ts of a half- eta ded Ai ma  to tell them they' e fucki g failu es. |
+| Physically abusi g depe de ts because you' e a d u k piece of shit. |
+| Pilot hai . |
+| Pilot Rete tio . |
 | Pilot selfies. |
-| Pilots wearing Aviators and flying with their hands. |
-| Pilots whining like pre-teens. |
-| Please delete me from this distro. |
-| Pointy Heads. |
-| Pooping on the flight line and then scooping the turd into your hand and throwing it into a spinning prop. |
-| Precision guided mooooo-nitions. |
-| Predictable "Chair Force" jokes. |
-| Promoting so hard. |
-| Proudly displaying your dirty reflective belt and line badge at the BX. |
-| Putting the "cock" in cockpit. |
-| Quietly fingerbanging a fishy trainee. |
-| Random conversations at the smoke pit. |
-| Re-enlisting with a hopeful smile. |
-| Recruiters sexting underage high school students. |
-| Referring to stolen valor as being "trans-veteran." |
-| Riding in a shopping cart with your arms stretched out to the side while screaming "MAKE WAY I'M A JET PLANE, MOTHER FUCKER!" |
-| ROTC Cadets who deserve all of the ass beatings. |
-| Roughing it in the field in a 3-star hotel. |
-| RPA operators with PTSD. |
-| Salty Airmen. |
-| Saluting Academy Cadets. |
-| Saluting with your right hand then saluting with your left hand then Nazi saluting into a backflip. |
-| Sarin gas attacks and other things that don't end goodly. |
-| Sawing an Airman in half during a USO magic show gone terribly wrong. |
-| Scheduling a bunch of medical appointments because fuck it. |
-| Security Forces, the window lickers of the Air Force. |
-| Sending a chimpanzee into G-LOC during f-35 training. |
-| SERE instructors and the psychological scars their children bear. |
-| Shift supervisors and the faces they sit on. |
-| Shooting up some good heroin in a bathroom stall at the Pentagon. |
-| Shouitng "What goes TDY, stays TDY!" right before making a terrible decision. |
-| Showering leadership with undue praise and affection. |
-| Showing up to Red Flag like it's Gangs of New York. |
-| Signing your life away. |
-| Single-handedly ruining my Air Force. |
-| Sitting alert. |
-| Situational unawareness. |
-| Skipping out on funeral detail. |
-| Smoking pot in uniform. |
-| Sneaking a burner phone into the WSA for the sole purpose of sending nudes. |
-| Snoozin' in the guard tower. |
-| Soaring above the clouds. |
-| Space warriors. |
-| Spaghetti spilling out of your uniform's pockets. |
-| Spending half of an enlistment in a training squadron. |
-| Spoiled commissary meats. |
-| Squadron culture. |
-| Standing on your T.O. instead of using a ladder. |
-| Strafing an Afghan shepherd and his sad, sickly goats. |
-| Stray dogs running wild through base housing, barking at minorities and shitting everywhere! |
-| Subduing an officer using only the gentle touch of feminine hands. |
-| Taking out an insurance policy on the lieutenant. |
-| Team building activities that overwhelm you with embarrassment. |
-| That one weirdo who interservice transferred to the Army. |
-| The Air Force Academy forcing Jesus down your throat. |
-| The Air Force Combat Action Medal. |
-| The Air Force: where "Death by PowerPoint®" is a service-connected disability rating. |
-| The Air Force's stupid logo. |
-| The Airman's Creed. |
-| The alien prostitutes at Area 51. |
-| The amount of medals I have. |
+| Pilots wea i g Aviato s a d flyi g with thei  ha ds. |
+| Pilots whi i g like p e-tee s. |
+| Please delete me f om this dist o. |
+| Poi ty Heads. |
+| Poopi g o  the flight li e a d the  scoopi g the tu d i to you  ha d a d th owi g it i to a spi i g p op. |
+| P ecisio  guided mooooo- itio s. |
+| P edictable "Chai  Fo ce" jokes. |
+| P omoti g so ha d. |
+| P oudly displayi g you  di ty  eflective belt a d li e badge at the BX. |
+| Putti g the "cock" i  cockpit. |
+| Quietly fi ge ba gi g a fishy t ai ee. |
+| Ra dom co ve satio s at the smoke pit. |
+| Re-e listi g with a hopeful smile. |
+| Rec uite s sexti g u de age high school stude ts. |
+| Refe i g to stole  valo  as bei g "t a s-vete a ." |
+| Ridi g i  a shoppi g ca t with you  a ms st etched out to the side while sc eami g "MAKE WAY I'M A JET PLANE, MOTHER FUCKER!" |
+| ROTC Cadets who dese ve all of the ass beati gs. |
+| Roughi g it i  the field i  a 3-sta  hotel. |
+| RPA ope ato s with PTSD. |
+| Salty Ai me . |
+| Saluti g Academy Cadets. |
+| Saluti g with you   ight ha d the  saluti g with you  left ha d the  Nazi saluti g i to a backflip. |
+| Sa i  gas attacks a d othe  thi gs that do 't e d goodly. |
+| Sawi g a  Ai ma  i  half du i g a USO magic show go e te ibly w o g. |
+| Scheduli g a bu ch of medical appoi tme ts because fuck it. |
+| Secu ity Fo ces, the wi dow licke s of the Ai  Fo ce. |
+| Se di g a chimpa zee i to G-LOC du i g f-35 t ai i g. |
+| SERE i st ucto s a d the psychological sca s thei  child e  bea . |
+| Shift supe viso s a d the faces they sit o . |
+| Shooti g up some good he oi  i  a bath oom stall at the Pe tago . |
+| Shouit g "What goes TDY, stays TDY!"  ight befo e maki g a te ible decisio . |
+| Showe i g leade ship with u due p aise a d affectio . |
+| Showi g up to Red Flag like it's Ga gs of New Yo k. |
+| Sig i g you  life away. |
+| Si gle-ha dedly  ui i g my Ai  Fo ce. |
+| Sitti g ale t. |
+| Situatio al u awa e ess. |
+| Skippi g out o  fu e al detail. |
+| Smoki g pot i  u ifo m. |
+| S eaki g a bu e  pho e i to the WSA fo  the sole pu pose of se di g  udes. |
+| S oozi ' i  the gua d towe . |
+| Soa i g above the clouds. |
+| Space wa io s. |
+| Spaghetti spilli g out of you  u ifo m's pockets. |
+| Spe di g half of a  e listme t i  a t ai i g squad o . |
+| Spoiled commissa y meats. |
+| Squad o  cultu e. |
+| Sta di g o  you  T.O. i stead of usi g a ladde . |
+| St afi g a  Afgha  shephe d a d his sad, sickly goats. |
+| St ay dogs  u i g wild th ough base housi g, ba ki g at mi o ities a d shitti g eve ywhe e! |
+| Subdui g a  office  usi g o ly the ge tle touch of femi i e ha ds. |
+| Taki g out a  i su a ce policy o  the lieute a t. |
+| Team buildi g activities that ove whelm you with emba assme t. |
+| That o e wei do who i te se vice t a sfe ed to the A my. |
+| The Ai  Fo ce Academy fo ci g Jesus dow  you  th oat. |
+| The Ai  Fo ce Combat Actio  Medal. |
+| The Ai  Fo ce: whe e "Death by Powe Poi t®" is a se vice-co ected disability  ati g. |
+| The Ai  Fo ce's stupid logo. |
+| The Ai ma 's C eed. |
+| The alie  p ostitutes at A ea 51. |
+| The amou t of medals I have. |
 | The BUFF. |
-| The Chief Master Sergeant of the Air Force impregnating Miss Teen America. |
-| The entirely unrealistic expectations of the Air Force. |
-| The glue that unifies the force. |
-| The Good Idea Fairy. |
-| The legendary Lockheed SR-71 Blackbird... but why it gotta be black, though?!? |
-| The Lieutenants Protection Association. |
-| The Lowest Price Technically Acceptable. |
-| The many ways DFAS will anal sex you. |
-| The Minuteman III ICBM, which is the same size as your grandmother's dildo. |
-| The model airplane you sleep with at night. |
-| The morale that's currently missing. |
-| The National Anthem, but with air horns, porn moans, and armpit fart noises. |
-| The needs of the Air Force. |
-| The Secretary of Offense. |
-| The sexiest service branch. |
-| The Sheppard Shuffle. |
-| The smell of pilot dick on your breath. |
-| The stinky kid in tech school. |
-| The Tuskegee Airmen's big black dicks. |
-| The two weeks of low self-esteem that follows a BX haircut. |
-| The United States Air Force Academy. |
-| The United States Air Force. |
-| The wind beneath my wings. |
-| Thinking B-2 pilots are cool guys who bomb peoples and doesn't afraid of anything. |
-| Those fucking nerds over at NORAD tracking Santa and shit. |
-| Throwing a brick through the window of your local finance office. |
-| Transgender integration training. |
-| Treating grown adults like children. |
-| Treating urinalysis like a strip tease. |
-| TRICARE-covered euthanasia. |
-| Trolling for dick at the Maintenance Professional of the Year. |
-| Two Cadets holding hands and gleefully skipping down a hallway. |
-| Two Hajis poorly disguised as a camel. |
-| Two meaty pork swords in a Lackland porta-potty. |
-| Two pilots 69'ing in a cockpit. |
-| Unclear instructions. |
-| Unleashing the MOAB on a terrorist training camp and making things go KABOOM! |
-| Uploading dick pics to your unit's SharePoint®. |
-| Using a curly straw to snort some blow off the Chief of Staff's war dong. |
-| Using hurtful langauage that triggers co-workers and make the whole Air Force cry. |
-| Using survival training hypothermia as an excuse to spoon. |
-| Volunteering against your will. |
-| Vomiting down the front of a flight suit. |
-| Wacky plane noises. |
-| Wearing Blues under your Klan robe. |
-| Wearing morale shirts against your will. |
-| Whipping out your CAC. |
-| Whistlin' old timey slave hymns while maintaining aircraft. |
-| White dudes with shaving waivers. |
-| Wingmen. |
-| Working 0800-1500. |
-| Working with Army mouth breathers. |
-| Your Command Chief's slutty teen daughter. |
-| 3d Cavalry Regiment's drivers training program. |
-| A .50 cal round tearing through 3 torsos, 2 heads, and a hotdog cart. |
-| A "high speed" specialist saving the 237th Sapper Co. from a disastrous mixture of live rounds and blanks. |
-| A $2,000 enlistment bonus that definitely wasn't worth it. |
-| A 15-6 investigating the pathetic, plodding death of your career. |
-| A 48-year-old specialist who enlisted under mysterious circumstances. |
-| A 70-year-old gut truck driver exchanging snacks for hand jobs. |
-| A 9 ft tall sergeant major with titanium robot legs. |
-| A badass maroon beret that gets all the pussy. How much pussy, bro?!? ALL the pussy! |
-| A balding sergeant first class with a terrible comb over. |
-| A ball-clinching Swiss seat. |
-| A barracks room covered in layers of black mold. |
-| A bloated corpse with a great tan. |
-| A BOLO list identifying 45 white Toyota® pickup trucks. |
-| A Bradley Fighting Vehicle slowly crushing a donkey cart. |
-| A camel spider wearing several pairs of tiny shoes. |
-| A cement truck filled with 20,000 lbs. of HME. |
-| A Chelsea Manning tuck job. |
-| A cock-strong formation of 1-505 PIR Paratroopers howling "Go limp and take it!" |
-| A college student asking if you've ever killed someone. |
-| A combat lifesaver bag full of ping pong balls and speculums. |
-| A company commander pinning his dick pics to the SHARP™ bulletin board. |
-| A crusty sock that oddly smells like mashed potatoes. |
-| A DA Civilian on a mobility scooter. |
-| A depressing re-enlistment attended by only your mother and overweight commander. |
-| A desolate outpost somewhere in Afghanistan. |
-| A dog and pony show featuring actual dogs and ponies. |
-| A fobbit telling war stories. |
-| A general officer shooting lightning bolts from the tip of his OD green penis. |
-| A Guantanamo Bay torture sesion involving Nickelback, a power drill, and Hillary Clinton's pubic wig. |
-| A Heat Cat-5 porta-shitter jerk session. |
-| A Kevlar® helmet filled with baby raccoons. |
-| A kinder, gentler Army. |
-| A Midshipman witnessing a West Point pillow fight and immediately feeling better about themselves. |
-| A mild traumatic brain injury. |
-| A monkey fucking a football. |
-| A morbidly obese staff officer. |
-| A negligent discharge entering through your thigh, but exiting out your asshole. |
-| A new female tanker christening her Abrams with a jar of clotted period blood. |
-| A Pentecostal, snake-handling chaplain in the Kentucky National Guard. |
-| A plump Iraqi child begging for candy then giving you the finger. |
-| A recruiting video starring Caitlyn Jenner queefing plastic army men from her crudely-assembled vagina. |
-| A roadside bomb. |
-| A Seaman filled with semen. |
-| A sensitive items inventory gone terribly wrong. |
-| A sexually suggestive S.P.O.R.T.S. demonstration. |
-| A smirking famale Ranger. |
-| A staff officer referencing Clausewitz. |
-| A steaming fart sack. |
-| A Stetson and set of spurs. |
-| A supply sergeant who is basically a drug dealer. |
-| A Taliban insurgent wildly firing an AK-47 from the hip. |
-| A threesome with your battle buddy and a musty Fleshlight®. |
-| A toe-curling combatives orgasm. |
-| A vodka IV drip courtesy of Doc. |
-| A warrant offier vanishing in a puff of smoke. |
-| A West Point pillow fight. |
-| A wily supply specialist who cums FLIPLs and poops hand receipts. |
-| Abandoning your post to join the Taliban. |
-| Accurate sniper fire. |
-| Accurately describing your chain of command as a less efficient Human Centipede. |
-| Acting out a flashback during your daughter's ballet recital. |
-| Afghan farm animals and the men who love them. |
+| The Chief Maste  Se gea t of the Ai  Fo ce imp eg ati g Miss Tee  Ame ica. |
+| The e ti ely u ealistic expectatio s of the Ai  Fo ce. |
+| The glue that u ifies the fo ce. |
+| The Good Idea Fai y. |
+| The lege da y Lockheed SR-71 Blackbi d... but why it gotta be black, though?!? |
+| The Lieute a ts P otectio  Associatio . |
+| The Lowest P ice Tech ically Acceptable. |
+| The ma y ways DFAS will a al sex you. |
+| The Mi utema  III ICBM, which is the same size as you  g a dmothe 's dildo. |
+| The model ai pla e you sleep with at  ight. |
+| The mo ale that's cu e tly missi g. |
+| The Natio al A them, but with ai  ho s, po  moa s, a d a mpit fa t  oises. |
+| The  eeds of the Ai  Fo ce. |
+| The Sec eta y of Offe se. |
+| The sexiest se vice b a ch. |
+| The Sheppa d Shuffle. |
+| The smell of pilot dick o  you  b eath. |
+| The sti ky kid i  tech school. |
+| The Tuskegee Ai me 's big black dicks. |
+| The two weeks of low self-esteem that follows a BX hai cut. |
+| The U ited States Ai  Fo ce Academy. |
+| The U ited States Ai  Fo ce. |
+| The wi d be eath my wi gs. |
+| Thi ki g B-2 pilots a e cool guys who bomb peoples a d does 't af aid of a ythi g. |
+| Those fucki g  e ds ove  at NORAD t acki g Sa ta a d shit. |
+| Th owi g a b ick th ough the wi dow of you  local fi a ce office. |
+| T a sge de  i teg atio  t ai i g. |
+| T eati g g ow  adults like child e . |
+| T eati g u i alysis like a st ip tease. |
+| TRICARE-cove ed eutha asia. |
+| T olli g fo  dick at the Mai te a ce P ofessio al of the Yea . |
+| Two Cadets holdi g ha ds a d gleefully skippi g dow  a hallway. |
+| Two Hajis poo ly disguised as a camel. |
+| Two meaty po k swo ds i  a Lackla d po ta-potty. |
+| Two pilots 69'i g i  a cockpit. |
+| U clea  i st uctio s. |
+| U leashi g the MOAB o  a te o ist t ai i g camp a d maki g thi gs go KABOOM! |
+| Uploadi g dick pics to you  u it's Sha ePoi t®. |
+| Usi g a cu ly st aw to s o t some blow off the Chief of Staff's wa  do g. |
+| Usi g hu tful la gauage that t igge s co-wo ke s a d make the whole Ai  Fo ce c y. |
+| Usi g su vival t ai i g hypothe mia as a  excuse to spoo . |
+| Volu tee i g agai st you  will. |
+| Vomiti g dow  the f o t of a flight suit. |
+| Wacky pla e  oises. |
+| Wea i g Blues u de  you  Kla   obe. |
+| Wea i g mo ale shi ts agai st you  will. |
+| Whippi g out you  CAC. |
+| Whistli ' old timey slave hym s while mai tai i g ai c aft. |
+| White dudes with shavi g waive s. |
+| Wi gme . |
+| Wo ki g 0800-1500. |
+| Wo ki g with A my mouth b eathe s. |
+| You  Comma d Chief's slutty tee  daughte . |
+| 3d Caval y Regime t's d ive s t ai i g p og am. |
+| A .50 cal  ou d tea i g th ough 3 to sos, 2 heads, a d a hotdog ca t. |
+| A "high speed" specialist savi g the 237th Sappe  Co. f om a disast ous mixtu e of live  ou ds a d bla ks. |
+| A $2,000 e listme t bo us that defi itely was 't wo th it. |
+| A 15-6 i vestigati g the pathetic, ploddi g death of you  ca ee . |
+| A 48-yea -old specialist who e listed u de  myste ious ci cumsta ces. |
+| A 70-yea -old gut t uck d ive  excha gi g s acks fo  ha d jobs. |
+| A 9 ft tall se gea t majo  with tita ium  obot legs. |
+| A badass ma oo  be et that gets all the pussy. How much pussy, b o?!? ALL the pussy! |
+| A baldi g se gea t fi st class with a te ible comb ove . |
+| A ball-cli chi g Swiss seat. |
+| A ba acks  oom cove ed i  laye s of black mold. |
+| A bloated co pse with a g eat ta . |
+| A BOLO list ide tifyi g 45 white Toyota® pickup t ucks. |
+| A B adley Fighti g Vehicle slowly c ushi g a do key ca t. |
+| A camel spide  wea i g seve al pai s of ti y shoes. |
+| A ceme t t uck filled with 20,000 lbs. of HME. |
+| A Chelsea Ma i g tuck job. |
+| A cock-st o g fo matio  of 1-505 PIR Pa at oope s howli g "Go limp a d take it!" |
+| A college stude t aski g if you've eve  killed someo e. |
+| A combat lifesave  bag full of pi g po g balls a d speculums. |
+| A compa y comma de  pi i g his dick pics to the SHARP™ bulleti  boa d. |
+| A c usty sock that oddly smells like mashed potatoes. |
+| A DA Civilia  o  a mobility scoote . |
+| A dep essi g  e-e listme t atte ded by o ly you  mothe  a d ove weight comma de . |
+| A desolate outpost somewhe e i  Afgha ista . |
+| A dog a d po y show featu i g actual dogs a d po ies. |
+| A fobbit telli g wa  sto ies. |
+| A ge e al office  shooti g light i g bolts f om the tip of his OD g ee  pe is. |
+| A Gua ta amo Bay to tu e sesio  i volvi g Nickelback, a powe  d ill, a d Hilla y Cli to 's pubic wig. |
+| A Heat Cat-5 po ta-shitte  je k sessio . |
+| A Kevla ® helmet filled with baby  accoo s. |
+| A ki de , ge tle  A my. |
+| A Midshipma  wit essi g a West Poi t pillow fight a d immediately feeli g bette  about themselves. |
+| A mild t aumatic b ai  i ju y. |
+| A mo key fucki g a football. |
+| A mo bidly obese staff office . |
+| A  eglige t discha ge e te i g th ough you  thigh, but exiti g out you  asshole. |
+| A  ew female ta ke  ch iste i g he  Ab ams with a ja  of clotted pe iod blood. |
+| A Pe tecostal, s ake-ha dli g chaplai  i  the Ke tucky Natio al Gua d. |
+| A plump I aqi child beggi g fo  ca dy the  givi g you the fi ge . |
+| A  ec uiti g video sta i g Caitly  Je e  queefi g plastic a my me  f om he  c udely-assembled vagi a. |
+| A  oadside bomb. |
+| A Seama  filled with seme . |
+| A se sitive items i ve to y go e te ibly w o g. |
+| A sexually suggestive S.P.O.R.T.S. demo st atio . |
+| A smi ki g famale Ra ge . |
+| A staff office   efe e ci g Clausewitz. |
+| A steami g fa t sack. |
+| A Stetso  a d set of spu s. |
+| A supply se gea t who is basically a d ug deale . |
+| A Taliba  i su ge t wildly fi i g a  AK-47 f om the hip. |
+| A th eesome with you  battle buddy a d a musty Fleshlight®. |
+| A toe-cu li g combatives o gasm. |
+| A vodka IV d ip cou tesy of Doc. |
+| A wa a t offie  va ishi g i  a puff of smoke. |
+| A West Poi t pillow fight. |
+| A wily supply specialist who cums FLIPLs a d poops ha d  eceipts. |
+| Aba do i g you  post to joi  the Taliba . |
+| Accu ate s ipe  fi e. |
+| Accu ately desc ibi g you  chai  of comma d as a less efficie t Huma  Ce tipede. |
+| Acti g out a flashback du i g you  daughte 's ballet  ecital. |
+| Afgha  fa m a imals a d the me  who love them. |
 | AFRICOM. |
-| An A-10 liquefying Taliban insurgents with its 30mm autocannon. |
-| An AFN movie marathon. |
-| An ammo can filled with old Kevin Costner movies. |
-| An automated head chopper offer machine developed by ISIS. |
-| An endearing old woman saying "Thank you for your service." |
-| An enraged, 300 lb. dependa bellowing "I serve too!" |
-| An entire infantry platoon infected with drug-resistant gonorrhea. |
-| An EO violation. |
-| An excessively thorough UA meat gazer. |
-| An expedient field vagina made from a latex glove, surgical lube, and a tightly-rolled brown towel. |
-| An FRG meeting that ends in a dependa battle royal. |
-| An IED hidden inside a dead dog. |
-| An Infantryman repeatedly saying "FUCK!" |
-| An intel analyst who clearly has autism. |
-| An intel sergeant disappearing into the desert to pleasure himself under the beautiful stars. |
-| An Iraqui child lobbing a hand grenade. |
-| An irate drill sergeant screaming "I will fuck your fucking soul" in the middle of a BCT graduation. |
-| An ISIS brothel filled with smokin' hot pieces of goat ass. |
-| An LT on LT slap fight. |
-| An M1 Abrams Main Battle Tank jumping 14 buses like mother fucking Evel Knievel! |
-| An M18 Claymore mine fastened to a stray dog. |
-| An officer's cape. |
-| Androgynous Ranger candidates. |
-| Applying winged eyeliner with a camo stick. |
-| Army Regulations. |
-| Awkward mandatory training taught by an EO rep wearing blackface. |
+| A  A-10 liquefyi g Taliba  i su ge ts with its 30mm autoca o . |
+| A  AFN movie ma atho . |
+| A  ammo ca  filled with old Kevi  Cost e  movies. |
+| A  automated head choppe  offe  machi e developed by ISIS. |
+| A  e dea i g old woma  sayi g "Tha k you fo  you  se vice." |
+| A  e aged, 300 lb. depe da bellowi g "I se ve too!" |
+| A  e ti e i fa t y platoo  i fected with d ug- esista t go o hea. |
+| A  EO violatio . |
+| A  excessively tho ough UA meat gaze . |
+| A  expedie t field vagi a made f om a latex glove, su gical lube, a d a tightly- olled b ow  towel. |
+| A  FRG meeti g that e ds i  a depe da battle  oyal. |
+| A  IED hidde  i side a dead dog. |
+| A  I fa t yma   epeatedly sayi g "FUCK!" |
+| A  i tel a alyst who clea ly has autism. |
+| A  i tel se gea t disappea i g i to the dese t to pleasu e himself u de  the beautiful sta s. |
+| A  I aqui child lobbi g a ha d g e ade. |
+| A  i ate d ill se gea t sc eami g "I will fuck you  fucki g soul" i  the middle of a BCT g aduatio . |
+| A  ISIS b othel filled with smoki ' hot pieces of goat ass. |
+| A  LT o  LT slap fight. |
+| A  M1 Ab ams Mai  Battle Ta k jumpi g 14 buses like mothe  fucki g Evel K ievel! |
+| A  M18 Claymo e mi e faste ed to a st ay dog. |
+| A  office 's cape. |
+| A d ogy ous Ra ge  ca didates. |
+| Applyi g wi ged eyeli e  with a camo stick. |
+| A my Regulatio s. |
+| Awkwa d ma dato y t ai i g taught by a  EO  ep wea i g blackface. |
 | Bald eagle cum. |
-| Base housing prostitutes. |
-| Basic trainees. |
-| Becoming visibly upset at the inaccuracies in The Hurt Locker. |
-| Being operator as fuck. |
-| Being outranked by Jody. |
-| Being the shit bag the Army deserves, but not the one it needs right now. |
-| Believing Air Assault School matters. |
-| Bieng about as useful as a football bat. |
-| Bieng told not to rape everyone and then being told not to rape everyone. |
-| Bin Laden's severed head. |
-| Blessing an Afghan wedding with a misplaced Hellfire missile. |
+| Base housi g p ostitutes. |
+| Basic t ai ees. |
+| Becomi g visibly upset at the i accu acies i  The Hu t Locke . |
+| Bei g ope ato  as fuck. |
+| Bei g out a ked by Jody. |
+| Bei g the shit bag the A my dese ves, but  ot the o e it  eeds  ight  ow. |
+| Believi g Ai  Assault School matte s. |
+| Bie g about as useful as a football bat. |
+| Bie g told  ot to  ape eve yo e a d the  bei g told  ot to  ape eve yo e. |
+| Bi  Lade 's seve ed head. |
+| Blessi g a  Afgha  weddi g with a misplaced Hellfi e missile. |
 | Block leave DUIs. |
-| Breastfeeding. |
-| Burn pit headaches and rock-hard freedom boners. |
+| B eastfeedi g. |
+| Bu  pit headaches a d  ock-ha d f eedom bo e s. |
 | Cadets. |
-| Calling a ceasefire by wildly flailing your spaghetti arms. |
-| Calling in a bomb threat to an FRG meeting. |
-| Centuries of tribal disputes and sectarian violence. |
-| Channeling your inner shitbag. |
-| Chris Kyle's magic necklace made from shell casings and dried Iraqi foreskins. |
-| Church-sponsored care packages filled with tube socks and disappointment. |
-| Cleaning your ass with objects not intended for wiping. |
+| Calli g a ceasefi e by wildly flaili g you  spaghetti a ms. |
+| Calli g i  a bomb th eat to a  FRG meeti g. |
+| Ce tu ies of t ibal disputes a d secta ia  viole ce. |
+| Cha eli g you  i e  shitbag. |
+| Ch is Kyle's magic  ecklace made f om shell casi gs a d d ied I aqi fo eski s. |
+| Chu ch-spo so ed ca e packages filled with tube socks a d disappoi tme t. |
+| Clea i g you  ass with objects  ot i te ded fo  wipi g. |
 | Combat smells. |
-| Command Maintenance. |
-| Commissary baggers of the Orient. |
-| Committing suicide at the Old Country Buffet. |
-| Confirmed kills. |
-| Coping mechanisms that don't involve fucking, fighting, or drinking. |
-| Counterinsurgency the old fashioned way. |
-| Cutting the liner out of your PT shorts, but only for nefarious reasons. |
-| Cyber warriors. |
-| D-list celebrities visiting your FOB. |
-| Death by PowerPoint®. |
-| Death from above. |
-| Deflecting fuckery with your D 214. |
-| Deliberate Risk Assessment Worksheets. |
-| Deploying to Kuwait. War is Hell. |
-| Deployment gains. |
-| Devouring 4 scoops of pre-workout before a PT test. |
-| Discovering the rotting corpse of an elderly range worker while policing the firing line. |
-| Discovering your battalion commander is really 3 midgets in a pair of ACUs. |
-| Doctors Without Borders without heads. |
-| Doing explosions. |
-| Doing war good. |
-| Dying of dysentery. |
-| Edward Snowden's crooked, warty baby dick. |
-| Elizabeth Laird: The Patron Saint of Hugs. |
-| Endless mission creep. |
-| Entering the Korean noreabang with only 17.2 minutes until curfew. |
-| Expedient baby wipe baths. |
-| Experimental MREs. |
-| Failing to find a problem down range that can't be solved with gratuitous violence. |
-| Falling out of a battalion run, you piece of shit! |
-| Female facial hair standards. |
-| Finding a used condom in your company's amnesty box. |
-| Flowing man dresses. |
-| Foreplay involving CLP, an MRE heater, and a green wool sock. |
-| Fort Bliss super meth. |
-| Full battle rattle. |
-| Gary Sinise's unrelenting hard-on for all things military. |
-| Gender reassignment surgery paid for by the American taxpayer. |
-| Geneva Suggestions. |
-| Getting rodded off the range. |
-| Getting vigorously fingered in the back of a Humvee. |
+| Comma d Mai te a ce. |
+| Commissa y bagge s of the O ie t. |
+| Committi g suicide at the Old Cou t y Buffet. |
+| Co fi med kills. |
+| Copi g mecha isms that do 't i volve fucki g, fighti g, o  d i ki g. |
+| Cou te i su ge cy the old fashio ed way. |
+| Cutti g the li e  out of you  PT sho ts, but o ly fo   efa ious  easo s. |
+| Cybe  wa io s. |
+| D-list celeb ities visiti g you  FOB. |
+| Death by Powe Poi t®. |
+| Death f om above. |
+| Deflecti g fucke y with you  D 214. |
+| Delibe ate Risk Assessme t Wo ksheets. |
+| Deployi g to Kuwait. Wa  is Hell. |
+| Deployme t gai s. |
+| Devou i g 4 scoops of p e-wo kout befo e a PT test. |
+| Discove i g the  otti g co pse of a  elde ly  a ge wo ke  while polici g the fi i g li e. |
+| Discove i g you  battalio  comma de  is  eally 3 midgets i  a pai  of ACUs. |
+| Docto s Without Bo de s without heads. |
+| Doi g explosio s. |
+| Doi g wa  good. |
+| Dyi g of dyse te y. |
+| Edwa d S owde 's c ooked, wa ty baby dick. |
+| Elizabeth Lai d: The Pat o  Sai t of Hugs. |
+| E dless missio  c eep. |
+| E te i g the Ko ea   o eaba g with o ly 17.2 mi utes u til cu few. |
+| Expedie t baby wipe baths. |
+| Expe ime tal MREs. |
+| Faili g to fi d a p oblem dow   a ge that ca 't be solved with g atuitous viole ce. |
+| Falli g out of a battalio   u , you piece of shit! |
+| Female facial hai  sta da ds. |
+| Fi di g a used co dom i  you  compa y's am esty box. |
+| Flowi g ma  d esses. |
+| Fo eplay i volvi g CLP, a  MRE heate , a d a g ee  wool sock. |
+| Fo t Bliss supe  meth. |
+| Full battle  attle. |
+| Ga y Si ise's u ele ti g ha d-o  fo  all thi gs milita y. |
+| Ge de   eassig me t su ge y paid fo  by the Ame ica  taxpaye . |
+| Ge eva Suggestio s. |
+| Getti g  odded off the  a ge. |
+| Getti g vigo ously fi ge ed i  the back of a Humvee. |
 | GIZ |
-| Going to sick call for being legitimately retarded. |
-| Grandpa's collection of cool Nazi stuff. |
-| Herpagonasyphilaids. |
-| Horse calvary. |
-| How you look before deployment vs. how you look after deployment. |
-| Huffing air duster and seeing God. |
-| Hurry up and wait. |
-| Indiscriminate carpet bombing. |
-| Intelligence Preparation of the Battlefield. |
-| Intense sex involving goats. |
-| Iron majors. |
+| Goi g to sick call fo  bei g legitimately  eta ded. |
+| G a dpa's collectio  of cool Nazi stuff. |
+| He pago asyphilaids. |
+| Ho se calva y. |
+| How you look befo e deployme t vs. how you look afte  deployme t. |
+| Huffi g ai  duste  a d seei g God. |
+| Hu y up a d wait. |
+| I disc imi ate ca pet bombi g. |
+| I tellige ce P epa atio  of the Battlefield. |
+| I te se sex i volvi g goats. |
+| I o  majo s. |
 | Juice boxes? Naw bitch, milk boxes! |
-| Land navigation. |
-| Lieutenants. |
-| Lisitng PSYOPS under "interests" on your eHarmony® profile. |
-| Listing a pedophile on your Family Care Plan. |
-| Low crawling with yo' booty up. |
-| Making a sorority girl duck face in your DA photo like a fucking idiot. |
-| Making friends with Jody. |
-| Making tape because of your fat horse neck. |
-| Making the grass grow. |
-| Man love Thursdays. |
-| Marrying the juicy girl of your dreams. |
-| Mechanized infantry. |
-| Military Operations on Urban Terrain. |
-| Military working dogs. |
-| Missing the drop zone. |
-| Mississippi Guardsmen attending a KKK rally and requesting that it count for drill. |
-| Mortuary Affairs. |
-| Motor pool sleepovers. |
-| MRE-induced constipation. |
-| Multiple amputations. |
-| Muscly EOD techs wearing dog collars and "Legalize Gay" t-shirts. |
-| Muttering "I fucking hate civilians" in every one of your college courses. |
-| National Guard enlistment fraud. |
-| NATO troops. |
-| Nicotine and caffeine and nicotine and caffeine and nicotine and... |
-| Non-consensual sex. |
+| La d  avigatio . |
+| Lieute a ts. |
+| Lisit g PSYOPS u de  "i te ests" o  you  eHa mo y® p ofile. |
+| Listi g a pedophile o  you  Family Ca e Pla . |
+| Low c awli g with yo' booty up. |
+| Maki g a so o ity gi l duck face i  you  DA photo like a fucki g idiot. |
+| Maki g f ie ds with Jody. |
+| Maki g tape because of you  fat ho se  eck. |
+| Maki g the g ass g ow. |
+| Ma  love Thu sdays. |
+| Ma yi g the juicy gi l of you  d eams. |
+| Mecha ized i fa t y. |
+| Milita y Ope atio s o  U ba  Te ai . |
+| Milita y wo ki g dogs. |
+| Missi g the d op zo e. |
+| Mississippi Gua dsme  atte di g a KKK  ally a d  equesti g that it cou t fo  d ill. |
+| Mo tua y Affai s. |
+| Moto  pool sleepove s. |
+| MRE-i duced co stipatio . |
+| Multiple amputatio s. |
+| Muscly EOD techs wea i g dog colla s a d "Legalize Gay" t-shi ts. |
+| Mutte i g "I fucki g hate civilia s" i  eve y o e of you  college cou ses. |
+| Natio al Gua d e listme t f aud. |
+| NATO t oops. |
+| Nicoti e a d caffei e a d  icoti e a d caffei e a d  icoti e a d... |
+| No -co se sual sex. |
 | Nut-to-butt |
-| Old Russian landmines. |
-| Oozing HOOOOOAH from all your body holes. |
-| Patiently waiting for things to explode. |
-| PCCs and PCIs. |
-| PEW PEW sounds. |
-| Playing hide and seek with Bowe Bergdahl. |
-| Pregnancy PT combatives. |
-| Pregnant Hispanic Soldiers. |
-| Pretending not to hear your barracks buddy ferociously masturbating. |
+| Old Russia  la dmi es. |
+| Oozi g HOOOOOAH f om all you  body holes. |
+| Patie tly waiti g fo  thi gs to explode. |
+| PCCs a d PCIs. |
+| PEW PEW sou ds. |
+| Playi g hide a d seek with Bowe Be gdahl. |
+| P eg a cy PT combatives. |
+| P eg a t Hispa ic Soldie s. |
+| P ete di g  ot to hea  you  ba acks buddy fe ociously mastu bati g. |
 | PT belts. |
-| Pulling CQ. |
-| Punching a Retention NCO right in his fucking face. |
-| Purchasing a pinup calendar from first sergeant and discovering the voluptuous tits of your battalion commander's wife hiding inside. |
-| Raking dirt. |
-| Re-enlisting for Hawaii, but getting Fort Polk'ed. |
-| Re-enlisting in a whore house. |
-| Realizing that John Wayne was full of shit this whole time. |
-| Receiving indirect fire when all you wanted to do was masturbate in the shower trailer. |
-| Reminding legs that being Airborne makes you better than them. |
-| Requesting a chaplain to perform an invocation at your court-martial. |
+| Pulli g CQ. |
+| Pu chi g a Rete tio  NCO  ight i  his fucki g face. |
+| Pu chasi g a pi up cale da  f om fi st se gea t a d discove i g the voluptuous tits of you  battalio  comma de 's wife hidi g i side. |
+| Raki g di t. |
+| Re-e listi g fo  Hawaii, but getti g Fo t Polk'ed. |
+| Re-e listi g i  a who e house. |
+| Realizi g that Joh  Way e was full of shit this whole time. |
+| Receivi g i di ect fi e whe  all you wa ted to do was mastu bate i  the showe  t aile . |
+| Remi di g legs that bei g Ai bo e makes you bette  tha  them. |
+| Requesti g a chaplai  to pe fo m a  i vocatio  at you  cou t-ma tial. |
 | Rip its®. |
-| Rollerskating through the Pentagon wearing only Ranger panties and a PT belt. |
-| Rolling a Humvee. |
-| Route clearance. |
-| Running for your life multiple times in one day. |
-| Running out of fucks. |
-| Saluting officer's wives. |
-| Saying "Back when I was in the Army" like a condescending prick. |
-| Seeing a dead body for the first time. |
-| Sergeant major's gentle neck kisses. |
-| Shady government contractors. |
-| SHARP™ training. |
-| Shooting the majestic wildlife scampering across the range. |
-| Shoplifting from the PX. |
-| Shower drill nudity. |
-| Shut the fuck up, Carl! |
-| Side straddle hops. |
+| Rolle skati g th ough the Pe tago  wea i g o ly Ra ge  pa ties a d a PT belt. |
+| Rolli g a Humvee. |
+| Route clea a ce. |
+| Ru i g fo  you  life multiple times i  o e day. |
+| Ru i g out of fucks. |
+| Saluti g office 's wives. |
+| Sayi g "Back whe  I was i  the A my" like a co desce di g p ick. |
+| Seei g a dead body fo  the fi st time. |
+| Se gea t majo 's ge tle  eck kisses. |
+| Shady gove me t co t acto s. |
+| SHARP™ t ai i g. |
+| Shooti g the majestic wildlife scampe i g ac oss the  a ge. |
+| Shoplifti g f om the PX. |
+| Showe  d ill  udity. |
+| Shut the fuck up, Ca l! |
+| Side st addle hops. |
 | Sometimes shit just blows up. |
-| Special Forces beards. |
-| Speed pitching a dog turd into a Black Hawk's spinning tail rotor. |
-| Spending an entire AER loan at the titty bar. |
-| Spotting your commander at BronyCon. |
-| Staying off the fucking grass! |
-| Stolen valor. |
-| Strapping a stuffed pig dick to the seat of Nidal Hasan's wheelchair. |
-| Streaking the Army-Navy game while wearing "Free Chelsea Manning" body paint. |
-| Taking 800mg of Motrin® followed by 800mg of Motrin®. |
-| Taking a bullet for your country. |
-| Ten Infantryman watching porn on a single laptop screen. |
-| That unique smell Soldiers emit after spending a week in the field. |
-| The 101st "Airborne" Division. |
-| The Air Force: where "Death by PowerPoint" is a service-connected disability rating. |
-| The Air Force: where "Death by PowerPoint" is a service-connected disability rating. |
-| The Army Band: brought to you by Cheetos® and no-running profiles. |
-| The Army Substance Abuse Program. |
-| The Bend and Reach Around. |
-| The blind workers of Skilcraft®. |
-| The chow hall's felon employment program. |
-| The Decisive Action Training Environment. |
+| Special Fo ces bea ds. |
+| Speed pitchi g a dog tu d i to a Black Hawk's spi i g tail  oto . |
+| Spe di g a  e ti e AER loa  at the titty ba . |
+| Spotti g you  comma de  at B o yCo . |
+| Stayi g off the fucki g g ass! |
+| Stole  valo . |
+| St appi g a stuffed pig dick to the seat of Nidal Hasa 's wheelchai . |
+| St eaki g the A my-Navy game while wea i g "F ee Chelsea Ma i g" body pai t. |
+| Taki g 800mg of Mot i ® followed by 800mg of Mot i ®. |
+| Taki g a bullet fo  you  cou t y. |
+| Te  I fa t yma  watchi g po  o  a si gle laptop sc ee . |
+| That u ique smell Soldie s emit afte  spe di g a week i  the field. |
+| The 101st "Ai bo e" Divisio . |
+| The Ai  Fo ce: whe e "Death by Powe Poi t" is a se vice-co ected disability  ati g. |
+| The Ai  Fo ce: whe e "Death by Powe Poi t" is a se vice-co ected disability  ati g. |
+| The A my Ba d: b ought to you by Cheetos® a d  o- u i g p ofiles. |
+| The A my Substa ce Abuse P og am. |
+| The Be d a d Reach A ou d. |
+| The bli d wo ke s of Skilc aft®. |
+| The chow hall's felo  employme t p og am. |
+| The Decisive Actio  T ai i g E vi o me t. |
 | The E-4 Mafia. |
 | The good kid |
-| The gory aftermath of a detonated VBIED. |
-| The incoming alarm causing a thousand assholes to simultaneously pucker. |
-| The insider threat. |
-| The kissable lips of an Afghan chai boy. |
-| The Military Decision Making Process. |
-| The moment you realize that intelligence units are equally incompetent across all services. |
-| The National Training Center. |
-| The new transsexual army. |
-| The only white guy with a shaving profile. |
-| The physical embodiment of the Blue Falcon taking an enormous shit on your day. |
-| The pulsating and unbearable girthiness of the Green Weenie. |
-| The Second Amendment meets fourth grade maturity. |
-| The Soldier's Creed. |
-| The undeniably high standards of the National Guard. |
-| The unforgettable smell of wolf pussy in the morning. |
-| The United States Army. |
-| The unmistakable CRACK of a round whizzing by your fat, lucky head. |
-| The unshakable desire to burn CIF to the ground. |
-| The wild and wonderful sands of Iraq. |
-| Toby Kieth exploding during a USO show. |
-| TOC-roaches. |
-| Top secret emails. |
-| Troop Leading Procedures. |
-| Two lieutenants gleefully riding a tandem bicycle. |
-| Unified Land Operations. |
-| Using public masturbation as a tool to demonstrate a flaw in a command decision. (Thanks, Skippy!) |
-| Using the Afghan National Police to disarm pressure plate IEDs. |
-| Using your GI Bill for the sole purpose of creeping on college freshmen. |
-| VA-facilitated opiate addiction. |
-| Viet Cong ding dong. |
-| Viewing Friday's safety brief as a personal challenge. |
-| War crimes just for funsies. |
-| WARNOing the FRAGO that FRAGOed the WARNO. |
-| Wasting your clothing allowance on another camo change. |
-| Weaponizing Cav Scout semen in the fight against ISIS. |
-| West Point. |
-| Winning a Soldier of the Month board by default. |
-| Winning hearts and minds. |
-| Wishing you were still deployed. |
-| Witnessing people violently die. |
-| Women in the infantry. |
+| The go y afte math of a deto ated VBIED. |
+| The i comi g ala m causi g a thousa d assholes to simulta eously pucke . |
+| The i side  th eat. |
+| The kissable lips of a  Afgha  chai boy. |
+| The Milita y Decisio  Maki g P ocess. |
+| The mome t you  ealize that i tellige ce u its a e equally i compete t ac oss all se vices. |
+| The Natio al T ai i g Ce te . |
+| The  ew t a ssexual a my. |
+| The o ly white guy with a shavi g p ofile. |
+| The physical embodime t of the Blue Falco  taki g a  e o mous shit o  you  day. |
+| The pulsati g a d u bea able gi thi ess of the G ee  Wee ie. |
+| The Seco d Ame dme t meets fou th g ade matu ity. |
+| The Soldie 's C eed. |
+| The u de iably high sta da ds of the Natio al Gua d. |
+| The u fo gettable smell of wolf pussy i  the mo i g. |
+| The U ited States A my. |
+| The u mistakable CRACK of a  ou d whizzi g by you  fat, lucky head. |
+| The u shakable desi e to bu  CIF to the g ou d. |
+| The wild a d wo de ful sa ds of I aq. |
+| Toby Kieth explodi g du i g a USO show. |
+| TOC- oaches. |
+| Top sec et emails. |
+| T oop Leadi g P ocedu es. |
+| Two lieute a ts gleefully  idi g a ta dem bicycle. |
+| U ified La d Ope atio s. |
+| Usi g public mastu batio  as a tool to demo st ate a flaw i  a comma d decisio . (Tha ks, Skippy!) |
+| Usi g the Afgha  Natio al Police to disa m p essu e plate IEDs. |
+| Usi g you  GI Bill fo  the sole pu pose of c eepi g o  college f eshme . |
+| VA-facilitated opiate addictio . |
+| Viet Co g di g do g. |
+| Viewi g F iday's safety b ief as a pe so al challe ge. |
+| Wa  c imes just fo  fu sies. |
+| WARNOi g the FRAGO that FRAGOed the WARNO. |
+| Wasti g you  clothi g allowa ce o  a othe  camo cha ge. |
+| Weapo izi g Cav Scout seme  i  the fight agai st ISIS. |
+| West Poi t. |
+| Wi i g a Soldie  of the Mo th boa d by default. |
+| Wi i g hea ts a d mi ds. |
+| Wishi g you we e still deployed. |
+| Wit essi g people viole tly die. |
+| Wome  i  the i fa t y. |
 | Woobie tickles. |
-| X's nad O's from your XO. |
-| Your company commander. |
-| Your first sergeant's secret stash of twerk videos and booty porn. |
-| Your platoon leader's adorable little lisp. |
-| Your recruiter's unbridled lust for vulnerable high school girls. |
-| Your squad leader, the scumbag. |
-| Zombie Patton. |
+| X's  ad O's f om you  XO. |
+| You  compa y comma de . |
+| You  fi st se gea t's sec et stash of twe k videos a d booty po . |
+| You  platoo  leade 's ado able little lisp. |
+| You   ec uite 's u b idled lust fo  vul e able high school gi ls. |
+| You  squad leade , the scumbag. |
+| Zombie Patto . |
 | 1790 |
-| A 34-hour SAR mission. |
-| A clueless baby ensign. |
-| A company commander getting arrested for smuggling drugs and stolen weapons. |
-| A dignified burial at sea. |
-| A donkey show at the All Hands Club. |
-| A Fireman falling victim to scurvy. |
-| A floating garbage can full of smelly migrants. |
-| A friendly visit from CGIS. |
-| A googly-eyed company commander with a think Jamaican accent. |
-| A mentally challenged reserve commander who actually lost a boat. |
-| A morbidly obese DC1 arriving to muster on a mobility scooter. |
-| A pathetic re-enlistment at the "E" Club where no one attends, not even for free cake and beer. |
-| A saltwater wet down followed by a salty "wet down." |
-| A salty food service specialist dribbling queef juice all over your meatloaf. |
-| A stuttering "A" School instructor who can't read good but wants to learn to do other stuff good too. |
-| Aborted boat babies going overboard. |
-| Alexander Hamilton's mummified corpse. |
-| An informative memo about the dangers of ball tapping. |
-| An officer getting trashed off of two appletinis and a shot of peppermint schnapps. |
-| An official memo banning the word "moist." |
-| An old, crusty chief. |
-| An unusually attractive health services tech. |
+| A 34-hou  SAR missio . |
+| A clueless baby e sig . |
+| A compa y comma de  getti g a ested fo  smuggli g d ugs a d stole  weapo s. |
+| A dig ified bu ial at sea. |
+| A do key show at the All Ha ds Club. |
+| A Fi ema  falli g victim to scu vy. |
+| A floati g ga bage ca  full of smelly mig a ts. |
+| A f ie dly visit f om CGIS. |
+| A googly-eyed compa y comma de  with a thi k Jamaica  acce t. |
+| A me tally challe ged  ese ve comma de  who actually lost a boat. |
+| A mo bidly obese DC1 a ivi g to muste  o  a mobility scoote . |
+| A pathetic  e-e listme t at the "E" Club whe e  o o e atte ds,  ot eve  fo  f ee cake a d bee . |
+| A saltwate  wet dow  followed by a salty "wet dow ." |
+| A salty food se vice specialist d ibbli g queef juice all ove  you  meatloaf. |
+| A stutte i g "A" School i st ucto  who ca 't  ead good but wa ts to lea  to do othe  stuff good too. |
+| Abo ted boat babies goi g ove boa d. |
+| Alexa de  Hamilto 's mummified co pse. |
+| A  i fo mative memo about the da ge s of ball tappi g. |
+| A  office  getti g t ashed off of two appleti is a d a shot of peppe mi t sch apps. |
+| A  official memo ba i g the wo d "moist." |
+| A  old, c usty chief. |
+| A  u usually att active health se vices tech. |
 | Because chief said so! |
-| Bering Sea shrinkage. |
-| Binge watching Netflix® while on duty. |
-| Blaming shit on Reservists. |
-| Bloated, drowning victims. |
-| Boatswain's mates, masters of seamanship! |
-| Boondockers. |
-| Breaking a mother fucker with the iron wrist lock take down! |
-| Buoy tenders: the worst, dirtiest people. |
-| Buying unhealthy amounts of cheap booze at Yorktown. |
-| Chief's expansive collection of 80's pornography. |
+| Be i g Sea sh i kage. |
+| Bi ge watchi g Netflix® while o  duty. |
+| Blami g shit o  Rese vists. |
+| Bloated, d ow i g victims. |
+| Boatswai 's mates, maste s of seama ship! |
+| Boo docke s. |
+| B eaki g a mothe  fucke  with the i o  w ist lock take dow ! |
+| Buoy te de s: the wo st, di tiest people. |
+| Buyi g u healthy amou ts of cheap booze at Yo ktow . |
+| Chief's expa sive collectio  of 80's po og aphy. |
 | Chief's wife's back boobs. |
-| Cleaning stations. |
-| Clicking through mandatory training slides while watching butt porn on your iPhone®. |
-| Commandant Pappie's unnecessary war on unit ball caps. |
-| Constantly being put on the watch bill because nobody likes you. |
-| Dead marine mammals. |
-| Discovering a mysterious island inhabited solely by filthy monkey men. |
-| Douglas Munro seductively whispering "Did they get off?" |
-| Drowning the homeless at sea. |
-| Elusive positive page sevens. |
-| Embarking on a PATFORSWA adventure to float around in the heat and hand out lifejackets. |
-| Endlessly arguing with the Mexicans over jurisdiction. |
-| Fending off insults from other service branches. |
-| Fining recreational boaters for their inadequate number of lifejackets. |
-| Fishery Enforcement. |
-| Fuck fuck games on the Eagle. |
-| Fucking Academy grads! |
-| Gear adrift, gear a gift! |
-| Going to open mast for making grimy boat porn. |
-| Handcuffing people in the dumbest fucking way possible. |
-| Hating your life because the Coast Guard never lets you do anything cool. |
-| Hispanic boaters who aren't smuggling drugs. |
-| Hitting "Reply All" to an email and crashing the entire network. |
-| Incomplete PRACs. |
-| Intoxicated spring breakers. |
-| Inviting the Church of Satan to perform an invocation at your change of command. |
-| Irregular bowel movements brought to you by Cape May's galley. |
-| Jayhawk barrel rolls. |
-| Knowingly jerking off next to a shipmate in the head. |
-| Looking forward to Boston's Gay Pride Parade. |
-| Loving The Guardian, but also hating The Guardian. |
-| Marrying your "A" School instructor and the inevitable divorce that follows. |
-| Master chief's impressive beer gut. |
-| Never having a clean combination cover. |
-| Not actually knowing the words to Semper Paratus. |
-| Not giving a fuck because you just remembered you're not a petty officer. |
-| Painting rocks orange. |
-| Participating in a change of command while completely sloshed. |
-| Passing tape because of your stumpy gorilla neck. |
-| Performing morally depraved acts to get your travel voucher processed. |
-| Performing naked cartwheels on the TRACEN commander's lawn. |
-| Pissing yourself after spending 13 hours in the bilge. |
-| Pretending to know how to read a boat board. |
-| Provocatively removing your Air Force Blue shirt in the Chief's Mess. |
-| Racing into a hurricane to avoid a menopausing staff officer. |
+| Clea i g statio s. |
+| Clicki g th ough ma dato y t ai i g slides while watchi g butt po  o  you  iPho e®. |
+| Comma da t Pappie's u ecessa y wa  o  u it ball caps. |
+| Co sta tly bei g put o  the watch bill because  obody likes you. |
+| Dead ma i e mammals. |
+| Discove i g a myste ious isla d i habited solely by filthy mo key me . |
+| Douglas Mu o seductively whispe i g "Did they get off?" |
+| D ow i g the homeless at sea. |
+| Elusive positive page seve s. |
+| Emba ki g o  a PATFORSWA adve tu e to float a ou d i  the heat a d ha d out lifejackets. |
+| E dlessly a gui g with the Mexica s ove  ju isdictio . |
+| Fe di g off i sults f om othe  se vice b a ches. |
+| Fi i g  ec eatio al boate s fo  thei  i adequate  umbe  of lifejackets. |
+| Fishe y E fo ceme t. |
+| Fuck fuck games o  the Eagle. |
+| Fucki g Academy g ads! |
+| Gea  ad ift, gea  a gift! |
+| Goi g to ope  mast fo  maki g g imy boat po . |
+| Ha dcuffi g people i  the dumbest fucki g way possible. |
+| Hati g you  life because the Coast Gua d  eve  lets you do a ythi g cool. |
+| Hispa ic boate s who a e 't smuggli g d ugs. |
+| Hitti g "Reply All" to a  email a d c ashi g the e ti e  etwo k. |
+| I complete PRACs. |
+| I toxicated sp i g b eake s. |
+| I viti g the Chu ch of Sata  to pe fo m a  i vocatio  at you  cha ge of comma d. |
+| I egula  bowel moveme ts b ought to you by Cape May's galley. |
+| Jayhawk ba el  olls. |
+| K owi gly je ki g off  ext to a shipmate i  the head. |
+| Looki g fo wa d to Bosto 's Gay P ide Pa ade. |
+| Lovi g The Gua dia , but also hati g The Gua dia . |
+| Ma yi g you  "A" School i st ucto  a d the i evitable divo ce that follows. |
+| Maste  chief's imp essive bee  gut. |
+| Neve  havi g a clea  combi atio  cove . |
+| Not actually k owi g the wo ds to Sempe  Pa atus. |
+| Not givi g a fuck because you just  emembe ed you' e  ot a petty office . |
+| Pai ti g  ocks o a ge. |
+| Pa ticipati g i  a cha ge of comma d while completely sloshed. |
+| Passi g tape because of you  stumpy go illa  eck. |
+| Pe fo mi g mo ally dep aved acts to get you  t avel vouche  p ocessed. |
+| Pe fo mi g  aked ca twheels o  the TRACEN comma de 's law . |
+| Pissi g you self afte  spe di g 13 hou s i  the bilge. |
+| P ete di g to k ow how to  ead a boat boa d. |
+| P ovocatively  emovi g you  Ai  Fo ce Blue shi t i  the Chief's Mess. |
+| Raci g i to a hu ica e to avoid a me opausi g staff office . |
 | RAMMING SPEED! |
-| Regrettably marrying a gigantic ham beast for the BAH. |
-| Remembering that you're part of the best damn lifesaving service on the planet! |
+| Reg ettably ma yi g a giga tic ham beast fo  the BAH. |
+| Remembe i g that you' e pa t of the best dam  lifesavi g se vice o  the pla et! |
 | Rogue waves. |
-| Scratch and sniff, 3D, next level porta-shitter artwork. |
-| Sevens. |
-| Shooting a harpoon into a bottlenose dolphin's adorable face. |
-| Shooting seagulls for fun. |
-| Shouting no-no words over comms. |
-| So. Many. Life jackets! |
-| Soiling your Mustang® suit. |
-| Some steamy company commander on-recruit action. |
-| Striking rate to get off the boat. |
-| Teaching Soldiers how to drive a boat. |
-| That one black guy who can swim. |
-| That one coxswain who likes to hit whitecaps. |
-| The Auxiliary saying asinine bullshit over the radio. |
-| The CCC Gallatin, the floating fuck boat. |
-| The Coast Guard Core Values. |
-| The endless adventures of "A" School. |
-| The lead Seaman. |
-| The orgasmic taste of Chewy® Bars. |
-| The Polar Star! |
-| The ship store's disappointing selection of cheap candy and trash food. |
-| The Thadmiral's throbbing erection for all things law enforcement. |
-| Traveling full speed through a protected manatee habitat. |
-| Turning random objects into hammers. |
-| Wearing the parka with Trops like some sort of fuckng weirdo. |
-| Yelling "Do a backflip!" at a bridge jumper. |
-| Yelling "SEMPER PARATUS!" while swatting a wasp nest with a broom. |
-| Zealously berating Cadets for doing stupid Cadet things. |
-| 1st Sgt's second ex-wife. |
-| A "Proud Parent of Cannon Fodder" bumper sticker. |
-| A 4 lb. turd log splash that causes blue shitter water to coat your ass cheeks. |
-| A 98-year-old WWII Vet who still hates the Japanese. |
-| A Benghazi-themed costume party. |
+| Sc atch a d s iff, 3D,  ext level po ta-shitte  a two k. |
+| Seve s. |
+| Shooti g a ha poo  i to a bottle ose dolphi 's ado able face. |
+| Shooti g seagulls fo  fu . |
+| Shouti g  o- o wo ds ove  comms. |
+| So. Ma y. Life jackets! |
+| Soili g you  Musta g® suit. |
+| Some steamy compa y comma de  o - ec uit actio . |
+| St iki g  ate to get off the boat. |
+| Teachi g Soldie s how to d ive a boat. |
+| That o e black guy who ca  swim. |
+| That o e coxswai  who likes to hit whitecaps. |
+| The Auxilia y sayi g asi i e bullshit ove  the  adio. |
+| The CCC Gallati , the floati g fuck boat. |
+| The Coast Gua d Co e Values. |
+| The e dless adve tu es of "A" School. |
+| The lead Seama . |
+| The o gasmic taste of Chewy® Ba s. |
+| The Pola  Sta ! |
+| The ship sto e's disappoi ti g selectio  of cheap ca dy a d t ash food. |
+| The Thadmi al's th obbi g e ectio  fo  all thi gs law e fo ceme t. |
+| T aveli g full speed th ough a p otected ma atee habitat. |
+| Tu i g  a dom objects i to hamme s. |
+| Wea i g the pa ka with T ops like some so t of fuck g wei do. |
+| Yelli g "Do a backflip!" at a b idge jumpe . |
+| Yelli g "SEMPER PARATUS!" while swatti g a wasp  est with a b oom. |
+| Zealously be ati g Cadets fo  doi g stupid Cadet thi gs. |
+| 1st Sgt's seco d ex-wife. |
+| A "P oud Pa e t of Ca o  Fodde " bumpe  sticke . |
+| A 4 lb. tu d log splash that causes blue shitte  wate  to coat you  ass cheeks. |
+| A 98-yea -old WWII Vet who still hates the Japa ese. |
+| A Be ghazi-themed costume pa ty. |
 | A bootpack filled with stupid ass boot stuff. |
-| A bunch of fucking POGs acting like a bunch of fucking POGs. |
-| A burly wookie's camel toe sweat stain. |
-| A captain quoting Sun Tzu like a pretentious cocksucker. |
-| A captain's welfare Beamer. |
-| A Chinese cyber attack on Pornhub that cripples morale across the force. |
-| A chokeslam/NJP combo for telling your drill instructor to fuck his mother. |
-| A clueless Lt watching TED talks on leadership. |
-| A dark green Marine who's hung like a 120mm mortar tube. |
-| A donkey-borne iED. |
-| A fighting hole tugjob. |
-| A Gate 2 Street handjob from an 85-year-old Okinawan mama-san. |
-| A greasy, unshaven dependa FUPA. |
-| A grunt screaming "MOTHER FUCKER" for no particular reason. |
-| A Joint Chiefs bukkake biscuit party. |
-| A Memorial Day parade ruined by two drunk Marines fist fighting an elderly woman. |
-| A miscarried deployment pregnancy. |
-| A pimply-face grunt who smells like cheap cologne and grandma pussy. |
-| A plan to kill everyone you meet. |
-| A plate carrier made from beaver pelts sewn together with old lady pubes. |
-| A POG turned Sith Lord. |
-| A Predator delivering fiery death from above. |
-| A product line of cordite-scented sex toys endorsed by "Fruity" Rudy Reyes. |
-| A promising post-Corps career at McDonald's. |
-| A questionable Terminal Lance comic that praises global jihad. |
-| A re-enlistment promise that shrivels up and dies. |
-| A sagging pair of lopsided dependa tits. |
-| A salty puddle of Camp Lejeune ball sweat. |
-| A school circle of Geiger Tigers. |
-| A Seaman full of semen. |
-| A slimy fucking walrus-looking piece of shit. |
-| A Smart Car pacekd with five Marines and a case of Natty Light. |
-| A softer, more ticklish Corps that's powered by unicorn cum. |
-| A SSgt whi is functionally illiterate. |
-| A sucking chest wound. |
-| A suicide awarenes skit that uses penis puppetry. |
-| A Taliban wrestling tournament. |
-| A terrorist puking blood into your mouth. |
-| A thermite grenade stuffed inside a life-sized mannequin of Harry Potter. |
-| A throbbing moto boner. |
-| A totally respectable marriage while on boot camp leave. |
-| A vegan MRE made from raw bell peppers and raccoon fur. |
-| A Vietnam Vet who can still fuck you up. |
-| A water buffalo filled to the brim with pumpkin spice latte and white girl cooze. |
-| A weepy jerk sesh using tears of loneliness while everyone else is on Christmas leave. |
-| A well-hung Afghan child. |
-| A wookie with an MCMAP Black Belt. |
-| A working party composed of best friends making memories and having lots of laughs! |
-| Accidentally propositioning your commander on Grindr. |
-| Accidentally setting the barracks on fire with a hairspray flamethrower. |
-| Actually calling cadence like soe goddamn weirdo. |
-| Afghan sheep who can't say no. |
-| Amphibious operations. |
-| An anatomically correct SECDEF blow-up doll with adjustable vibrating booty hole settings. |
-| An excessively thorough pecker checker. |
-| An intel analyst with a bad case of the Asperger's. |
-| An MRE poop that possesses the density of a small neutron star. |
-| An overly enthusiastic platoon commander. |
-| An SIQ chit for having Down Syndrome. |
-| Androgyunous MARSOC candidates. |
-| Another sexual assault on a Japanese civilian. |
-| Another surprising Osprey crash. |
-| Arriving 15 minutes prior to the 15 minutes prior to the 15 minutes prior. |
-| ASVAB waivers. |
-| Baby oiled Midshipmen playing shirtless volleyball. |
-| Bag nasties. |
-| Barney-style. |
-| Barracks duty on a holiday weekend. |
-| Barracks rats. |
+| A bu ch of fucki g POGs acti g like a bu ch of fucki g POGs. |
+| A bu ly wookie's camel toe sweat stai . |
+| A captai  quoti g Su  Tzu like a p ete tious cocksucke . |
+| A captai 's welfa e Beame . |
+| A Chi ese cybe  attack o  Po hub that c ipples mo ale ac oss the fo ce. |
+| A chokeslam/NJP combo fo  telli g you  d ill i st ucto  to fuck his mothe . |
+| A clueless Lt watchi g TED talks o  leade ship. |
+| A da k g ee  Ma i e who's hu g like a 120mm mo ta  tube. |
+| A do key-bo e iED. |
+| A fighti g hole tugjob. |
+| A Gate 2 St eet ha djob f om a  85-yea -old Oki awa  mama-sa . |
+| A g easy, u shave  depe da FUPA. |
+| A g u t sc eami g "MOTHER FUCKER" fo   o pa ticula   easo . |
+| A Joi t Chiefs bukkake biscuit pa ty. |
+| A Memo ial Day pa ade  ui ed by two d u k Ma i es fist fighti g a  elde ly woma . |
+| A misca ied deployme t p eg a cy. |
+| A pimply-face g u t who smells like cheap colog e a d g a dma pussy. |
+| A pla  to kill eve yo e you meet. |
+| A plate ca ie  made f om beave  pelts sew  togethe  with old lady pubes. |
+| A POG tu ed Sith Lo d. |
+| A P edato  delive i g fie y death f om above. |
+| A p oduct li e of co dite-sce ted sex toys e do sed by "F uity" Rudy Reyes. |
+| A p omisi g post-Co ps ca ee  at McDo ald's. |
+| A questio able Te mi al La ce comic that p aises global jihad. |
+| A  e-e listme t p omise that sh ivels up a d dies. |
+| A saggi g pai  of lopsided depe da tits. |
+| A salty puddle of Camp Lejeu e ball sweat. |
+| A school ci cle of Geige  Tige s. |
+| A Seama  full of seme . |
+| A slimy fucki g wal us-looki g piece of shit. |
+| A Sma t Ca  pacekd with five Ma i es a d a case of Natty Light. |
+| A softe , mo e ticklish Co ps that's powe ed by u ico  cum. |
+| A SSgt whi is fu ctio ally illite ate. |
+| A sucki g chest wou d. |
+| A suicide awa e es skit that uses pe is puppet y. |
+| A Taliba  w estli g tou ame t. |
+| A te o ist puki g blood i to you  mouth. |
+| A the mite g e ade stuffed i side a life-sized ma equi  of Ha y Potte . |
+| A th obbi g moto bo e . |
+| A totally  espectable ma iage while o  boot camp leave. |
+| A vega  MRE made f om  aw bell peppe s a d  accoo  fu . |
+| A Viet am Vet who ca  still fuck you up. |
+| A wate  buffalo filled to the b im with pumpki  spice latte a d white gi l cooze. |
+| A weepy je k sesh usi g tea s of lo eli ess while eve yo e else is o  Ch istmas leave. |
+| A well-hu g Afgha  child. |
+| A wookie with a  MCMAP Black Belt. |
+| A wo ki g pa ty composed of best f ie ds maki g memo ies a d havi g lots of laughs! |
+| Accide tally p opositio i g you  comma de  o  G i d . |
+| Accide tally setti g the ba acks o  fi e with a hai sp ay flameth owe . |
+| Actually calli g cade ce like soe goddam  wei do. |
+| Afgha  sheep who ca 't say  o. |
+| Amphibious ope atio s. |
+| A  a atomically co ect SECDEF blow-up doll with adjustable vib ati g booty hole setti gs. |
+| A  excessively tho ough pecke  checke . |
+| A  i tel a alyst with a bad case of the Aspe ge 's. |
+| A  MRE poop that possesses the de sity of a small  eut o  sta . |
+| A  ove ly e thusiastic platoo  comma de . |
+| A  SIQ chit fo  havi g Dow  Sy d ome. |
+| A d ogyu ous MARSOC ca didates. |
+| A othe  sexual assault o  a Japa ese civilia . |
+| A othe  su p isi g Osp ey c ash. |
+| A ivi g 15 mi utes p io  to the 15 mi utes p io  to the 15 mi utes p io . |
+| ASVAB waive s. |
+| Baby oiled Midshipme  playi g shi tless volleyball. |
+| Bag  asties. |
+| Ba ey-style. |
+| Ba acks duty o  a holiday weeke d. |
+| Ba acks  ats. |
 | BCGs, |
-| Because Gunny said so! |
-| Becoming a broke-dick POG in record time. |
-| Being as useful as tits on a bull. |
-| Being MARSOC as fuck. |
-| Belt-fed erections. |
-| Big truck and tiny cock! |
-| Blaming IEDs on the Jews. |
-| Blown out wooks. |
-| Boot bands. |
-| Bountiful barracks butt stuff. |
-| Breaching a door using a small Afghan child as a hasty battering ram. |
-| Buying new cammies because Gunny said you look like a bag of smashed assholes. |
-| Cacner-ridden children becoming honorary Marines. |
-| Captain-level stupidity. |
-| Carelessly scorching the innocent with Willie Pete. |
-| Carving dicks in stuff with a KA-BAR. |
-| Charred human remains. |
-| Cherry Point. |
-| Child-borne IEDs. |
-| Chrism smelling laundry soap. |
-| Chugging several canteens filled with hobo cum. |
-| Cleaning your boots with boiled hotdog water. |
-| Combat Jews wearing camo yarmulkes. |
-| Confiscating and burning books. |
-| Cool war trophies and stuff. |
-| Crossing piss streams over the face of a dead haji. |
-| Dead Iraqi children. |
+| Because Gu y said so! |
+| Becomi g a b oke-dick POG i   eco d time. |
+| Bei g as useful as tits o  a bull. |
+| Bei g MARSOC as fuck. |
+| Belt-fed e ectio s. |
+| Big t uck a d ti y cock! |
+| Blami g IEDs o  the Jews. |
+| Blow  out wooks. |
+| Boot ba ds. |
+| Bou tiful ba acks butt stuff. |
+| B eachi g a doo  usi g a small Afgha  child as a hasty batte i g  am. |
+| Buyi g  ew cammies because Gu y said you look like a bag of smashed assholes. |
+| Cac e - idde  child e  becomi g ho o a y Ma i es. |
+| Captai -level stupidity. |
+| Ca elessly sco chi g the i oce t with Willie Pete. |
+| Ca vi g dicks i  stuff with a KA-BAR. |
+| Cha ed huma   emai s. |
+| Che y Poi t. |
+| Child-bo e IEDs. |
+| Ch ism smelli g lau d y soap. |
+| Chuggi g seve al ca tee s filled with hobo cum. |
+| Clea i g you  boots with boiled hotdog wate . |
+| Combat Jews wea i g camo ya mulkes. |
+| Co fiscati g a d bu i g books. |
+| Cool wa  t ophies a d stuff. |
+| C ossi g piss st eams ove  the face of a dead haji. |
+| Dead I aqi child e . |
 | DEATH BEFORE DISHONOR! |
-| Death by snu-snu. |
-| Declining SGLI coverage. |
-| Decorating the platoon Christmas tree with tasteless pornaments. |
-| Dedicating your Medal of Honor speech to Harambe the fallen gorilla. |
-| Deflowering a princess. |
-| Denied leave. |
-| Destroying a piece of barracks ass like a JDAM Afghan orphanage. |
-| Diamond-encrusted skates. |
-| Diggin' shit canals and setting them on fire. |
-| Discovering your commander's hidden stash of Jody cuckold porn. |
-| Doc's bottomless stash of Motrin® and foot powder. |
-| Doc's extensive collection of lanced genital warts. |
-| Doc's secret weapon: The Silver Bullet! |
-| Double-tapping the wounded. |
-| Drawing dicks over drawings of dicks. |
-| Dressing like a typical boot. |
-| Ducking under a church pew while mistaking a dependa queef for indirect fire. |
-| Dying of dysentery. |
-| Eating your fat ass out of the Corps. |
-| Every swinging dick. |
-| Executing detainees. |
-| Experiencing a Chipotle blood fart halfway through a PFT. |
-| Explodinating a terrorist's head. |
-| Exploding so dead you're reincarnated into an abortion. |
-| Falling asleep on fire watch. |
-| Falling out of a battalion moto run and receiving the Silver Bullet. |
+| Death by s u-s u. |
+| Decli i g SGLI cove age. |
+| Deco ati g the platoo  Ch istmas t ee with tasteless po ame ts. |
+| Dedicati g you  Medal of Ho o  speech to Ha ambe the falle  go illa. |
+| Deflowe i g a p i cess. |
+| De ied leave. |
+| Dest oyi g a piece of ba acks ass like a JDAM Afgha  o pha age. |
+| Diamo d-e c usted skates. |
+| Diggi ' shit ca als a d setti g them o  fi e. |
+| Discove i g you  comma de 's hidde  stash of Jody cuckold po . |
+| Doc's bottomless stash of Mot i ® a d foot powde . |
+| Doc's exte sive collectio  of la ced ge ital wa ts. |
+| Doc's sec et weapo : The Silve  Bullet! |
+| Double-tappi g the wou ded. |
+| D awi g dicks ove  d awi gs of dicks. |
+| D essi g like a typical boot. |
+| Ducki g u de  a chu ch pew while mistaki g a depe da queef fo  i di ect fi e. |
+| Dyi g of dyse te y. |
+| Eati g you  fat ass out of the Co ps. |
+| Eve y swi gi g dick. |
+| Executi g detai ees. |
+| Expe ie ci g a Chipotle blood fa t halfway th ough a PFT. |
+| Explodi ati g a te o ist's head. |
+| Explodi g so dead you' e  ei ca ated i to a  abo tio . |
+| Falli g asleep o  fi e watch. |
+| Falli g out of a battalio  moto  u  a d  eceivi g the Silve  Bullet. |
 | Fallujah. |
-| Fat chicks with a Marine Corps fetish. |
-| Female Marines cycling together and leaking period blood all over the goddamn deck chairs! |
-| Female Marines cycling together and leaking period blood all over the goddamn deck chairs! |
-| Female Marines who shoot better and PT harder than you. |
-| Field chow so bad it gives you tuberculosis of the clitoris. |
-| Field coffee brewed with Caitlyn Jenner's stale tit sweat. |
-| Fighting radical Islam, dude! |
-| Finding nude pics of your mom in a terorist safe house. |
-| Firing for effect. |
+| Fat chicks with a Ma i e Co ps fetish. |
+| Female Ma i es cycli g togethe  a d leaki g pe iod blood all ove  the goddam  deck chai s! |
+| Female Ma i es cycli g togethe  a d leaki g pe iod blood all ove  the goddam  deck chai s! |
+| Female Ma i es who shoot bette  a d PT ha de  tha  you. |
+| Field chow so bad it gives you tube culosis of the clito is. |
+| Field coffee b ewed with Caitly  Je e 's stale tit sweat. |
+| Fighti g  adical Islam, dude! |
+| Fi di g  ude pics of you  mom i  a te o ist safe house. |
+| Fi i g fo  effect. |
 | Fleet Week hook-ups. |
-| FOCUS missionaries. |
-| Frat bro Lts. |
-| Free meal hunting on Veterans' Day. |
-| Fucks in Chucks. |
-| Furry wooks with no-shave chits. |
-| Gender-neutral bathrooms. |
-| General "Mad Dog" Mattis |
-| General James Mattis' oiled, rippling abs. |
-| Getting caught up in an NCIS prostitution sting on Camp Leatherneck. |
-| Getting dicked over by the Corps, or how I learned to accept the Digital Dildo. |
-| Getting the DIC in Okinawa. |
+| FOCUS missio a ies. |
+| F at b o Lts. |
+| F ee meal hu ti g o  Vete a s' Day. |
+| Fucks i  Chucks. |
+| Fu y wooks with  o-shave chits. |
+| Ge de - eut al bath ooms. |
+| Ge e al "Mad Dog" Mattis |
+| Ge e al James Mattis' oiled,  ippli g abs. |
+| Getti g caught up i  a  NCIS p ostitutio  sti g o  Camp Leathe eck. |
+| Getti g dicked ove  by the Co ps, o  how I lea ed to accept the Digital Dildo. |
+| Getti g the DIC i  Oki awa. |
 | Glow belts. |
-| Good initiative, bad judgment. |
-| Goodnight, Chesty Puller! |
-| Growing a sweet Hitler 'stache on leave. |
-| Hardcore malingering. |
-| Having your dick hole stomped by LtCol Rob Riggle, the OIC of stomping dick holes! |
-| Having zero fucks to give. |
-| Hazing Muslim boots on tumble dry, low heat. |
-| Hazing yourself. |
-| High fiving an Afghan warlord. |
-| High velocity freedom. |
-| Huffing JP-8 out of an empty MRE bag. |
-| IEDs in America. Seriously, WTF?!? |
-| Impregnating Sarah Palin's daughter. |
-| Inappropriately yelling BAMCIS. |
-| Inserting a .50 cal round between your butt cheeks and squeezing. |
-| Intel analyst intensely playing Magic: The Gathering™. |
-| Inviting the Church of Satan to perform an invocation at your court-martial. |
-| IPAC computers that run on grunt tears. |
-| Jarhead 2. |
-| Jody'ing the Jody who Jody'd you. |
-| Killing a man for his jalapeno cheese spread. |
-| Killing bodies hardcore great job! |
-| Knife hand fetish porn. |
-| L-shaped flashlight double penetration gape porn. |
-| Laughing at all the fat body Soldiers. |
-| Leacving bottles of piss sitting out for a health and comfort inspection. |
+| Good i itiative, bad judgme t. |
+| Good ight, Chesty Pulle ! |
+| G owi g a sweet Hitle  'stache o  leave. |
+| Ha dco e mali ge i g. |
+| Havi g you  dick hole stomped by LtCol Rob Riggle, the OIC of stompi g dick holes! |
+| Havi g ze o fucks to give. |
+| Hazi g Muslim boots o  tumble d y, low heat. |
+| Hazi g you self. |
+| High fivi g a  Afgha  wa lo d. |
+| High velocity f eedom. |
+| Huffi g JP-8 out of a  empty MRE bag. |
+| IEDs i  Ame ica. Se iously, WTF?!? |
+| Imp eg ati g Sa ah Pali 's daughte . |
+| I app op iately yelli g BAMCIS. |
+| I se ti g a .50 cal  ou d betwee  you  butt cheeks a d squeezi g. |
+| I tel a alyst i te sely playi g Magic: The Gathe i g™. |
+| I viti g the Chu ch of Sata  to pe fo m a  i vocatio  at you  cou t-ma tial. |
+| IPAC compute s that  u  o  g u t tea s. |
+| Ja head 2. |
+| Jody'i g the Jody who Jody'd you. |
+| Killi g a ma  fo  his jalape o cheese sp ead. |
+| Killi g bodies ha dco e g eat job! |
+| K ife ha d fetish po . |
+| L-shaped flashlight double pe et atio  gape po . |
+| Laughi g at all the fat body Soldie s. |
+| Leacvi g bottles of piss sitti g out fo  a health a d comfo t i spectio . |
 | Life |
-| Living by the Navy's motto, "Gay is OK until bedtime!" |
-| Malaria pills that make your tits fall off. |
-| Man Love Thursdays. |
-| Marine Corps Orders: Spreading the gospel one MARADMIN at a time. |
-| Marine Wife: The "hardest" job in the Corps! |
-| Meeting your first two wives at The Driftwood. |
-| Mercy killing the neighbor's cat with an E-tool. |
-| Moderat goat rapists. |
-| Morally ambiguous acts of war. |
-| MSgt's crusty balls popping out of his silkies. |
-| NinJa Punched! |
-| Non-consensual sex. |
-| Obnoxious amounts of liquor and turkey Lunchables in your barracks fridge. |
-| Officer Candidates. |
-| Olympic-level skating. |
-| Operating a blowjob ring inside tent city. |
-| Overwhelming firepower. |
-| Pathetically inviting a celebrity to your ball with a cringey YouTube video. |
-| Playing safety brief BINGO. |
-| Policing brass until your fingers bleed. |
-| Pounding dick in the porta-shitter. |
-| Pre-club gym pumps. |
-| Pretending to take college courses in Okinawa so your Lt will let you get a license. |
-| Proudly displaying your Nazi flag in your Scout Sniper platoon photo. |
-| Pulling pits. |
-| Qualifying "surgical with this bitch" at the range. |
-| R. Lee Ermey shitting in his adult diaper. |
-| Rat fucking the Crayola® box. |
-| Rationalizing the terrible things you have seen and done in combat. |
-| Recreating the Iwo Jima flag raising using two blow-up dolls and a stolen golf flag. |
-| Recruit Training. |
-| Recruits. |
-| Referring to everyone, including your dependents, as dick necks. |
-| Rendering the fat of your enemies over a burning pile of baby parts and techincal manuals. |
-| Replacing your ribbon rack with replica Pokemon™ badges. |
-| Replying to the 1st Sgt with "OORAH" no matter what is asked of you. |
-| Roasting marshmallows over a crackling pile of burning Qurans. |
-| Roasting TOP SECRET s'mores over a burning barrel of classified material. |
-| Roasting your subordinates like a straight fucking savage. |
-| Rolling another MRAP. |
-| Ruck march thigh chafing so bad it looks like you miscarried a Hot Pocket. |
-| Running indoors during Colors like the shitbag you are! |
-| Safety briefs with trigger warnings. |
-| Sand fleas. So many sand fleas. |
-| Saying "Back in MY Marine Corps" like a crusty old fuck. |
-| Scratching an itch |
-| Screaming "Let's not turn this rape into a murder" at your kid's softball game. |
-| Seeing the 1st Sgt's wife's titty tassles at The Driftwood. |
+| Livi g by the Navy's motto, "Gay is OK u til bedtime!" |
+| Mala ia pills that make you  tits fall off. |
+| Ma  Love Thu sdays. |
+| Ma i e Co ps O de s: Sp eadi g the gospel o e MARADMIN at a time. |
+| Ma i e Wife: The "ha dest" job i  the Co ps! |
+| Meeti g you  fi st two wives at The D iftwood. |
+| Me cy killi g the  eighbo 's cat with a  E-tool. |
+| Mode at goat  apists. |
+| Mo ally ambiguous acts of wa . |
+| MSgt's c usty balls poppi g out of his silkies. |
+| Ni Ja Pu ched! |
+| No -co se sual sex. |
+| Ob oxious amou ts of liquo  a d tu key Lu chables i  you  ba acks f idge. |
+| Office  Ca didates. |
+| Olympic-level skati g. |
+| Ope ati g a blowjob  i g i side te t city. |
+| Ove whelmi g fi epowe . |
+| Pathetically i viti g a celeb ity to you  ball with a c i gey YouTube video. |
+| Playi g safety b ief BINGO. |
+| Polici g b ass u til you  fi ge s bleed. |
+| Pou di g dick i  the po ta-shitte . |
+| P e-club gym pumps. |
+| P ete di g to take college cou ses i  Oki awa so you  Lt will let you get a lice se. |
+| P oudly displayi g you  Nazi flag i  you  Scout S ipe  platoo  photo. |
+| Pulli g pits. |
+| Qualifyi g "su gical with this bitch" at the  a ge. |
+| R. Lee E mey shitti g i  his adult diape . |
+| Rat fucki g the C ayola® box. |
+| Ratio alizi g the te ible thi gs you have see  a d do e i  combat. |
+| Rec eati g the Iwo Jima flag  aisi g usi g two blow-up dolls a d a stole  golf flag. |
+| Rec uit T ai i g. |
+| Rec uits. |
+| Refe i g to eve yo e, i cludi g you  depe de ts, as dick  ecks. |
+| Re de i g the fat of you  e emies ove  a bu i g pile of baby pa ts a d techi cal ma uals. |
+| Replaci g you   ibbo   ack with  eplica Pokemo ™ badges. |
+| Replyi g to the 1st Sgt with "OORAH"  o matte  what is asked of you. |
+| Roasti g ma shmallows ove  a c ackli g pile of bu i g Qu a s. |
+| Roasti g TOP SECRET s'mo es ove  a bu i g ba el of classified mate ial. |
+| Roasti g you  subo di ates like a st aight fucki g savage. |
+| Rolli g a othe  MRAP. |
+| Ruck ma ch thigh chafi g so bad it looks like you misca ied a Hot Pocket. |
+| Ru i g i doo s du i g Colo s like the shitbag you a e! |
+| Safety b iefs with t igge  wa i gs. |
+| Sa d fleas. So ma y sa d fleas. |
+| Sayi g "Back i  MY Ma i e Co ps" like a c usty old fuck. |
+| Sc atchi g a  itch |
+| Sc eami g "Let's  ot tu  this  ape i to a mu de " at you  kid's softball game. |
+| Seei g the 1st Sgt's wife's titty tassles at The D iftwood. |
 | SEMPER FI, MOTHER FUCKERS! |
-| Several IPAC clerks doing absolutely nothing. |
-| Several tiny dicks drawn all over your face. |
-| Shotgunning a Rip It® in 120 degree heat. |
+| Seve al IPAC cle ks doi g absolutely  othi g. |
+| Seve al ti y dicks d aw  all ove  you  face. |
+| Shotgu i g a Rip It® i  120 deg ee heat. |
 | Shut up. |
-| Slay bodies and chill. |
-| Slipping on a terrorist's postmortem poop. |
-| Smoking a rock or something. |
-| Snacking on some crayons. |
-| Snickering at a sergeant in the Marine Corps Band. |
-| Sniffing subordinate's asshole to assert dominance. |
+| Slay bodies a d chill. |
+| Slippi g o  a te o ist's postmo tem poop. |
+| Smoki g a  ock o  somethi g. |
+| S acki g o  some c ayo s. |
+| S icke i g at a se gea t i  the Ma i e Co ps Ba d. |
+| S iffi g subo di ate's asshole to asse t domi a ce. |
 | Some weak ass POG bullshit. |
-| Speed waxing your asshole with 100mph tape. |
-| Spending eternity at the armory. |
-| Spitting on Okinawan protesters. |
-| Stabbing a man in winter to see the steam rise from his wounds. |
-| Stacking bodies. |
-| Stomping out a crotch fire. |
-| Sun Gods 'til your dick skinners fall off. |
-| Suppressive fire. |
-| Surviving a sniper round to the dome. |
-| Sweeping sand in Iraq. |
-| Syphilis Gene, the unclean Marine. |
-| Tactical embarrassment. |
-| Taking a headshot while chewing bubblegum. |
-| Taking gender reassignment homrones to win a meritorious board. |
-| Tattoo policies created by retards. |
-| That one dark green Marine who finished swim qual 1! |
-| The colonel's wife "pulling rank." |
-| The Combat Action Ribbon. |
+| Speed waxi g you  asshole with 100mph tape. |
+| Spe di g ete ity at the a mo y. |
+| Spitti g o  Oki awa  p oteste s. |
+| Stabbi g a ma  i  wi te  to see the steam  ise f om his wou ds. |
+| Stacki g bodies. |
+| Stompi g out a c otch fi e. |
+| Su  Gods 'til you  dick ski e s fall off. |
+| Supp essive fi e. |
+| Su vivi g a s ipe   ou d to the dome. |
+| Sweepi g sa d i  I aq. |
+| Syphilis Ge e, the u clea  Ma i e. |
+| Tactical emba assme t. |
+| Taki g a headshot while chewi g bubblegum. |
+| Taki g ge de   eassig me t hom o es to wi  a me ito ious boa d. |
+| Tattoo policies c eated by  eta ds. |
+| That o e da k g ee  Ma i e who fi ished swim qual 1! |
+| The colo el's wife "pulli g  a k." |
+| The Combat Actio  Ribbo . |
 | The combat eye gouge. |
-| The Corpsman Cocktail: Vitamin M and water! |
+| The Co psma  Cocktail: Vitami  M a d wate ! |
 | The good kid |
-| The half 80's pornstar/pedo deployment 'stache. |
-| The inevitable LCpl post-deployment Ford Mustang purchase. |
-| The infamous Marine Corps boat cloak. |
-| The Jacksonville Ninja. |
-| The Lance Corporal Underground. |
-| The Legendary Sergeant Major Bradley Kasal. |
-| The Math for Marines MCI. |
-| The miraculous healing properties of Chesty's tears. |
-| The NCO Creed. |
-| The overwhelming competency of the Marine Corps Reserve. |
-| The pungent smell of a gynocologist`s glove |
+| The half 80's po sta /pedo deployme t 'stache. |
+| The i evitable LCpl post-deployme t Fo d Musta g pu chase. |
+| The i famous Ma i e Co ps boat cloak. |
+| The Jackso ville Ni ja. |
+| The La ce Co po al U de g ou d. |
+| The Lege da y Se gea t Majo  B adley Kasal. |
+| The Math fo  Ma i es MCI. |
+| The mi aculous heali g p ope ties of Chesty's tea s. |
+| The NCO C eed. |
+| The ove whelmi g compete cy of the Ma i e Co ps Rese ve. |
+| The pu ge t smell of a gy ocologist`s glove |
 | The Shithouse Poet. |
-| The smell of decomposing villagers. |
-| The United States Marine Corps. |
-| The United States Naval Academy. |
-| Tossing a sack of whimpering puppies over a cliff. |
-| Trading MRE Skittles® for a super sloppy rimjob. |
-| Tranny hookers on port call. |
-| Transgendered grunts. |
-| Treating your EAS date like a retirement. |
-| Twerking in a MOPP suit. |
-| Two in the chest, one in the head... winning hearts and minds! |
-| Two Marines tying their dicks together. |
-| Unknowingly raising Jody's kids. |
-| Unsuccessfully unfucking yourself. |
-| Uppercutting POGs into the sun. |
-| Using a hammer to construct a cabinet and also to bludgeon Afghan villagers. |
-| Using a poncho liner to float down the barracks roof during a typhoon party. |
-| Vienna sausage and cottage cheese-flavored MREs. |
-| War stories with happy endings. |
-| Watching Generation Kill for the fifth time this month. |
-| Wearing nothing but silkies, boot bands, and a light coat of CLP. |
-| Wearing your dress blues then drownin in pussy. |
-| Whipping your dependents like Hebrew slaves. |
-| Whispering to your chaplain that Jesus Christ was a pussy. |
-| Wishing you'd remembered to shower before your gynecology |
-| Wook vagina that looks like a grenade went off behind a deli counter. |
+| The smell of decomposi g village s. |
+| The U ited States Ma i e Co ps. |
+| The U ited States Naval Academy. |
+| Tossi g a sack of whimpe i g puppies ove  a cliff. |
+| T adi g MRE Skittles® fo  a supe  sloppy  imjob. |
+| T a y hooke s o  po t call. |
+| T a sge de ed g u ts. |
+| T eati g you  EAS date like a  eti eme t. |
+| Twe ki g i  a MOPP suit. |
+| Two i  the chest, o e i  the head... wi i g hea ts a d mi ds! |
+| Two Ma i es tyi g thei  dicks togethe . |
+| U k owi gly  aisi g Jody's kids. |
+| U successfully u fucki g you self. |
+| Uppe cutti g POGs i to the su . |
+| Usi g a hamme  to co st uct a cabi et a d also to bludgeo  Afgha  village s. |
+| Usi g a po cho li e  to float dow  the ba acks  oof du i g a typhoo  pa ty. |
+| Vie a sausage a d cottage cheese-flavo ed MREs. |
+| Wa  sto ies with happy e di gs. |
+| Watchi g Ge e atio  Kill fo  the fifth time this mo th. |
+| Wea i g  othi g but silkies, boot ba ds, a d a light coat of CLP. |
+| Wea i g you  d ess blues the  d ow i  i  pussy. |
+| Whippi g you  depe de ts like Heb ew slaves. |
+| Whispe i g to you  chaplai  that Jesus Ch ist was a pussy. |
+| Wishi g you'd  emembe ed to showe  befo e you  gy ecology |
+| Wook vagi a that looks like a g e ade we t off behi d a deli cou te . |
 | Wookies with bowl cuts. |
-| Yelling "BABY KILLERS" at boots in an airport terminal. |
-| Yet another POG-ass admin Marine who became a drill instructor. |
-| You done fucked up, Devil Dog! |
-| Your platoon sergeant A.K.A. Satan himself. |
-| Zig-zaggedy shrapnel scars. |
-| 50 Shades of Haze Gray. |
-| A 3-hour SECRET flight brief for a 45-minute flight. #WasteMyFuckingTime |
-| A bed bug-infested rack. |
-| A billion different uniforms and accessories. |
-| A Boatswain's punch. |
-| A bucket of fishy tampons stuffed inside your rackmate's pillowcase. |
-| A bunch of stupid pilots doing stupid pilot shit. |
-| A canteen-spitter combo. |
-| A care package filled with dog shit, Styrofoam® peanuts, and a divorce decree. |
-| A cringey license plate that reads "USN4LYF." |
-| A CS friend hooking you up with extra meatloaf and shit. |
-| A Dependapotamus vs. TRICAREatops hotdog eating sontest. |
-| A destroyer performing a max AOB turn while unfurling 90-foot American flags. |
-| A dildo cannon. |
-| A dumb shit ensign attempting to pull rank on Chief. |
-| A FOD Walkdown of Skipper's stateroom. |
-| A Gay Chicken win streak. |
-| A gayer, gentler Navy (if that's even possible). |
-| A half month's pay times two. |
-| A lieutenant yelling "Drag me, you enlisted swine!" |
-| A Marine desperately trying to flush stolen panties down the shitters. |
-| A mouth like a Sailor. |
-| A Navy-wide pamphlet entitled "Needleguns and You: Surviving Your First Command as an Undesignated Seaman." |
-| A Nuke with an arm growing out of his head. |
-| A pilot with an unequal number of takeoffs and landings. |
-| A proud new member of the Liberty Attire Enforcement Team. |
-| A race baiting NC1. |
-| A rogue HT welding berthing hatches shut. |
-| A rotting pile of Veterans corpses in the basement of a VA hospital. |
-| A School relationships. |
-| A SEAL platoon twerking to trap music. |
-| A Seaman full of semen. |
-| A SECDET member forgetting his rifle in the galley. |
-| A sleazy recruiter driving an '85 panel van packed with teenage girls and several cases of Four Loko. |
-| A terrorist seductively whispering "There's a bomb somewhere on my body...want to find it, you sexy infidel?" |
-| A wave of thirst crashing down on every female Sailor. |
-| Acadmey grads losing classified material. |
-| Advancement results without your name on them. |
-| Air DET delivering a pallet of freshly stacked ISIS corpses. |
-| All conditions normal. |
-| An aggressively aerobatic VERTREP that causes all assholes to simultaneously pucker. |
-| An AO telling you that he kills people. |
-| An elaborate advancement exam cheating ring. |
-| An enormoous metal tube filled with Seamen. |
-| An enraged, 300-lb dependa bellowing "I serve too!" |
-| An ensign's cunt wife demanding to be saluted at the gate. |
-| An EOD chief slinging his cock over his shoulder. |
-| An EOD on SEAL on SWCC suck pile. |
-| An EP Eval includes the words "fellatio," "scuttlebutt," and "Space Docking." |
-| An inspection uniform soaked in Taco Bell grease. |
-| An outbreak of vaginal malaria in the female berthing spaces. |
-| An SCBA mask that smells like the inside of a wet bag of horse nuts. |
-| Any naval officer. |
-| Armchair Admirals. |
-| Assholes and Admirals. |
-| at least this one is unique |
-| Bahrain's "American Alley." |
+| Yelli g "BABY KILLERS" at boots i  a  ai po t te mi al. |
+| Yet a othe  POG-ass admi  Ma i e who became a d ill i st ucto . |
+| You do e fucked up, Devil Dog! |
+| You  platoo  se gea t A.K.A. Sata  himself. |
+| Zig-zaggedy sh ap el sca s. |
+| 50 Shades of Haze G ay. |
+| A 3-hou  SECRET flight b ief fo  a 45-mi ute flight. #WasteMyFucki gTime |
+| A bed bug-i fested  ack. |
+| A billio  diffe e t u ifo ms a d accesso ies. |
+| A Boatswai 's pu ch. |
+| A bucket of fishy tampo s stuffed i side you   ackmate's pillowcase. |
+| A bu ch of stupid pilots doi g stupid pilot shit. |
+| A ca tee -spitte  combo. |
+| A ca e package filled with dog shit, Sty ofoam® pea uts, a d a divo ce dec ee. |
+| A c i gey lice se plate that  eads "USN4LYF." |
+| A CS f ie d hooki g you up with ext a meatloaf a d shit. |
+| A Depe dapotamus vs. TRICAREatops hotdog eati g so test. |
+| A dest oye  pe fo mi g a max AOB tu  while u fu li g 90-foot Ame ica  flags. |
+| A dildo ca o . |
+| A dumb shit e sig  attempti g to pull  a k o  Chief. |
+| A FOD Walkdow  of Skippe 's state oom. |
+| A Gay Chicke  wi  st eak. |
+| A gaye , ge tle  Navy (if that's eve  possible). |
+| A half mo th's pay times two. |
+| A lieute a t yelli g "D ag me, you e listed swi e!" |
+| A Ma i e despe ately t yi g to flush stole  pa ties dow  the shitte s. |
+| A mouth like a Sailo . |
+| A Navy-wide pamphlet e titled "Needlegu s a d You: Su vivi g You  Fi st Comma d as a  U desig ated Seama ." |
+| A Nuke with a  a m g owi g out of his head. |
+| A pilot with a  u equal  umbe  of takeoffs a d la di gs. |
+| A p oud  ew membe  of the Libe ty Atti e E fo ceme t Team. |
+| A  ace baiti g NC1. |
+| A  ogue HT weldi g be thi g hatches shut. |
+| A  otti g pile of Vete a s co pses i  the baseme t of a VA hospital. |
+| A School  elatio ships. |
+| A SEAL platoo  twe ki g to t ap music. |
+| A Seama  full of seme . |
+| A SECDET membe  fo getti g his  ifle i  the galley. |
+| A sleazy  ec uite  d ivi g a  '85 pa el va  packed with tee age gi ls a d seve al cases of Fou  Loko. |
+| A te o ist seductively whispe i g "The e's a bomb somewhe e o  my body...wa t to fi d it, you sexy i fidel?" |
+| A wave of thi st c ashi g dow  o  eve y female Sailo . |
+| Acadmey g ads losi g classified mate ial. |
+| Adva ceme t  esults without you   ame o  them. |
+| Ai  DET delive i g a pallet of f eshly stacked ISIS co pses. |
+| All co ditio s  o mal. |
+| A  agg essively ae obatic VERTREP that causes all assholes to simulta eously pucke . |
+| A  AO telli g you that he kills people. |
+| A  elabo ate adva ceme t exam cheati g  i g. |
+| A  e o moous metal tube filled with Seame . |
+| A  e aged, 300-lb depe da bellowi g "I se ve too!" |
+| A  e sig 's cu t wife dema di g to be saluted at the gate. |
+| A  EOD chief sli gi g his cock ove  his shoulde . |
+| A  EOD o  SEAL o  SWCC suck pile. |
+| A  EP Eval i cludes the wo ds "fellatio," "scuttlebutt," a d "Space Docki g." |
+| A  i spectio  u ifo m soaked i  Taco Bell g ease. |
+| A  outb eak of vagi al mala ia i  the female be thi g spaces. |
+| A  SCBA mask that smells like the i side of a wet bag of ho se  uts. |
+| A y  aval office . |
+| A mchai  Admi als. |
+| Assholes a d Admi als. |
+| at least this o e is u ique |
+| Bah ai 's "Ame ica  Alley." |
 | Balls-to-8 watch. |
-| Bar fights with Coasties. |
+| Ba  fights with Coasties. |
 | BCGs. |
-| Being as useful as a screen door on a submarine. |
-| Being detained by the host nation for "offending local sensibilities." In other words, you pulled out your hog in a restaurant. |
-| Being voluntold to man the rails. |
-| Believeing your recruiter when he told you SEALs would offer you a chance to switch your rate in boot camp. |
-| Belt buckles with your ship's logo. |
-| Berthing Fight Club. |
+| Bei g as useful as a sc ee  doo  o  a subma i e. |
+| Bei g detai ed by the host  atio  fo  "offe di g local se sibilities." I  othe  wo ds, you pulled out you  hog i  a  estau a t. |
+| Bei g volu told to ma  the  ails. |
+| Believei g you   ec uite  whe  he told you SEALs would offe  you a cha ce to switch you   ate i  boot camp. |
+| Belt buckles with you  ship's logo. |
+| Be thi g Fight Club. |
 | BMs. |
-| Boatswain's Mate pipe practice. |
-| Borderline retarded ensigns. |
-| Brace for shock! |
-| Bravo Zulu, shipmate! |
-| Bullshit flight pay for LCAC crews. |
-| Butthurt Report Forms. |
-| Cap'n Crunch® being hung in the town square for stolen valor. |
-| Captain's Cup finals. |
-| Captain's Mast for skylarking. |
-| Chiefs giving mustache rides. |
-| Chrism smelling laundry soap. |
-| Civilians awkwardly saluting you in public. |
-| Class 3 dental! |
+| Boatswai 's Mate pipe p actice. |
+| Bo de li e  eta ded e sig s. |
+| B ace fo  shock! |
+| B avo Zulu, shipmate! |
+| Bullshit flight pay fo  LCAC c ews. |
+| Butthu t Repo t Fo ms. |
+| Cap'  C u ch® bei g hu g i  the tow  squa e fo  stole  valo . |
+| Captai 's Cup fi als. |
+| Captai 's Mast fo  skyla ki g. |
+| Chiefs givi g mustache  ides. |
+| Ch ism smelli g lau d y soap. |
+| Civilia s awkwa dly saluti g you i  public. |
+| Class 3 de tal! |
 | Cliche Navy-themed gay jokes. |
-| CMEOs Gone Wild. |
-| CNO Admiral Greenert's "happy" sock. |
-| Completely running out of fucks. |
-| Contracting dick fungus from a shipmate's Japanese robotic fuck doll. |
-| Contracting dick rot from the hair clippers your rackmate used on his rat nest-like pubes. |
-| Counseling chits. |
-| Crafting a matress in the pulper room from banana peels and freshly cut hair. |
-| Cranking. |
-| Crying when you receive your Navy Ball Cap after Battle Stations. |
-| CTs inbreeding. |
-| Dank meme wars between the official Facebook pages of the U.S. Navy and Saint Jude Children's Research Hospital. |
-| Deflowering a princess. |
-| Deploying mechanical sharks with laser dicks in the fight against Somali pirates. |
-| Doing ass-to-ass with a .50 cal barrel and your bestest shipmate. |
-| Drinking from a porpoise skull that's filled with the period blood of menstruating staff officers. |
-| Dropping Bin Laden's cum-filled corpse from a helicopter at 120 knots. |
-| Drown-proofing amputees. |
-| Dying of dysentery. |
-| Egypt's "security" during the Suez Transit. |
-| Everyone on your crew is dead! |
-| Falling overboard. |
-| Fat emlisted personnel. |
-| Fatal helicopter crashes. |
-| Filling the new guy's rack with old shower shoes, soggy period pads, and used Q-tips. |
-| Finally realizing why Sailors are called "Swabbies." |
-| Finding your boat boo's slappy chokey bondage vid on Pornhub. |
-| Fitting all your blongings into a seabag. |
-| Fleet Admiral Chester W. Nimitz. |
-| Fleet and Family Support loans. |
-| Fleet rolls. |
-| Fleet Week fuckery. |
-| Floating dead. |
-| Floating in the middle of an angry sea. |
-| Fraternizing with your open mouth. |
-| Free tickets to semi-pro sporting events and other pathetic charitable offerings. |
-| Freedom, mother fucker! Do you speak it?!? |
-| Funeral detail! |
-| Gary. |
-| Getting ASMO'd back to P-Days. |
-| Getting detained by Iran while wearing white socks. |
-| Getting suckered into a Nuke contract. |
-| Getting your mattress stamped. |
-| Gleefully reminding Marines they're part of the Navy. |
+| CMEOs Go e Wild. |
+| CNO Admi al G ee e t's "happy" sock. |
+| Completely  u i g out of fucks. |
+| Co t acti g dick fu gus f om a shipmate's Japa ese  obotic fuck doll. |
+| Co t acti g dick  ot f om the hai  clippe s you   ackmate used o  his  at  est-like pubes. |
+| Cou seli g chits. |
+| C afti g a mat ess i  the pulpe   oom f om ba a a peels a d f eshly cut hai . |
+| C a ki g. |
+| C yi g whe  you  eceive you  Navy Ball Cap afte  Battle Statio s. |
+| CTs i b eedi g. |
+| Da k meme wa s betwee  the official Facebook pages of the U.S. Navy a d Sai t Jude Child e 's Resea ch Hospital. |
+| Deflowe i g a p i cess. |
+| Deployi g mecha ical sha ks with lase  dicks i  the fight agai st Somali pi ates. |
+| Doi g ass-to-ass with a .50 cal ba el a d you  bestest shipmate. |
+| D i ki g f om a po poise skull that's filled with the pe iod blood of me st uati g staff office s. |
+| D oppi g Bi  Lade 's cum-filled co pse f om a helicopte  at 120 k ots. |
+| D ow -p oofi g amputees. |
+| Dyi g of dyse te y. |
+| Egypt's "secu ity" du i g the Suez T a sit. |
+| Eve yo e o  you  c ew is dead! |
+| Falli g ove boa d. |
+| Fat emlisted pe so el. |
+| Fatal helicopte  c ashes. |
+| Filli g the  ew guy's  ack with old showe  shoes, soggy pe iod pads, a d used Q-tips. |
+| Fi ally  ealizi g why Sailo s a e called "Swabbies." |
+| Fi di g you  boat boo's slappy chokey bo dage vid o  Po hub. |
+| Fitti g all you  blo gi gs i to a seabag. |
+| Fleet Admi al Cheste  W. Nimitz. |
+| Fleet a d Family Suppo t loa s. |
+| Fleet  olls. |
+| Fleet Week fucke y. |
+| Floati g dead. |
+| Floati g i  the middle of a  a g y sea. |
+| F ate izi g with you  ope  mouth. |
+| F ee tickets to semi-p o spo ti g eve ts a d othe  pathetic cha itable offe i gs. |
+| F eedom, mothe  fucke ! Do you speak it?!? |
+| Fu e al detail! |
+| Ga y. |
+| Getti g ASMO'd back to P-Days. |
+| Getti g detai ed by I a  while wea i g white socks. |
+| Getti g sucke ed i to a Nuke co t act. |
+| Getti g you  matt ess stamped. |
+| Gleefully  emi di g Ma i es they' e pa t of the Navy. |
 | GMT. |
-| Going full dependa. |
-| Going LLD for a leaky booty hole. |
-| Going to DRB for spreading boner crippling penis polio to the rest of the ship. |
-| GQ drills at 0200. |
-| Hazing for the fuck of it. |
-| Health and comfort inspections. |
-| Hippies trampling American freedoms. |
-| Hitting your new bench press PR because the boat rocked just the right way. |
+| Goi g full depe da. |
+| Goi g LLD fo  a leaky booty hole. |
+| Goi g to DRB fo  sp eadi g bo e  c ippli g pe is polio to the  est of the ship. |
+| GQ d ills at 0200. |
+| Hazi g fo  the fuck of it. |
+| Health a d comfo t i spectio s. |
+| Hippies t ampli g Ame ica  f eedoms. |
+| Hitti g you   ew be ch p ess PR because the boat  ocked just the  ight way. |
 | HOOYAH! |
-| Hormone therapy for incarcerated Sailors. |
-| Huffing Haze Gray paint from an old Kmart® shopping bag. |
-| Hurry up and wait! |
-| Increasingly stringent Navy mustache regulations. |
-| Intentionally jumping overboard because you're a trans-species fish man. |
-| Interpreting signal flags. |
-| ISIS recruiters promising bonus goats and a sweet beheading knife if you defect. |
-| John Paul Jones' Crypt. |
-| Joining the Navy to get mad respect, bro! |
+| Ho mo e the apy fo  i ca ce ated Sailo s. |
+| Huffi g Haze G ay pai t f om a  old Kma t® shoppi g bag. |
+| Hu y up a d wait! |
+| I c easi gly st i ge t Navy mustache  egulatio s. |
+| I te tio ally jumpi g ove boa d because you' e a t a s-species fish ma . |
+| I te p eti g sig al flags. |
+| ISIS  ec uite s p omisi g bo us goats a d a sweet beheadi g k ife if you defect. |
+| Joh  Paul Jo es' C ypt. |
+| Joi i g the Navy to get mad  espect, b o! |
 | Just to piggyback off what Chief said... |
-| Knocking her up right before deployment. |
-| Laughable female PRT standards. |
-| Liberty-determining items. |
-| Liquor locker robberies. |
+| K ocki g he  up  ight befo e deployme t. |
+| Laughable female PRT sta da ds. |
+| Libe ty-dete mi i g items. |
+| Liquo  locke   obbe ies. |
 | LLD chits. |
-| Lone Survivor Marcus Luttrell punching an Afghan child right in its fucking face. |
+| Lo e Su vivo  Ma cus Lutt ell pu chi g a  Afgha  child  ight i  its fucki g face. |
 | Low visibility detail. |
-| Making fun of Marines. |
-| Marrying the local bargoyle for the BAH and the disgusting yet reliable sex. |
-| Masterful sea lawyering skills. |
-| Matching anchor tattoos so the friend ship doesn't sail away. |
-| Mercy killing your girlfriend's new puppy by knife handing its adorable little face to death. |
-| Middle Eastern "toilets." |
-| Military Discount Entitlement Syndrome. |
-| Mine-clearance dolphins. |
-| MM advancement exams. |
-| Mo fuggin' hands in yo' mo fuggin' pockets. |
-| Mocking Soldiers. |
-| Motorcycle training. |
-| MWR concerts featuring washed up 90's musicians. |
-| Naps in the safety nets. |
+| Maki g fu  of Ma i es. |
+| Ma yi g the local ba goyle fo  the BAH a d the disgusti g yet  eliable sex. |
+| Maste ful sea lawye i g skills. |
+| Matchi g a cho  tattoos so the f ie d ship does 't sail away. |
+| Me cy killi g you  gi lf ie d's  ew puppy by k ife ha di g its ado able little face to death. |
+| Middle Easte  "toilets." |
+| Milita y Discou t E titleme t Sy d ome. |
+| Mi e-clea a ce dolphi s. |
+| MM adva ceme t exams. |
+| Mo fuggi ' ha ds i  yo' mo fuggi ' pockets. |
+| Mocki g Soldie s. |
+| Moto cycle t ai i g. |
+| MWR co ce ts featu i g washed up 90's musicia s. |
+| Naps i  the safety  ets. |
 | Navy JAG. |
-| Navy SEALs making millions by doing random shit and selling it as a "SEAL Workout." |
-| NEX hairstyles that could be featured in Prison Cut Magazine. |
-| NJP for attending Edward Snowden's My Little Pony-themed birthday party. |
+| Navy SEALs maki g millio s by doi g  a dom shit a d selli g it as a "SEAL Wo kout." |
+| NEX hai styles that could be featu ed i  P iso  Cut Magazi e. |
+| NJP fo  atte di g Edwa d S owde 's My Little Po y-themed bi thday pa ty. |
 | No-shave chits. |
-| Norfolk. |
-| Nuclear engineers. |
-| Officer Candidate School. |
-| Officers enjoying tea, biscuits, and bestiality in their staterooms. |
-| Operational Risk Management. |
-| Passing raunchy sex notes to your boot camp boo. |
-| Paying for uniforms when you make Chief. |
-| Pearl Harbor fetish porn. |
-| Penetration, however slight, is enough to complete the offense. |
-| Petty officers. |
-| Playing Call of Duty® to prepare for MA training. |
+| No folk. |
+| Nuclea  e gi ee s. |
+| Office  Ca didate School. |
+| Office s e joyi g tea, biscuits, a d bestiality i  thei  state ooms. |
+| Ope atio al Risk Ma ageme t. |
+| Passi g  au chy sex  otes to you  boot camp boo. |
+| Payi g fo  u ifo ms whe  you make Chief. |
+| Pea l Ha bo  fetish po . |
+| Pe et atio , howeve  slight, is e ough to complete the offe se. |
+| Petty office s. |
+| Playi g Call of Duty® to p epa e fo  MA t ai i g. |
 | Pollywogs. |
-| Poppin' Motrin® like Skittles®. |
-| Post-Navy college adventures. |
-| PPE for your STD-ridden genitalia. |
-| Preying that your spouse doesn't accidentally meet your boat boo at the commissary. |
-| Punishment so elaborate you'd swear it was thought up by a Bond villian. |
-| Receiving the coveted Blue Falcon Award for noticing the Adam's Apple but letting your bro take home the tranny anyway. |
-| Recruit Heaven. |
-| Referring to your rackmate as a human-shaped bag of assholes. |
-| Regulations outlining female facial hair standards. |
-| Reorganizing the conex. Again. For the sixth time. |
-| Repeating " I could've been a SEAL" until you actually believe it. |
-| Rescue Swimmers doing gainers out of the helicopter. |
-| Rescued "refugees" comandeering your ship. |
+| Poppi ' Mot i ® like Skittles®. |
+| Post-Navy college adve tu es. |
+| PPE fo  you  STD- idde  ge italia. |
+| P eyi g that you  spouse does 't accide tally meet you  boat boo at the commissa y. |
+| Pu ishme t so elabo ate you'd swea  it was thought up by a Bo d villia . |
+| Receivi g the coveted Blue Falco  Awa d fo   otici g the Adam's Apple but letti g you  b o take home the t a y a yway. |
+| Rec uit Heave . |
+| Refe i g to you   ackmate as a huma -shaped bag of assholes. |
+| Regulatio s outli i g female facial hai  sta da ds. |
+| Reo ga izi g the co ex. Agai . Fo  the sixth time. |
+| Repeati g " I could've bee  a SEAL" u til you actually believe it. |
+| Rescue Swimme s doi g gai e s out of the helicopte . |
+| Rescued " efugees" coma dee i g you  ship. |
 | RIMPAC! |
-| Roger. That. Shipmate. |
-| Rollerblading across an active flight line wearing only UDT shorts and a smile. |
-| Saluting Midshipmen. |
-| Saluting officers' wives. |
-| Sarah Palin's powdered breast milk as an MRE drink mix. |
-| Screamin' Seamen! |
-| Sea and anchor detail. |
-| Sea Donkey slime trails on the flight deck. |
-| Sea Donkeys with lop-sided, hairy tits. |
-| Sea Lawyers. |
-| Sea stories. |
-| Sea Unicorns. |
-| Sea Warriors. |
-| Seabag inspections. |
-| Seaman Schmuckatelli. |
-| Second degree knee burns from gargling flight crew ballz. |
-| Secret squirrel secrets. |
-| Seeing your shaved, ladyboy ass posted on Shit My LPO Says. |
-| Shark Watch for swim call. |
-| Ship Store swag. |
-| Ship's laundry. |
-| Shipmates shipmating shipmates. |
-| Shore Patrol. |
-| Singing Highway to the Danger Zone in a 2003 Ford® Focus. |
-| Skating the fuck home right before GQ drills. |
-| Smuggling an underage teen out of the barracks before a health and comfort inspection. |
-| Social justice warriors trampling and burning the American flag. |
-| SQUEAL Team Sex: The Hunt for Bin Laden's Boy Pussy. |
-| Standing the fuck by! |
-| Stomping out a crotch fire. |
-| Striking for the newest rate: Navy Person. |
-| Sub guys wearing short shorts and nipple clamps. |
-| Swabbies and shipmates. |
-| Sweeping the flight deck during a torrential downpour. |
-| Tabasco®: a necessary evil. |
-| Tattoo regulations created by limp dick staff officers. |
-| That douchebag who ALWAYS steps on your rack while climbing up to theirs. |
-| That fucker who tosses chemlights off the ship. |
-| That nasty mother fucker who showers barefoot. |
-| That one Third Class we all had in our shop. |
-| That one time your boat boo got restriction right before shore liberty. |
-| The abortion-at-sea that is the movie Annapolis. |
-| The chiseled jawline and absurdly sculpted bisceps of Admiral Chester Nimitz. |
-| The CPO Selectee Carwash. |
-| The direction the Navy is headed. |
-| The DoD's yearning for bottom of the barrel, dirt cheap shit. |
+| Roge . That. Shipmate. |
+| Rolle bladi g ac oss a  active flight li e wea i g o ly UDT sho ts a d a smile. |
+| Saluti g Midshipme . |
+| Saluti g office s' wives. |
+| Sa ah Pali 's powde ed b east milk as a  MRE d i k mix. |
+| Sc eami ' Seame ! |
+| Sea a d a cho  detail. |
+| Sea Do key slime t ails o  the flight deck. |
+| Sea Do keys with lop-sided, hai y tits. |
+| Sea Lawye s. |
+| Sea sto ies. |
+| Sea U ico s. |
+| Sea Wa io s. |
+| Seabag i spectio s. |
+| Seama  Schmuckatelli. |
+| Seco d deg ee k ee bu s f om ga gli g flight c ew ballz. |
+| Sec et squi el sec ets. |
+| Seei g you  shaved, ladyboy ass posted o  Shit My LPO Says. |
+| Sha k Watch fo  swim call. |
+| Ship Sto e swag. |
+| Ship's lau d y. |
+| Shipmates shipmati g shipmates. |
+| Sho e Pat ol. |
+| Si gi g Highway to the Da ge  Zo e i  a 2003 Fo d® Focus. |
+| Skati g the fuck home  ight befo e GQ d ills. |
+| Smuggli g a  u de age tee  out of the ba acks befo e a health a d comfo t i spectio . |
+| Social justice wa io s t ampli g a d bu i g the Ame ica  flag. |
+| SQUEAL Team Sex: The Hu t fo  Bi  Lade 's Boy Pussy. |
+| Sta di g the fuck by! |
+| Stompi g out a c otch fi e. |
+| St iki g fo  the  ewest  ate: Navy Pe so . |
+| Sub guys wea i g sho t sho ts a d  ipple clamps. |
+| Swabbies a d shipmates. |
+| Sweepi g the flight deck du i g a to e tial dow pou . |
+| Tabasco®: a  ecessa y evil. |
+| Tattoo  egulatio s c eated by limp dick staff office s. |
+| That douchebag who ALWAYS steps o  you   ack while climbi g up to thei s. |
+| That fucke  who tosses chemlights off the ship. |
+| That  asty mothe  fucke  who showe s ba efoot. |
+| That o e Thi d Class we all had i  ou  shop. |
+| That o e time you  boat boo got  est ictio   ight befo e sho e libe ty. |
+| The abo tio -at-sea that is the movie A apolis. |
+| The chiseled jawli e a d absu dly sculpted bisceps of Admi al Cheste  Nimitz. |
+| The CPO Selectee Ca wash. |
+| The di ectio  the Navy is headed. |
+| The DoD's yea i g fo  bottom of the ba el, di t cheap shit. |
 | The galley. |
-| The gallons of semen your mattress has absorbed. |
+| The gallo s of seme  you  matt ess has abso bed. |
 | The good kid |
-| The gooey aftermath of a Sailor walking into a P-3's rotor arc. |
-| The Great Pacific garbage patch. |
-| The grunting and heavy breathing of a lonely rackmate. |
-| The indoor tracks of RTC Great Lakes. |
-| The little goblins that live in engineering spaces. |
-| The M240D's cycle of operations. |
-| The MCPON engaging is "gerbil play." |
-| The MWR tour you're no longer allowed to join. |
+| The gooey afte math of a Sailo  walki g i to a P-3's  oto  a c. |
+| The G eat Pacific ga bage patch. |
+| The g u ti g a d heavy b eathi g of a lo ely  ackmate. |
+| The i doo  t acks of RTC G eat Lakes. |
+| The little gobli s that live i  e gi ee i g spaces. |
+| The M240D's cycle of ope atio s. |
+| The MCPON e gagi g is "ge bil play." |
+| The MWR tou  you' e  o lo ge  allowed to joi . |
 | The mythical Sea Pegasus. |
 | The Navy Times. |
-| The Navy's mentorship program. |
-| The package store. |
-| The pathetic lack of funds in your TSP. |
-| The pinball machine in Skipper's stateroom. |
-| The Pucker Factor. |
-| The Quarterdeck POOW. |
-| The safety stand-down from Hell! |
-| The Seabees' gay construction worker-themed dance party. |
-| The SECNAV's wrinkly little raisin dick. |
-| The ship's movie channels. |
-| The sudden realization that YOU are a fobbit! |
-| The Swastika-shaped building on Naval Amphibious Base Coronado. Seriously, Google Map that shit right now! |
-| The United States Navy. |
-| The United States Navy. |
-| The unmistakable smell of chloroform at your command's Christmas party. |
-| The uselessness of Transition GPS. |
-| The USS Neverdock. |
-| Totally super hardcore Navy PRT standards. |
-| Transgender Education Training. |
-| Tricing someone up in their rack. |
-| Tricking Marines into forming fake lines. |
-| Urinalysis meat gazers who love to watch. |
-| Using a rescue litter to restrain a drunken FNG. |
-| Using a treadmill aboard a ship. |
-| Using blood magic to resurrect the USS Arizona. |
-| Using your DITY move to smuggle West Virginia hillbilly meth across the Canadian border. |
-| Using your technical savy to melt plastic trash into dragon dildos and Golden Girls-themed fuck toys. |
-| Vacation Bible School. |
-| Veteran suicide awareness. |
-| Vietnamese mercenaries hunting John Kerry. |
-| Violating UCMJ Article 114 by dueling Jody to the death. |
-| Visiting the waterpark in Dubai. |
-| Waiting for the harbor pilot in any Middle Eastern port. |
-| Washing Chief's coffee mug. |
+| The Navy's me to ship p og am. |
+| The package sto e. |
+| The pathetic lack of fu ds i  you  TSP. |
+| The pi ball machi e i  Skippe 's state oom. |
+| The Pucke  Facto . |
+| The Qua te deck POOW. |
+| The safety sta d-dow  f om Hell! |
+| The Seabees' gay co st uctio  wo ke -themed da ce pa ty. |
+| The SECNAV's w i kly little  aisi  dick. |
+| The ship's movie cha els. |
+| The sudde   ealizatio  that YOU a e a fobbit! |
+| The Swastika-shaped buildi g o  Naval Amphibious Base Co o ado. Se iously, Google Map that shit  ight  ow! |
+| The U ited States Navy. |
+| The U ited States Navy. |
+| The u mistakable smell of chlo ofo m at you  comma d's Ch istmas pa ty. |
+| The useless ess of T a sitio  GPS. |
+| The USS Neve dock. |
+| Totally supe  ha dco e Navy PRT sta da ds. |
+| T a sge de  Educatio  T ai i g. |
+| T ici g someo e up i  thei   ack. |
+| T icki g Ma i es i to fo mi g fake li es. |
+| U i alysis meat gaze s who love to watch. |
+| Usi g a  escue litte  to  est ai  a d u ke  FNG. |
+| Usi g a t eadmill aboa d a ship. |
+| Usi g blood magic to  esu ect the USS A izo a. |
+| Usi g you  DITY move to smuggle West Vi gi ia hillbilly meth ac oss the Ca adia  bo de . |
+| Usi g you  tech ical savy to melt plastic t ash i to d ago  dildos a d Golde  Gi ls-themed fuck toys. |
+| Vacatio  Bible School. |
+| Vete a  suicide awa e ess. |
+| Viet amese me ce a ies hu ti g Joh  Ke y. |
+| Violati g UCMJ A ticle 114 by dueli g Jody to the death. |
+| Visiti g the wate pa k i  Dubai. |
+| Waiti g fo  the ha bo  pilot i  a y Middle Easte  po t. |
+| Washi g Chief's coffee mug. |
 | Watch. |
-| Watching deployment homecoming videos for a good cry. |
-| Watching Marines break shit. |
-| Watching two Marines fight over the last box of crayons. |
-| Well-deserved fratricide. |
-| Whipping your dependents like Hebrew slaves. |
-| Witnessing a suicide from the Coronado Bridge. |
-| Women in BUD/S. |
-| Working the pole to earn money for new chemlights. |
-| Working the pulper. |
-| Workups. |
-| Writing your name in the water using a .50 cal. |
-| Ye olde times medical procedures used aboard the USS Constitution. |
-| Your future ex-dependa. |
-| Your significant other fucking a pilot the minute you deploy. |
-| Your third NKO password attempt. |
+| Watchi g deployme t homecomi g videos fo  a good c y. |
+| Watchi g Ma i es b eak shit. |
+| Watchi g two Ma i es fight ove  the last box of c ayo s. |
+| Well-dese ved f at icide. |
+| Whippi g you  depe de ts like Heb ew slaves. |
+| Wit essi g a suicide f om the Co o ado B idge. |
+| Wome  i  BUD/S. |
+| Wo ki g the pole to ea  mo ey fo   ew chemlights. |
+| Wo ki g the pulpe . |
+| Wo kups. |
+| W iti g you   ame i  the wate  usi g a .50 cal. |
+| Ye olde times medical p ocedu es used aboa d the USS Co stitutio . |
+| You  futu e ex-depe da. |
+| You  sig ifica t othe  fucki g a pilot the mi ute you deploy. |
+| You  thi d NKO passwo d attempt. |
 
 |Total amount: 1328|
 |---|

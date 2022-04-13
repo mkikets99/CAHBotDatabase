@@ -11,13 +11,13 @@ Answers amount: 5
 |---|
 
 ### Answers
-| Question |
+| Answers |
 |---|
-| Accidentally referring to "the gays". |
-| Hillary's private email server filled with "Government Classified Animal Porn". |
-| Not NOT supporting the KKK. |
-| Trumps fatherly love for his daughters "bangin' body. |
-| Vladimir Putin making love to a Siberian tiger. |
+| Accide tally  efe i g to "the gays". |
+| Hilla y's p ivate email se ve  filled with "Gove me t Classified A imal Po ". |
+| Not NOT suppo ti g the KKK. |
+| T umps fathe ly love fo  his daughte s "ba gi ' body. |
+| Vladimi  Puti  maki g love to a Sibe ia  tige . |
 
 |Total amount: 5|
 |---|

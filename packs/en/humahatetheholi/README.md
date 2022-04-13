@@ -55,9 +55,7 @@ Answers amount: 160
 | Only you can prevent _. | 1 |
 | Our waitress at Hooters™ showed us her _. | 1 |
 | Our wedding night consisted of _ and _. | 2 |
-| Roses are red,Violets are blue,
-I am going to _
-with you. | 1 |
+| Roses are red, Violets are blue, I am going to _ with you. | 1 |
 | Sex: Making _ great again. | 1 |
 | She just got a new tramp stamp of _. | 1 |
 | St. Valentine: Patron Saint of _. | 1 |
@@ -73,168 +71,170 @@ with you. | 1 |
 |---|
 
 ### Answers
-| Question |
+| Answers |
 |---|
-| #blackfridaymatters |
-| A box of nude pictures of your girlfriend, from your best friend. |
-| A cotton headed ninny muggins. |
-| A fully cooked turkey as a hat. |
-| A gingerbread man living in a home made of his own flesh. |
-| A Harlem White Christmas. |
-| A lactating reindeer. |
-| A Macy's Thanksgiving Day wardrobe malfunction. |
-| A Muslim in the White House. |
-| A transgender Barbie™ doll. |
-| Accidentally gifting your wife's lingerie to your mom. |
-| Adolf Hitler singing "O Tannenbaum" in hell. |
-| Allah Akbar Goldstein, the most confused boy in the world. |
-| An official Red Ryder Carbine Action Two Hundred Shot Range Model Air Rifle. |
-| An uncanny correlation between a family's financial situation and Santa's generosity. |
-| Being "touched" by an angel. |
-| Being a virgin and giving birth on Christmas. |
-| Being nice in December so you can be a douche for the rest of the year. |
-| Being thankful for your new friends and then giving them the gift of smallpox. |
-| Bill Cosby standing by the punch bowl. |
-| Calling it 'X-mas' just to annoy people. |
-| Celebrating genocide by eating turkey with friends and family. |
-| Chinese food and movie theater tickets. |
-| Christmahanakwanzika. |
-| Ebenezer Splooge. |
-| Explaining 'safety in numbers' to 6 million Jews. |
-| Feats of strength. |
-| Feeding the homeless meat pies made of their fallen brethren. |
-| Getting groin-tickled by Santa's white beard. |
-| Getting invited back to Santa's workshop. |
-| Getting trampled on Black Friday. |
-| Giving a homeless person a gingerbread house. |
-| Grandma pinching all four of your cheeks. |
-| Grandpa's Christmas sausage. |
-| Having dyslexia and writing a list to Satan. |
-| Hiding hooch around the house. |
+| #blackf idaymatte s |
+| A box of  ude pictu es of you  gi lf ie d, f om you  best f ie d. |
+| A cotto  headed  i y muggi s. |
+| A fully cooked tu key as a hat. |
+| A gi ge b ead ma  livi g i  a home made of his ow  flesh. |
+| A Ha lem White Ch istmas. |
+| A lactati g  ei dee . |
+| A Macy's Tha ksgivi g Day wa d obe malfu ctio . |
+| A Muslim i  the White House. |
+| A t a sge de  Ba bie™ doll. |
+| Accide tally gifti g you  wife's li ge ie to you  mom. |
+| Adolf Hitle  si gi g "O Ta e baum" i  hell. |
+| Allah Akba  Goldstei , the most co fused boy i  the wo ld. |
+| A  official Red Ryde  Ca bi e Actio  Two Hu d ed Shot Ra ge Model Ai  Rifle. |
+| A  u ca y co elatio  betwee  a family's fi a cial situatio  a d Sa ta's ge e osity. |
+| Bei g "touched" by a  a gel. |
+| Bei g a vi gi  a d givi g bi th o  Ch istmas. |
+| Bei g  ice i  Decembe  so you ca  be a douche fo  the  est of the yea . |
+| Bei g tha kful fo  you   ew f ie ds a d the  givi g them the gift of smallpox. |
+| Bill Cosby sta di g by the pu ch bowl. |
+| Calli g it 'X-mas' just to a oy people. |
+| Celeb ati g ge ocide by eati g tu key with f ie ds a d family. |
+| Chi ese food a d movie theate  tickets. |
+| Ch istmaha akwa zika. |
+| Ebe eze  Splooge. |
+| Explai i g 'safety i   umbe s' to 6 millio  Jews. |
+| Feats of st e gth. |
+| Feedi g the homeless meat pies made of thei  falle  b eth e . |
+| Getti g g oi -tickled by Sa ta's white bea d. |
+| Getti g i vited back to Sa ta's wo kshop. |
+| Getti g t ampled o  Black F iday. |
+| Givi g a homeless pe so  a gi ge b ead house. |
+| G a dma pi chi g all fou  of you  cheeks. |
+| G a dpa's Ch istmas sausage. |
+| Havi g dyslexia a d w iti g a list to Sata . |
+| Hidi g hooch a ou d the house. |
 | Ho, Ho, Hoes. |
-| Jared Leto in a powder blue tuxedo |
+| Ja ed Leto i  a powde  blue tuxedo |
 | Jesus Juice. |
-| Jews for Jesus. |
-| Kristmas at the Kardashians'. |
-| Kristmas with the Klan. |
-| Leaving your child home alone to fend for himself. |
-| Mistaking poison oak for mistletoe. |
-| Mrs. Claus getting gangbanged by all of the other reindeer. |
-| Penis shaped cookies and "milk." |
-| People who wear shirts that say female body inspector. |
-| Plan B in your Christmas stocking. |
-| Playing inappropriate card games with your family. |
-| Putting Christ in Christmas. |
-| Re-gifted fruitcake. |
-| Reaching your hand in the Salvation Army bucket to make it look like you're donating, but really you're stealing that shit. |
-| Reindeer semen. |
-| Rudolph's pent up sexual frustration. |
-| Santa cumming down your chimney. |
+| Jews fo  Jesus. |
+| K istmas at the Ka dashia s'. |
+| K istmas with the Kla . |
+| Leavi g you  child home alo e to fe d fo  himself. |
+| Mistaki g poiso  oak fo  mistletoe. |
+| M s. Claus getti g ga gba ged by all of the othe   ei dee . |
+| Pe is shaped cookies a d "milk." |
+| People who wea  shi ts that say female body i specto . |
+| Pla  B i  you  Ch istmas stocki g. |
+| Playi g i app op iate ca d games with you  family. |
+| Putti g Ch ist i  Ch istmas. |
+| Re-gifted f uitcake. |
+| Reachi g you  ha d i  the Salvatio  A my bucket to make it look like you' e do ati g, but  eally you' e steali g that shit. |
+| Rei dee  seme . |
+| Rudolph's pe t up sexual f ust atio . |
+| Sa ta cummi g dow  you  chim ey. |
 | STDs: gotta catch 'em all. |
-| Stockings filled with Vaseline®. |
-| Telling kids that the Tootsie Rolls® are actually processed reindeer crap. |
-| That awkward family who thinks it's "cybersex Monday." |
-| That awkward present that vibrates in the box. |
-| That moment you realize the elf's workshop is really a Bangladeshi sweatshop. |
-| That one funny uncle with a welcoming lap who always dresses as Santa. |
-| The "Little Drummer Boy" switching to the rusty trombone. |
-| The "North Pole", if you know what I mean. |
-| The Diary of Anne Spank: An XXX Parody. |
-| The disappointment of a Jewish child on the 25th. |
-| The sense of holiday spirit you feel while buried to the hilt in the cold, uncooked guts of your Thanksgiving Day turkey. |
-| The Star Wars prequels |
-| The Ultimate Yule LogPlay this card and win the round.The gift that keeps on giving. |
-| Unwrapping Go-Bots® because you're poor. |
-| Unwrapping Justin Timberlake's dick in a box. |
-| Using child labor to make toys for the first world. |
-| Vibrating stockings. |
-| Waking up Christmas morning to find your parents unwrapping each other. |
-| Wearing a belt made out of mistletoe. |
-| When your SJW cousin calls you insensitive because he thinks your bowl of mixed nuts is a political statement against same-sex interracial couples. |
-| Wondering why people celebrate Christmas when Jesus was Jewish. |
-| Yellow snow. |
-| Your family asking if you are seeing anyone yet. |
-| Your uncle's obvious "fuck me" eyes. |
-| (An) eggplant emoji. |
-| 100% All-Beef Thermometer. |
-| 8th Grade and Pregnant. |
-| A "Happy Valentine's Day" Card from AshleyMadison.com. |
-| A gas station teddy bear. |
-| A peanut butter and KY Jelly sandwich. |
-| A sex doll that just wants to be friends. |
-| Abortion Baby Shower. |
-| Accidentally hitching a ride on the bang bus. |
-| Accidentally sexting your mom. |
-| Ashley Madison & Chill. |
-| Awkwardly confessing your love via text. |
-| Bananas, Cucumbers, and Hot Dogs. |
-| Being a sidechick on Valentine's Day. |
-| Bleeding Dick. |
-| Bringing your sidekick to your Valentine's Date. |
-| Buying candy and stuffed animals on sale on February 15th. |
-| Claiming Russell Stover™ as your Valentine. |
-| Clown Fucking. |
-| Congratulating someone on the results of their unprotected sex. |
-| Convoncing your mom to Google "Lemon Party". |
+| Stocki gs filled with Vaseli e®. |
+| Telli g kids that the Tootsie Rolls® a e actually p ocessed  ei dee  c ap. |
+| That awkwa d family who thi ks it's "cybe sex Mo day." |
+| That awkwa d p ese t that vib ates i  the box. |
+| That mome t you  ealize the elf's wo kshop is  eally a Ba gladeshi sweatshop. |
+| That o e fu y u cle with a welcomi g lap who always d esses as Sa ta. |
+| The "Little D umme  Boy" switchi g to the  usty t ombo e. |
+| The "No th Pole", if you k ow what I mea . |
+| The Dia y of A e Spa k: A  XXX Pa ody. |
+| The disappoi tme t of a Jewish child o  the 25th. |
+| The se se of holiday spi it you feel while bu ied to the hilt i  the cold, u cooked guts of you  Tha ksgivi g Day tu key. |
+| The Sta  Wa s p equels |
+| The Ultimate Yule Log
+Play this ca d a d wi  the  ou d.
+The gift that keeps o  givi g. |
+| U w appi g Go-Bots® because you' e poo . |
+| U w appi g Justi  Timbe lake's dick i  a box. |
+| Usi g child labo  to make toys fo  the fi st wo ld. |
+| Vib ati g stocki gs. |
+| Waki g up Ch istmas mo i g to fi d you  pa e ts u w appi g each othe . |
+| Wea i g a belt made out of mistletoe. |
+| Whe  you  SJW cousi  calls you i se sitive because he thi ks you  bowl of mixed  uts is a political stateme t agai st same-sex i te acial couples. |
+| Wo de i g why people celeb ate Ch istmas whe  Jesus was Jewish. |
+| Yellow s ow. |
+| You  family aski g if you a e seei g a yo e yet. |
+| You  u cle's obvious "fuck me" eyes. |
+| (A ) eggpla t emoji. |
+| 100% All-Beef The momete . |
+| 8th G ade a d P eg a t. |
+| A "Happy Vale ti e's Day" Ca d f om AshleyMadiso .com. |
+| A gas statio  teddy bea . |
+| A pea ut butte  a d KY Jelly sa dwich. |
+| A sex doll that just wa ts to be f ie ds. |
+| Abo tio  Baby Showe . |
+| Accide tally hitchi g a  ide o  the ba g bus. |
+| Accide tally sexti g you  mom. |
+| Ashley Madiso  & Chill. |
+| Awkwa dly co fessi g you  love via text. |
+| Ba a as, Cucumbe s, a d Hot Dogs. |
+| Bei g a sidechick o  Vale ti e's Day. |
+| Bleedi g Dick. |
+| B i gi g you  sidekick to you  Vale ti e's Date. |
+| Buyi g ca dy a d stuffed a imals o  sale o  Feb ua y 15th. |
+| Claimi g Russell Stove ™ as you  Vale ti e. |
+| Clow  Fucki g. |
+| Co g atulati g someo e o  the  esults of thei  u p otected sex. |
+| Co vo ci g you  mom to Google "Lemo  Pa ty". |
 | Dad's used fleshlight. |
-| Dating a senior. |
-| Designated Ugly Fat Friend. |
-| Diaper Fetishes. |
-| Downloading Grindr™ on Valentine's Day to "check it out". |
-| Eating an entire box of chocolates. |
-| Fake male orgasms. |
-| Finding your mother's special lingerie...on your dad. |
-| Giving out Valentine handjobs. |
-| Gluten-free edible panties. |
-| Grabbing her by the pussy. |
-| Haivng sex on the display beds at Sears. |
-| Having a surprise baby on November 14th. |
-| Having Maury Povich tell you, "You are not the father". |
-| Hearing your dad offer to give your mom his special cream pie. |
-| Heat-Seeking Love Missile. |
-| Helping someone move and finding a giant bag of sex toys. |
-| Inappropriate Valentine's Day cards in your kid's classroom. |
-| Jelly Bean Shits. |
-| Jerking off to Fraggle Rock. |
-| Leaving a sex partner so dissatisfied that you regain your virginity. |
-| Looking at my sister's face under a blacklight. |
-| Losing your v-card on V-Day. |
+| Dati g a se io . |
+| Desig ated Ugly Fat F ie d. |
+| Diape  Fetishes. |
+| Dow loadi g G i d ™ o  Vale ti e's Day to "check it out". |
+| Eati g a  e ti e box of chocolates. |
+| Fake male o gasms. |
+| Fi di g you  mothe 's special li ge ie...o  you  dad. |
+| Givi g out Vale ti e ha djobs. |
+| Glute -f ee edible pa ties. |
+| G abbi g he  by the pussy. |
+| Haiv g sex o  the display beds at Sea s. |
+| Havi g a su p ise baby o  Novembe  14th. |
+| Havi g Mau y Povich tell you, "You a e  ot the fathe ". |
+| Hea i g you  dad offe  to give you  mom his special c eam pie. |
+| Heat-Seeki g Love Missile. |
+| Helpi g someo e move a d fi di g a gia t bag of sex toys. |
+| I app op iate Vale ti e's Day ca ds i  you  kid's class oom. |
+| Jelly Bea  Shits. |
+| Je ki g off to F aggle Rock. |
+| Leavi g a sex pa t e  so dissatisfied that you  egai  you  vi gi ity. |
+| Looki g at my siste 's face u de  a blacklight. |
+| Losi g you  v-ca d o  V-Day. |
 | Love Muscle. |
-| Making her squirt farther than a Super Soaker™. |
-| Milking the family snake. |
-| Moms riding motorcycles. |
-| Mr. Happy. |
-| My brother's special sock. |
+| Maki g he  squi t fa the  tha  a Supe  Soake ™. |
+| Milki g the family s ake. |
+| Moms  idi g moto cycles. |
+| M . Happy. |
+| My b othe 's special sock. |
 | OkCupid™. |
-| Ordering enough Valentine's Day takeout for 2 people to avoid the delivery guy's pity. |
-| Overindulging on gummy bears. |
-| Panties so moist they could drown a beaver. |
-| Placing burning cigarettes in your spouse's purse. |
-| Practicing Cosmopolitan's 50 naughty V-Day moves. |
-| Proposing to your sidechick accidentally. |
-| Re-inventing what it means to "Doggy-Style". |
-| Ripping out anal beads like you're starting a lawnmower. |
-| Semen-flavored truffles. |
-| Sending yourself flowers. |
-| Seven minutes in heaven. |
-| Single's awareness day. |
-| Stop & Frisk Role-Playing. |
-| Stripper's Clothes. |
-| Surprise Anal. |
-| Switching out Valentines for dog shit. |
-| Tens, Tens, Tens, Twenties on my Twitties. |
-| The desparate girl who wanted to be a mom so bad that she robbed a sperm bank. |
+| O de i g e ough Vale ti e's Day takeout fo  2 people to avoid the delive y guy's pity. |
+| Ove i dulgi g o  gummy bea s. |
+| Pa ties so moist they could d ow  a beave . |
+| Placi g bu i g ciga ettes i  you  spouse's pu se. |
+| P actici g Cosmopolita 's 50  aughty V-Day moves. |
+| P oposi g to you  sidechick accide tally. |
+| Re-i ve ti g what it mea s to "Doggy-Style". |
+| Rippi g out a al beads like you' e sta ti g a law mowe . |
+| Seme -flavo ed t uffles. |
+| Se di g you self flowe s. |
+| Seve  mi utes i  heave . |
+| Si gle's awa e ess day. |
+| Stop & F isk Role-Playi g. |
+| St ippe 's Clothes. |
+| Su p ise A al. |
+| Switchi g out Vale ti es fo  dog shit. |
+| Te s, Te s, Te s, Twe ties o  my Twitties. |
+| The despa ate gi l who wa ted to be a mom so bad that she  obbed a spe m ba k. |
 | The hospital baby swap. |
-| The morning after pill. |
-| Throwing rolls of pennies at strippers. |
-| Trying to take her bra off with one hand. |
-| Turbo thots. |
-| Using a suicide hotline for phone sex. |
-| Valentine's Day, when delivery guys make more than just tips. |
-| Walking in on your sister using your electric toothbrush. |
-| Whitening your teeth with Dad's help. |
-| Your boyfriend revealing Cupid isn't the only fairy on Valentine's Day. |
-| Your father's porn collection. |
+| The mo i g afte  pill. |
+| Th owi g  olls of pe ies at st ippe s. |
+| T yi g to take he  b a off with o e ha d. |
+| Tu bo thots. |
+| Usi g a suicide hotli e fo  pho e sex. |
+| Vale ti e's Day, whe  delive y guys make mo e tha  just tips. |
+| Walki g i  o  you  siste  usi g you  elect ic toothb ush. |
+| White i g you  teeth with Dad's help. |
+| You  boyf ie d  eveali g Cupid is 't the o ly fai y o  Vale ti e's Day. |
+| You  fathe 's po  collectio . |
 
 |Total amount: 160|
 |---|

@@ -92,9 +92,7 @@ Answers amount: 540
 | They said that we were insane to try mixing _ with _. They thought wrong! | 2 |
 | This is an absolutely hilarious video. Please share it! #_ | 1 |
 | Today's Special: _ with an extra measure of _. | 2 |
-| Today's to-do list:1) Bake muffins.
-2) Wipe off the counters.
-3) Clean up that _ stain. | 1 |
+| Today's to-do list: 1) Bake muffins. 2) Wipe off the counters. 3) Clean up that _ stain. | 1 |
 | Try this fun tip: when your man asks for _, give him some _ instead. | 2 |
 | Using 2 of the cards in your hand, describe the 'Baas' biggest embarassment | 1 |
 | Warning: Common side effects include _ and _. | 2 |
@@ -143,548 +141,548 @@ Answers amount: 540
 |---|
 
 ### Answers
-| Question |
+| Answers |
 |---|
-| #fearvokallchicks. |
-| Getting so angry that you pop a boner. |
-| Oral sex that tastes like urine. |
-| 100% hearthfelt compassion. |
-| 20g of Street tik. |
-| 3 Dimensional spatial awarness. |
+| #fea vokallchicks. |
+| Getti g so a g y that you pop a bo e . |
+| O al sex that tastes like u i e. |
+| 100% hea thfelt compassio . |
+| 20g of St eet tik. |
+| 3 Dime sio al spatial awa ess. |
 | 3 egg omelettes. |
-| 500 hours of court-ordered community service. |
-| 7 Blows with a crowbar on the uppper lip. |
-| 939 million 3000 and 60000 members |
-| A 15cm long dick. |
-| A bald eagle named Small Government. |
-| A big hot fire that's burning everybody. |
-| A bleeding asshole. |
+| 500 hou s of cou t-o de ed commu ity se vice. |
+| 7 Blows with a c owba  o  the upppe  lip. |
+| 939 millio  3000 a d 60000 membe s |
+| A 15cm lo g dick. |
+| A bald eagle  amed Small Gove me t. |
+| A big hot fi e that's bu i g eve ybody. |
+| A bleedi g asshole. |
 | A box of magic dice. |
-| A brain tumour. |
-| A cheeky coloured woman. |
-| A clandestine crotch scratch. |
-| A dead puppy, marinated with monkey-gland sauce. |
-| A defective stroller. |
-| A disappointing salad. |
-| A dropped stitch. |
-| a few porpoises a-piece |
-| A four million-dollar fireworks display. |
-| A good, strong gorilla. |
-| A gorilla smoking a pipe. |
-| A great white shark with halitosis. |
-| A hippo in a thong. |
-| A hot neighbor with no conscience and nothing to lose. |
-| A human cannonball. |
-| A Leon Schuster candid camera prank. |
-| A lifetime subscription to Big Black Butts magazine. |
-| A mangy dog. |
-| A micropig wearing a tiny raincoat and booties. |
-| A middle-aged man rollerblading in a mankini. |
-| A miniature Doberman biting the rim of your anus. |
-| A moment so special you realize it was all worth it. |
-| A moment so special you realize it was all worth it. |
-| A more handsome, younger, stronger toy-boy |
-| A murder in the making. |
-| A penis horn on a unicorn. |
-| A pick-up line that works every damn time. |
-| A porn pirate's life. |
-| A prehensile tongue that is 12cm long. |
-| A proper gentleman. |
-| A racial fascist. |
-| a really cool preteen |
-| A samurai sword |
+| A b ai  tumou . |
+| A cheeky colou ed woma . |
+| A cla desti e c otch sc atch. |
+| A dead puppy, ma i ated with mo key-gla d sauce. |
+| A defective st olle . |
+| A disappoi ti g salad. |
+| A d opped stitch. |
+| a few po poises a-piece |
+| A fou  millio -dolla  fi ewo ks display. |
+| A good, st o g go illa. |
+| A go illa smoki g a pipe. |
+| A g eat white sha k with halitosis. |
+| A hippo i  a tho g. |
+| A hot  eighbo  with  o co scie ce a d  othi g to lose. |
+| A huma  ca o ball. |
+| A Leo  Schuste  ca did came a p a k. |
+| A lifetime subsc iptio  to Big Black Butts magazi e. |
+| A ma gy dog. |
+| A mic opig wea i g a ti y  ai coat a d booties. |
+| A middle-aged ma   olle bladi g i  a ma ki i. |
+| A mi iatu e Dobe ma  biti g the  im of you  a us. |
+| A mome t so special you  ealize it was all wo th it. |
+| A mome t so special you  ealize it was all wo th it. |
+| A mo e ha dsome, you ge , st o ge  toy-boy |
+| A mu de  i  the maki g. |
+| A pe is ho  o  a u ico . |
+| A pick-up li e that wo ks eve y dam  time. |
+| A po  pi ate's life. |
+| A p ehe sile to gue that is 12cm lo g. |
+| A p ope  ge tlema . |
+| A  acial fascist. |
+| a  eally cool p etee  |
+| A samu ai swo d |
 | A sasquatch |
-| A saxophone solo. |
-| A sink full of pee. |
-| A snotklap. |
-| A soiled baby diaper fight. |
-| A sriracha filled doughnut. |
-| A stray pube in your food. |
-| A Taxi-bus following road rules. |
-| A thermos full of baby batter |
-| A timeless reading from Fifty Shades of Grey. |
-| A very awkward voicemail. |
-| A wacky waving inflatable arm-flailing tubeman. |
-| A whale-mating display. |
-| A windmill decorated with decomposing corpses. |
-| Absobloodylutely nothing! |
-| Abusing the elderly in the old age home. |
-| Accidentally peeing a little bit when you laugh. |
-| Accidentally seeing your parents having anal sex. |
-| Actaully having a great hair day. |
-| Actors that try to sing |
-| Actually voting for Donald Trump to be President of the actual United States. |
-| Addicted to antidepressants. |
-| Afrikaner Mafia. |
+| A saxopho e solo. |
+| A si k full of pee. |
+| A s otklap. |
+| A soiled baby diape  fight. |
+| A s i acha filled dough ut. |
+| A st ay pube i  you  food. |
+| A Taxi-bus followi g  oad  ules. |
+| A the mos full of baby batte  |
+| A timeless  eadi g f om Fifty Shades of G ey. |
+| A ve y awkwa d voicemail. |
+| A wacky wavi g i flatable a m-flaili g tubema . |
+| A whale-mati g display. |
+| A wi dmill deco ated with decomposi g co pses. |
+| Absobloodylutely  othi g! |
+| Abusi g the elde ly i  the old age home. |
+| Accide tally peei g a little bit whe  you laugh. |
+| Accide tally seei g you  pa e ts havi g a al sex. |
+| Actaully havi g a g eat hai  day. |
+| Acto s that t y to si g |
+| Actually voti g fo  Do ald T ump to be P eside t of the actual U ited States. |
+| Addicted to a tidep essa ts. |
+| Af ika e  Mafia. |
 | AIDS |
-| aim for the center! |
-| Alexander Hamilton's mummified corpse. |
-| All-you-can-eat buffalo wings for R45.00. |
-| Alternative facts |
-| Amazing Abs. |
+| aim fo  the ce te ! |
+| Alexa de  Hamilto 's mummified co pse. |
+| All-you-ca -eat buffalo wi gs fo  R45.00. |
+| Alte ative facts |
+| Amazi g Abs. |
 | Amy Adams |
-| An actor actaully having a heart attack. |
-| An adorable pet rat. |
-| An angle-grinder lobotomy. |
-| an anorexia and bulima show-off. |
-| An atheist going to Garden of the Gods. |
-| An erection that lasts longer than four hours. |
-| An expanding ray. |
-| An explosively flatulent cow. |
-| An honest lawyer. |
-| An off-center soul patch. |
-| An over-sized Pit bull on steroids. |
-| An unfulfilling handjob. |
-| Anal bleeding. |
-| Another goddamn cookstove |
-| ARchbishop Emeritus Desmond Tutu. |
-| Arranged Marriages |
-| Asians who sound white. |
-| Assmebling an IKEA wardrobe. |
-| Attracting literally the worst people. |
-| Austin Blues Predators. |
-| Authentic Mexican cuisine. |
-| Autoerotic asphyxiation. |
-| AXE deodorant spray clouds |
-| Ball-sack pins & Needles. |
+| A  acto  actaully havi g a hea t attack. |
+| A  ado able pet  at. |
+| A  a gle-g i de  lobotomy. |
+| a  a o exia a d bulima show-off. |
+| A  atheist goi g to Ga de  of the Gods. |
+| A  e ectio  that lasts lo ge  tha  fou  hou s. |
+| A  expa di g  ay. |
+| A  explosively flatule t cow. |
+| A  ho est lawye . |
+| A  off-ce te  soul patch. |
+| A  ove -sized Pit bull o  ste oids. |
+| A  u fulfilli g ha djob. |
+| A al bleedi g. |
+| A othe  goddam  cookstove |
+| ARchbishop Eme itus Desmo d Tutu. |
+| A a ged Ma iages |
+| Asia s who sou d white. |
+| Assmebli g a  IKEA wa d obe. |
+| Att acti g lite ally the wo st people. |
+| Austi  Blues P edato s. |
+| Authe tic Mexica  cuisi e. |
+| Autoe otic asphyxiatio . |
+| AXE deodo a t sp ay clouds |
+| Ball-sack pi s & Needles. |
 | Balls. Big balls. Really big balls. |
-| Batman. |
-| Beauty pageants for children. |
-| Becuase: bacon. |
-| Being a dinosaur. |
-| Being a political correct grammar Nazi. |
-| Being absolutely fabulous. |
-| Being diagnosed with a disease that affects 1 out of every eight billion people. |
-| Being Marginalised. |
-| Being on Fire. |
-| Being pregnant with dolphin babies. |
-| Being seen reading Infinite Jest. |
-| Being too late to stop the ass from having an orgasm. |
-| Beitbridge border guards. |
-| Bitching about nothing. |
-| Black Republicans. |
-| blink once for yes, twice for no |
-| Boerewors Rolls |
-| Boerewors rolls. |
+| Batma . |
+| Beauty pagea ts fo  child e . |
+| Becuase: baco . |
+| Bei g a di osau . |
+| Bei g a political co ect g amma  Nazi. |
+| Bei g absolutely fabulous. |
+| Bei g diag osed with a disease that affects 1 out of eve y eight billio  people. |
+| Bei g Ma gi alised. |
+| Bei g o  Fi e. |
+| Bei g p eg a t with dolphi  babies. |
+| Bei g see   eadi g I fi ite Jest. |
+| Bei g too late to stop the ass f om havi g a  o gasm. |
+| Beitb idge bo de  gua ds. |
+| Bitchi g about  othi g. |
+| Black Republica s. |
+| bli k o ce fo  yes, twice fo   o |
+| Boe ewo s Rolls |
+| Boe ewo s  olls. |
 | Bogies. |
-| Botflies in my boxers |
-| Breaking out with bacne. |
-| Breaking the speed of stupid. |
-| Buggering. |
+| Botflies i  my boxe s |
+| B eaki g out with bac e. |
+| B eaki g the speed of stupid. |
+| Bugge i g. |
 | BY THE POWER OF BISCUITS! |
-| Cargo pants and boob-tubes. |
-| Catastrophic urethral trauma. |
-| Charisma |
-| Charred human remains. |
-| Cheating on a Windhoek Light diet. |
-| cheating on your girlfriend while she's in a coma |
-| Child beauty pageants. |
-| Choking those misbehaving kids with chocolate mousse. |
-| Civilians awkwardly saluting you in public. |
-| Cloggin the future in-law's toilets. |
-| Coating your dick in onion juice and sticking it into an arsehole |
+| Ca go pa ts a d boob-tubes. |
+| Catast ophic u eth al t auma. |
+| Cha isma |
+| Cha ed huma   emai s. |
+| Cheati g o  a Wi dhoek Light diet. |
+| cheati g o  you  gi lf ie d while she's i  a coma |
+| Child beauty pagea ts. |
+| Choki g those misbehavi g kids with chocolate mousse. |
+| Civilia s awkwa dly saluti g you i  public. |
+| Cloggi  the futu e i -law's toilets. |
+| Coati g you  dick i  o io  juice a d sticki g it i to a  a sehole |
 | Cock-fights. |
-| Cockraoches? |
-| Colluding with Russia. |
-| Combing my pubes to get all the rusk crumbs out. |
-| Consumer whore. |
-| Cooking oil lube. |
-| Coppnig a feel. |
-| Costco on a Saturday |
-| Crapping in a filing cabinet. |
-| Crippling OC D. |
-| Crowd control with a poop-gun. |
-| Crystal Meth. |
-| Customer service representattives. |
-| Cybernetic Enhancements. |
-| Cyril Ramaphosa. |
+| Cock aoches? |
+| Colludi g with Russia. |
+| Combi g my pubes to get all the  usk c umbs out. |
+| Co sume  who e. |
+| Cooki g oil lube. |
+| Copp ig a feel. |
+| Costco o  a Satu day |
+| C appi g i  a fili g cabi et. |
+| C ippli g OC D. |
+| C owd co t ol with a poop-gu . |
+| C ystal Meth. |
+| Custome  se vice  ep ese tattives. |
+| Cybe etic E ha ceme ts. |
+| Cy il Ramaphosa. |
 | Daddy Issues. |
 | Dat ghetto booty. |
 | Date Rape. |
-| Dead birds everywhere. |
+| Dead bi ds eve ywhe e. |
 | Dead puppies. |
-| Decomposing squirrels. |
-| Delousing hair shampoo for pupils. |
-| Dick nipples. |
-| Discovering a new tattoo on your body with someone's name that you don't know. |
-| Discovering my passion for necrophilia. |
-| Doing the thing that is the right thing to do. |
-| Drinking games resulting in emerency room visits. |
-| Drinking on your own. |
-| Dry Humping |
-| Dynamic Dan diving deep. |
-| Dynamic Dan diving deep. |
-| Eating a teaspoonful of cayenne pepper. |
-| Eating all of the cookies before the AIDS bake-sale. |
-| Eating the last known rhinoceros. |
-| Edblo Mattresses. |
-| Edible underwear |
-| Edible Valentine's day lingerie. |
-| Either a queef or a fart. |
-| Elderly Asian tourists. |
-| Electing a chimpanzee as president. |
-| Encapsulating the placenta. |
-| Enjoying Woolworth's Heat-n-Eat. |
-| Equal pay for women. |
-| Erection fraud. |
-| Ethnic slurs. |
+| Decomposi g squi els. |
+| Delousi g hai  shampoo fo  pupils. |
+| Dick  ipples. |
+| Discove i g a  ew tattoo o  you  body with someo e's  ame that you do 't k ow. |
+| Discove i g my passio  fo   ec ophilia. |
+| Doi g the thi g that is the  ight thi g to do. |
+| D i ki g games  esulti g i  eme e cy  oom visits. |
+| D i ki g o  you  ow . |
+| D y Humpi g |
+| Dy amic Da  divi g deep. |
+| Dy amic Da  divi g deep. |
+| Eati g a teaspoo ful of caye e peppe . |
+| Eati g all of the cookies befo e the AIDS bake-sale. |
+| Eati g the last k ow   hi oce os. |
+| Edblo Matt esses. |
+| Edible u de wea  |
+| Edible Vale ti e's day li ge ie. |
+| Eithe  a queef o  a fa t. |
+| Elde ly Asia  tou ists. |
+| Electi g a chimpa zee as p eside t. |
+| E capsulati g the place ta. |
+| E joyi g Woolwo th's Heat- -Eat. |
+| Equal pay fo  wome . |
+| E ectio  f aud. |
+| Eth ic slu s. |
 | Exacly what you'd expect. |
-| Exchanging small-talk. |
-| Expecting a burp and vomiting on boobs. |
-| Explosive decompression. |
-| Extra-large lollipops. |
-| F.W. De Klerk. |
-| Faling asleep while having sex. |
-| Famous peanut scientist George Washington Carver. |
-| Fantasies about wrestlers. |
-| Farting Antelopes |
-| Farting in a bed and basking in it. |
-| Farting while engaged in a 69. |
+| Excha gi g small-talk. |
+| Expecti g a bu p a d vomiti g o  boobs. |
+| Explosive decomp essio . |
+| Ext a-la ge lollipops. |
+| F.W. De Kle k. |
+| Fali g asleep while havi g sex. |
+| Famous pea ut scie tist Geo ge Washi gto  Ca ve . |
+| Fa tasies about w estle s. |
+| Fa ti g A telopes |
+| Fa ti g i  a bed a d baski g i  it. |
+| Fa ti g while e gaged i  a 69. |
 | Faulty UIDs. |
-| Feather dusters. |
-| Feeding Munchkins to a Great White shark. |
-| Female Suffrage. |
-| Fiery nipples. |
-| Fiery poos. |
-| Finally getting rid of taxis. |
-| Finger Popping Assholes |
-| Finger-banging a dog. |
-| Fingernail clippings |
+| Feathe  duste s. |
+| Feedi g Mu chki s to a G eat White sha k. |
+| Female Suff age. |
+| Fie y  ipples. |
+| Fie y poos. |
+| Fi ally getti g  id of taxis. |
+| Fi ge  Poppi g Assholes |
+| Fi ge -ba gi g a dog. |
+| Fi ge ail clippi gs |
 | Fleshlights |
-| Flinging myself from a cliff overlooking the sea. |
-| Flying squirrels. |
-| Forever regretting the day you told your Platoon Sergeant you didn't have anything to do. |
-| Forgetting Bloodriver. |
-| Forgetting the safe word because you are too excited. |
-| Former President P.E. Botha. |
-| Frank Underwood. |
-| Free samples of dubious origin. |
-| French-kissing a Poodle. |
-| Fried Big Bird. |
-| Friends reruns all day long |
-| Friends who eat all your snacks. |
-| Fries dipped in a chocolate milkshake. |
+| Fli gi g myself f om a cliff ove looki g the sea. |
+| Flyi g squi els. |
+| Fo eve   eg etti g the day you told you  Platoo  Se gea t you did 't have a ythi g to do. |
+| Fo getti g Blood ive . |
+| Fo getti g the safe wo d because you a e too excited. |
+| Fo me  P eside t P.E. Botha. |
+| F a k U de wood. |
+| F ee samples of dubious o igi . |
+| F e ch-kissi g a Poodle. |
+| F ied Big Bi d. |
+| F ie ds  e u s all day lo g |
+| F ie ds who eat all you  s acks. |
+| F ies dipped i  a chocolate milkshake. |
 | Full HD. |
-| Genital wart puss. |
-| Gently caressing of the inner folds. |
-| Getting care in a hospice. |
-| Getting frunk on hand sanitiser. |
-| Getting naked and watching Wielie-Walie. |
-| Getting naked on a party-bus. |
-| Getting really hot |
-| Getting to third base. |
-| Giant killer robots |
-| Giant pigeon from outer space. |
-| Giving a cab driver a hand job because you have no money for the fare. |
-| Giving blowjobs to beggers. |
-| Giving mind-numbing breathtaking orgasms. |
-| Giving money to ahobo because they have a dog. |
+| Ge ital wa t puss. |
+| Ge tly ca essi g of the i e  folds. |
+| Getti g ca e i  a hospice. |
+| Getti g f u k o  ha d sa itise . |
+| Getti g  aked a d watchi g Wielie-Walie. |
+| Getti g  aked o  a pa ty-bus. |
+| Getti g  eally hot |
+| Getti g to thi d base. |
+| Gia t kille   obots |
+| Gia t pigeo  f om oute  space. |
+| Givi g a cab d ive  a ha d job because you have  o mo ey fo  the fa e. |
+| Givi g blowjobs to begge s. |
+| Givi g mi d- umbi g b eathtaki g o gasms. |
+| Givi g mo ey to ahobo because they have a dog. |
 | Glow belts. |
-| Going commando to play strip-poker. |
-| Golfing in high heels. |
-| Gory vigilante executions. |
-| Grandma's Bald Pussy |
-| Gravity. |
-| Green and yellow salty boogers. |
-| Guys who take off their wedding rings before they flirt with you at a bar. |
-| HAIBO! Voertsek! |
-| Hairy female nipples. |
-| half-formed fetal suggestions |
-| Having a rocket penis. |
-| Having a vagina and a penis. |
-| Having eyes that look like anuses. |
-| Heart-warming orphans. |
-| Helen Zille being chased by Redwing Starlings. |
-| Hiding a boner at work. |
-| Highveld thunderstorms. |
-| his snow-white hump |
-| Homely women in fashion shows. |
-| Homoerotic beach volleyball. |
-| Hopelessness. |
-| hormone replacement therapy |
-| Horror movies |
-| Horse shit. |
+| Goi g comma do to play st ip-poke . |
+| Golfi g i  high heels. |
+| Go y vigila te executio s. |
+| G a dma's Bald Pussy |
+| G avity. |
+| G ee  a d yellow salty booge s. |
+| Guys who take off thei  weddi g  i gs befo e they fli t with you at a ba . |
+| HAIBO! Voe tsek! |
+| Hai y female  ipples. |
+| half-fo med fetal suggestio s |
+| Havi g a  ocket pe is. |
+| Havi g a vagi a a d a pe is. |
+| Havi g eyes that look like a uses. |
+| Hea t-wa mi g o pha s. |
+| Hele  Zille bei g chased by Redwi g Sta li gs. |
+| Hidi g a bo e  at wo k. |
+| Highveld thu de sto ms. |
+| his s ow-white hump |
+| Homely wome  i  fashio  shows. |
+| Homoe otic beach volleyball. |
+| Hopeless ess. |
+| ho mo e  eplaceme t the apy |
+| Ho o  movies |
+| Ho se shit. |
 | Hot Cheetos®. |
 | Hot Pockets |
-| Human traffickers getting ass cancer. |
-| Incestual thoughts |
-| Incomprehensible stupidity. |
-| Incredible sequined underpants. |
-| Informing you that I am a registered sex offender. |
+| Huma  t afficke s getti g ass ca ce . |
+| I cestual thoughts |
+| I comp ehe sible stupidity. |
+| I c edible sequi ed u de pa ts. |
+| I fo mi g you that I am a  egiste ed sex offe de . |
 | Itchy bum |
-| Jack Parow. |
-| Jan from the parish office. |
-| Jerking off to the sound of your parents having sex. |
-| Julius Malema whispering sweet nothings into your ear. |
+| Jack Pa ow. |
+| Ja  f om the pa ish office. |
+| Je ki g off to the sou d of you  pa e ts havi g sex. |
+| Julius Malema whispe i g sweet  othi gs i to you  ea . |
 | Julius Malema. |
-| Just having a look-see. |
-| Justin Bieber's favorite burger joint. |
-| Kaizer Chiefs football players. |
-| Kancho |
-| Kids sword-fighting with dildos. |
-| Kids with cancer. |
-| Knowing exactly what woman want during sex. |
-| Ladies, gentlemen, and the undecided. |
-| Lance armstrong's missing testicle. |
-| Languidly dancing in front of the bathroom mirror. |
-| Laying something bare |
-| Lesbian scissor fucking |
-| Licking Toilet Seats |
-| Lighting up a fart. |
-| Loganberry flavored Jell-o wrestling. |
+| Just havi g a look-see. |
+| Justi  Biebe 's favo ite bu ge  joi t. |
+| Kaize  Chiefs football playe s. |
+| Ka cho |
+| Kids swo d-fighti g with dildos. |
+| Kids with ca ce . |
+| K owi g exactly what woma  wa t du i g sex. |
+| Ladies, ge tleme , a d the u decided. |
+| La ce a mst o g's missi g testicle. |
+| La guidly da ci g i  f o t of the bath oom mi o . |
+| Layi g somethi g ba e |
+| Lesbia  scisso  fucki g |
+| Licki g Toilet Seats |
+| Lighti g up a fa t. |
+| Loga be y flavo ed Jell-o w estli g. |
 | Loose Lips. |
-| Loving you neighbour but loving your neighbour's wife even more. |
-| Mahatma Gandhi. |
-| Making puppy dog eyes. |
-| Mama Mary. |
-| Man tits. |
-| Massiv balls with lots of cum in them. |
-| Masturbatory assistance from your mom. |
-| Me, your dad. |
-| Men's beach volleyball |
-| Menstrual blood revitalising cream. |
-| Menstruation is no joke. Period. |
-| Mensturation. |
-| Mile high club membership. |
-| Miscellaneous countries that show no purpose to exist. |
-| Mixed p Viagra® and Botox injections. |
-| Moandoza. |
-| Moriori |
-| Mouth Herpes. |
-| Mr Muscle®, it can clean ANYTHING. |
-| Multicultural television |
-| Multivitamin gummy bears. |
-| Mutually-assured destruction. |
-| My collection of Japanese sex toys. |
-| My genitals. In your hands. |
-| My husband. |
-| My Internet search history |
-| My resting bitch face |
-| My sexual attraction to mashed potatoes. |
+| Lovi g you  eighbou  but lovi g you   eighbou 's wife eve  mo e. |
+| Mahatma Ga dhi. |
+| Maki g puppy dog eyes. |
+| Mama Ma y. |
+| Ma  tits. |
+| Massiv balls with lots of cum i  them. |
+| Mastu bato y assista ce f om you  mom. |
+| Me, you  dad. |
+| Me 's beach volleyball |
+| Me st ual blood  evitalisi g c eam. |
+| Me st uatio  is  o joke. Pe iod. |
+| Me stu atio . |
+| Mile high club membe ship. |
+| Miscella eous cou t ies that show  o pu pose to exist. |
+| Mixed p Viag a® a d Botox i jectio s. |
+| Moa doza. |
+| Mo io i |
+| Mouth He pes. |
+| M  Muscle®, it ca  clea  ANYTHING. |
+| Multicultu al televisio  |
+| Multivitami  gummy bea s. |
+| Mutually-assu ed dest uctio . |
+| My collectio  of Japa ese sex toys. |
+| My ge itals. I  you  ha ds. |
+| My husba d. |
+| My I te et sea ch histo y |
+| My  esti g bitch face |
+| My sexual att actio  to mashed potatoes. |
 | My Soul |
-| My vagina |
-| Nathaniel Hawthorne |
-| Natural selection. |
-| Natural stupidity |
-| NBA superstar LeBron James. |
-| Nodding and shouting "Yeah!" at my parent's advice while knowing I'll ignore it. |
-| Not being able to lose your virginity. |
-| Not giving a shit about the Third World's problems. |
-| Not referring to your dad as 'dad' because he says it sounds weird |
-| Nothing but fear itself. |
-| Object permanence. |
-| Off-duty Nazis just looking for a good time. |
+| My vagi a |
+| Natha iel Hawtho e |
+| Natu al selectio . |
+| Natu al stupidity |
+| NBA supe sta  LeB o  James. |
+| Noddi g a d shouti g "Yeah!" at my pa e t's advice while k owi g I'll ig o e it. |
+| Not bei g able to lose you  vi gi ity. |
+| Not givi g a shit about the Thi d Wo ld's p oblems. |
+| Not  efe i g to you  dad as 'dad' because he says it sou ds wei d |
+| Nothi g but fea  itself. |
+| Object pe ma e ce. |
+| Off-duty Nazis just looki g fo  a good time. |
 | Old people. |
-| Oprah and her huge black ass. |
-| Ordering haute cuisine at The Big Box Cafe. |
-| Ordering kiddie meals to get the toys. |
-| Orgasmic yodelling. |
-| Oscar Pistorius convulsively vomiting as botfly larvae hatch in his lymph nodes and crawl out of his armpits. |
-| Other men's hands. |
-| Overcompensating for you small defect. |
-| Pagans. |
-| Pandora's vagina. |
-| Parliament. |
-| Passing fart and making toilet. |
-| Passover. |
-| Patricia de Lille's warm embrace. |
-| Peeing in the jacuzzi. |
-| Peeping Tom. |
-| Penetrating all her holes at the same time. |
-| Penis hunters. |
-| Penis piano playing. |
-| Penis sword fighting. |
-| Penises instead of fingers. |
-| Phoning the parents of a half-retarded Airman to tell them they're fucking failures. |
-| Pictures of you drinking a cocktail, sky-diving, and rock-climbing. |
-| pity-fucking a fat groomsman |
-| Ploughing her furrow like a Free State mielie farmer. |
-| Police doing funnels |
-| Political party punch-ups. |
-| Pooping barf forever. |
-| Poor personal hygiene |
-| Poorly-timed racist jokes. |
-| Porn movies about middle-aged men in diapers. |
-| Pornstars. |
-| Potty training failure |
-| Powerlifting to the Backstreet Boys. |
-| Practice Telekinesis. |
-| Prancing on the sidewalk. |
-| Pretend I am Godzilla and stomp on doll houses. |
-| Pretending to enjoy their school concerts |
-| Progressing from banana to a cucumber as a penis substitute. |
-| Public shaming. |
-| Public toilet eau de cologne. |
-| Pulling pits. |
-| Puppy breath. |
+| Op ah a d he  huge black ass. |
+| O de i g haute cuisi e at The Big Box Cafe. |
+| O de i g kiddie meals to get the toys. |
+| O gasmic yodelli g. |
+| Osca  Pisto ius co vulsively vomiti g as botfly la vae hatch i  his lymph  odes a d c awl out of his a mpits. |
+| Othe  me 's ha ds. |
+| Ove compe sati g fo  you small defect. |
+| Paga s. |
+| Pa do a's vagi a. |
+| Pa liame t. |
+| Passi g fa t a d maki g toilet. |
+| Passove . |
+| Pat icia de Lille's wa m emb ace. |
+| Peei g i  the jacuzzi. |
+| Peepi g Tom. |
+| Pe et ati g all he  holes at the same time. |
+| Pe is hu te s. |
+| Pe is pia o playi g. |
+| Pe is swo d fighti g. |
+| Pe ises i stead of fi ge s. |
+| Pho i g the pa e ts of a half- eta ded Ai ma  to tell them they' e fucki g failu es. |
+| Pictu es of you d i ki g a cocktail, sky-divi g, a d  ock-climbi g. |
+| pity-fucki g a fat g oomsma  |
+| Ploughi g he  fu ow like a F ee State mielie fa me . |
+| Police doi g fu els |
+| Political pa ty pu ch-ups. |
+| Poopi g ba f fo eve . |
+| Poo  pe so al hygie e |
+| Poo ly-timed  acist jokes. |
+| Po  movies about middle-aged me  i  diape s. |
+| Po sta s. |
+| Potty t ai i g failu e |
+| Powe lifti g to the Backst eet Boys. |
+| P actice Teleki esis. |
+| P a ci g o  the sidewalk. |
+| P ete d I am Godzilla a d stomp o  doll houses. |
+| P ete di g to e joy thei  school co ce ts |
+| P og essi g f om ba a a to a cucumbe  as a pe is substitute. |
+| Public shami g. |
+| Public toilet eau de colog e. |
+| Pulli g pits. |
+| Puppy b eath. |
 | Queefs |
-| Racially biased employment equity questions. |
-| Racist Christmas Present |
+| Racially biased employme t equity questio s. |
+| Racist Ch istmas P ese t |
 | Racists |
-| Rapist Brock Turner |
-| Re-inventing what it means to "Doggy-Style". |
-| Reptilian Senators. |
-| Ressurecting the Nazis. |
-| Riaan Cruywagen. |
-| Riding in a mini-bus taxi. |
-| Riding the Loch Ness Monster while guzzling scotch. |
+| Rapist B ock Tu e  |
+| Re-i ve ti g what it mea s to "Doggy-Style". |
+| Reptilia  Se ato s. |
+| Ressu ecti g the Nazis. |
+| Riaa  C uywage . |
+| Ridi g i  a mi i-bus taxi. |
+| Ridi g the Loch Ness Mo ste  while guzzli g scotch. |
 | Roach motels. |
-| Rubbing her joy-button just the right way. |
-| Rugby players. |
-| Same-sex parents. |
-| say 'hello' to my little friend |
-| Scandals |
+| Rubbi g he  joy-butto  just the  ight way. |
+| Rugby playe s. |
+| Same-sex pa e ts. |
+| say 'hello' to my little f ie d |
+| Sca dals |
 | Scatophilia. |
-| Scientologists |
-| Scissoring |
-| Scoops of whipped cream on just the right places. |
-| Scrumpdidlyumptious farts |
-| Seeing fresh puke and picking up the big pieces. |
-| Seeing your private journal entries on social media. |
-| Self-cannibalism |
-| Self-medicating. |
-| Sesame Street erotica. |
+| Scie tologists |
+| Scisso i g |
+| Scoops of whipped c eam o  just the  ight places. |
+| Sc umpdidlyumptious fa ts |
+| Seei g f esh puke a d picki g up the big pieces. |
+| Seei g you  p ivate jou al e t ies o  social media. |
+| Self-ca ibalism |
+| Self-medicati g. |
+| Sesame St eet e otica. |
 | Sexual Death. |
-| Sexual urges at inappropriate times. |
-| Sexy Siamese twins. |
+| Sexual u ges at i app op iate times. |
+| Sexy Siamese twi s. |
 | Shaka Zulu |
-| Shark sugar |
-| Sharon Stone. |
-| Shit in your pants. |
+| Sha k suga  |
+| Sha o  Sto e. |
+| Shit i  you  pa ts. |
 | Slaves. |
-| Sleeping in jail. |
-| Slipping into a meat sitickini. |
-| Smelling last night's disco pussy on your top lip |
-| Sniffing on your father's underwear. |
-| Sniffing too much powdered moth-balls. |
-| Sniffing used pads. |
-| Snorting wasabi powder. |
-| Soiling your Mustang® suit. |
-| Soup that's better than pussy. |
-| Souting the abortion clinic for your next one-night stand. |
-| Speaking fluently in pig latin |
-| Spermicidal lube. |
-| Spicy chimichangas |
+| Sleepi g i  jail. |
+| Slippi g i to a meat siticki i. |
+| Smelli g last  ight's disco pussy o  you  top lip |
+| S iffi g o  you  fathe 's u de wea . |
+| S iffi g too much powde ed moth-balls. |
+| S iffi g used pads. |
+| S o ti g wasabi powde . |
+| Soili g you  Musta g® suit. |
+| Soup that's bette  tha  pussy. |
+| Souti g the abo tio  cli ic fo  you   ext o e- ight sta d. |
+| Speaki g flue tly i  pig lati  |
+| Spe micidal lube. |
+| Spicy chimicha gas |
 | Spoo. |
-| Stranger Danger. |
-| Sultry Nkosazana Dlamini-Zuma. |
-| Sunshine, pretty flowers and rainbows. |
-| Super self-confidence. |
-| Super tight, camel-toe yoga pants. |
-| Surrogate mom |
-| Sweet Seduction. |
-| Sweet, sweet vengeance. |
-| Switching to the metric system. |
-| Taking one for the team. |
-| Taking random pills to get high. |
-| Tangling my headphones before they're even out of the box. |
-| Tasting your wife's boob milk. |
-| Teaching a politician how to tell the truth. |
-| Team building exercises at a nudist colony. |
-| Teenagers recording themselves singing |
-| Telling daddy jokes in a pub. |
-| Temper tantrums. |
-| Tentatively slipping a finger into your partner's asshole. |
-| Tequila-flavoured man-juice. |
-| Terrible life decisions. |
-| Terry Fox's prosthetic leg. |
-| Testify that I am a spoon. |
-| That thing where closet gay guys act like they hate gays because they really hate themselves. |
-| The 'obese, retarded and handicapped' excuse. |
-| The 3 'B's. Bells whiskey, a blonde and a bed. |
-| The animatronic bears playing musical instruments at Chuck E. Cheese |
-| The artificial pussy. |
+| St a ge  Da ge . |
+| Sult y Nkosaza a Dlami i-Zuma. |
+| Su shi e, p etty flowe s a d  ai bows. |
+| Supe  self-co fide ce. |
+| Supe  tight, camel-toe yoga pa ts. |
+| Su ogate mom |
+| Sweet Seductio . |
+| Sweet, sweet ve gea ce. |
+| Switchi g to the met ic system. |
+| Taki g o e fo  the team. |
+| Taki g  a dom pills to get high. |
+| Ta gli g my headpho es befo e they' e eve  out of the box. |
+| Tasti g you  wife's boob milk. |
+| Teachi g a politicia  how to tell the t uth. |
+| Team buildi g exe cises at a  udist colo y. |
+| Tee age s  eco di g themselves si gi g |
+| Telli g daddy jokes i  a pub. |
+| Tempe  ta t ums. |
+| Te tatively slippi g a fi ge  i to you  pa t e 's asshole. |
+| Tequila-flavou ed ma -juice. |
+| Te ible life decisio s. |
+| Te y Fox's p osthetic leg. |
+| Testify that I am a spoo . |
+| That thi g whe e closet gay guys act like they hate gays because they  eally hate themselves. |
+| The 'obese,  eta ded a d ha dicapped' excuse. |
+| The 3 'B's. Bells whiskey, a blo de a d a bed. |
+| The a imat o ic bea s playi g musical i st ume ts at Chuck E. Cheese |
+| The a tificial pussy. |
 | the big butt shaft |
 | The BNP. |
-| The Boers. |
-| The cannonball of my anal sphincter. |
-| The card Neil Gaiman wrote: "Three elves at a time." |
-| The class genius who doesn't shower for weeks. |
-| The clown that followed me home from the grocery store. |
+| The Boe s. |
+| The ca o ball of my a al sphi cte . |
+| The ca d Neil Gaima  w ote: "Th ee elves at a time." |
+| The class ge ius who does 't showe  fo  weeks. |
+| The clow  that followed me home f om the g oce y sto e. |
 | The Destitute. |
 | The EFF. |
-| The Foo Fighters. |
-| the force is strong with this one |
-| The forgettable Gen Xers. |
-| The Gaza Strip. |
-| The global warming conspiracy. |
-| the Groot Trek. |
-| The Hamilton Massacre. |
-| The hardworking Ngerian. |
-| The Helen Zile seal of approval. |
-| The Hilarious Card Game. |
+| The Foo Fighte s. |
+| the fo ce is st o g with this o e |
+| The fo gettable Ge  Xe s. |
+| The Gaza St ip. |
+| The global wa mi g co spi acy. |
+| the G oot T ek. |
+| The Hamilto  Massac e. |
+| The ha dwo ki g Nge ia . |
+| The Hele  Zile seal of app oval. |
+| The Hila ious Ca d Game. |
 | The homosexual lifestyle. |
-| The honourable member, shut up. |
+| The ho ou able membe , shut up. |
 | The illusive mystical G-spot. |
-| The Jodi Arias daycare center. |
-| The little goblins that live in engineering spaces. |
-| The Long White Cloud |
+| The Jodi A ias dayca e ce te . |
+| The little gobli s that live i  e gi ee i g spaces. |
+| The Lo g White Cloud |
 | The male gaze. |
-| The Math for Marines MCI. |
-| The meaning of 42. |
-| The milkman's baby |
-| the miracle of childbirth. |
-| The Oros Man. |
-| The perfectly curved cock - every woman's ultimate fantasy. |
+| The Math fo  Ma i es MCI. |
+| The mea i g of 42. |
+| The milkma 's baby |
+| the mi acle of childbi th. |
+| The O os Ma . |
+| The pe fectly cu ved cock - eve y woma 's ultimate fa tasy. |
 | The placebo effect. |
-| The player to your left |
-| The porn studio casting couch. |
-| The President's Keepers. |
-| The Profoundly handicapped. |
-| The purity of a child. |
-| The SABC not showing any more reeuns. |
-| The safest way to have dolphin-sex. |
-| The screaming... The constant silent sscreaming. |
-| The Truffle Shuffle. |
-| The Virginia Tech Massacre. |
-| The warm feeling of poop between your toes. |
-| The white minority. |
-| Thorwing up while going down. |
-| Thrush. |
-| Tipping the uber-driver. |
+| The playe  to you  left |
+| The po  studio casti g couch. |
+| The P eside t's Keepe s. |
+| The P ofou dly ha dicapped. |
+| The pu ity of a child. |
+| The SABC  ot showi g a y mo e  eeu s. |
+| The safest way to have dolphi -sex. |
+| The sc eami g... The co sta t sile t ssc eami g. |
+| The T uffle Shuffle. |
+| The Vi gi ia Tech Massac e. |
+| The wa m feeli g of poop betwee  you  toes. |
+| The white mi o ity. |
+| Tho wi g up while goi g dow . |
+| Th ush. |
+| Tippi g the ube -d ive . |
 | Tokeloshe. |
-| Tolerable tiny transvestites. |
-| Too much hairspray. |
+| Tole able ti y t a svestites. |
+| Too much hai sp ay. |
 | Toys |
-| Traditional tribal initiation circumcisions. |
-| Transplarent nipple pasties. |
-| Trevor Noah. |
-| Trying not to blush at the mention of Diepkloof & Tietiesbaai. |
+| T aditio al t ibal i itiatio  ci cumcisio s. |
+| T a spla e t  ipple pasties. |
+| T evo  Noah. |
+| T yi g  ot to blush at the me tio  of Diepkloof & Tietiesbaai. |
 | Tu Meke |
-| Twerking in a MOPP suit. |
-| Unexpected mutual orgasms without birth control. |
-| Unicorn style dyed pubic hair. |
-| Uppercutting POGs into the sun. |
-| Using children as psychological guinea-pigs. |
-| Using cum as hair gel. |
-| Velcro™. |
-| Vibrating Bullet |
+| Twe ki g i  a MOPP suit. |
+| U expected mutual o gasms without bi th co t ol. |
+| U ico  style dyed pubic hai . |
+| Uppe cutti g POGs i to the su . |
+| Usi g child e  as psychological gui ea-pigs. |
+| Usi g cum as hai  gel. |
+| Velc o™. |
+| Vib ati g Bullet |
 | Vlakplaas., |
-| Waiting until you are married. |
-| Waking up in an ice-bath with stitches where your liver used to be. |
-| Waking up with only a shirt on in a Makro™ parking lot. |
-| Walking children on leashes and carrying dogs in arms. |
-| Warm, tender, silky-soft sex with a teddy-bear. |
-| Watching 7de Laan to learn Afrikaans. |
-| Wearing glasses to look as if you are smart. |
-| Wearing the cone-of-shame. |
-| Wearing underwear inside-out to avoid laundry. |
-| Wearing used underwear and spraying it with perfume to mask the smell. |
-| When you're blowing a guy and you realize he's a faggot. |
-| Whipping lower-class white men into a xenophobic frenzy. |
+| Waiti g u til you a e ma ied. |
+| Waki g up i  a  ice-bath with stitches whe e you  live  used to be. |
+| Waki g up with o ly a shi t o  i  a Mak o™ pa ki g lot. |
+| Walki g child e  o  leashes a d ca yi g dogs i  a ms. |
+| Wa m, te de , silky-soft sex with a teddy-bea . |
+| Watchi g 7de Laa  to lea  Af ikaa s. |
+| Wea i g glasses to look as if you a e sma t. |
+| Wea i g the co e-of-shame. |
+| Wea i g u de wea  i side-out to avoid lau d y. |
+| Wea i g used u de wea  a d sp ayi g it with pe fume to mask the smell. |
+| Whe  you' e blowi g a guy a d you  ealize he's a faggot. |
+| Whippi g lowe -class white me  i to a xe ophobic f e zy. |
 | Whiskey filled boobs. |
-| White beggars at robots. |
-| White power. |
-| White Rosa Parks. |
+| White begga s at  obots. |
+| White powe . |
+| White Rosa Pa ks. |
 | Wiffle ball. |
-| Winking at waitresses. |
-| Winnie Madikizela Mandela. |
-| Wiping Hillary Clinton's server with a cloth. |
-| With super-runny diarrhoea. |
-| World Peace. |
-| Yogurt that moans in pleasure as you eat it. |
-| Zombie petting zoo. |
-| Zyklon B. |
+| Wi ki g at wait esses. |
+| Wi ie Madikizela Ma dela. |
+| Wipi g Hilla y Cli to 's se ve  with a cloth. |
+| With supe - u y dia hoea. |
+| Wo ld Peace. |
+| Yogu t that moa s i  pleasu e as you eat it. |
+| Zombie petti g zoo. |
+| Zyklo  B. |
 
 |Total amount: 540|
 |---|

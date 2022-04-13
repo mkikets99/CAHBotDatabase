@@ -77,192 +77,194 @@ Answers amount: 184
 |---|
 
 ### Answers
-| Question |
+| Answers |
 |---|
-| "Trump Nude" internet searches. |
-| A huuuge wall, that the Mexicans will pay for. |
-| A sack of potatoes stuffed into a condom. |
-| A sign language interpreter at a Trump rally just wildly swinging middle fingers. |
-| A small loan of a million dollars. |
-| Being the only person at the office-mandated sexual harassment training. |
-| Bernie Sanders' Brooklyn accent. |
-| Big schlonging. |
-| Blood coming out of wherever. |
-| Captive war bitches. |
-| Carly Fiorina's dog face. |
-| Celebrity Apprentice™. |
-| China beatings. |
-| Chinese campaign clothing. |
-| Chinese hackers. |
-| Chris Christie's gravitational pull. |
-| Clinton bathroom breaks. |
-| Common sense gun control laws. |
-| Dating your daughter. |
-| Demolishing that ass like a Palestinian village. |
-| Donald Trump Blow Up Dolls. |
+| "T ump Nude" i te et sea ches. |
+| A huuuge wall, that the Mexica s will pay fo . |
+| A sack of potatoes stuffed i to a co dom. |
+| A sig  la guage i te p ete  at a T ump  ally just wildly swi gi g middle fi ge s. |
+| A small loa  of a millio  dolla s. |
+| Bei g the o ly pe so  at the office-ma dated sexual ha assme t t ai i g. |
+| Be ie Sa de s' B ookly  acce t. |
+| Big schlo gi g. |
+| Blood comi g out of whe eve . |
+| Captive wa  bitches. |
+| Ca ly Fio i a's dog face. |
+| Celeb ity App e tice™. |
+| Chi a beati gs. |
+| Chi ese campaig  clothi g. |
+| Chi ese hacke s. |
+| Ch is Ch istie's g avitatio al pull. |
+| Cli to  bath oom b eaks. |
+| Commo  se se gu  co t ol laws. |
+| Dati g you  daughte . |
+| Demolishi g that ass like a Palesti ia  village. |
+| Do ald T ump Blow Up Dolls. |
 | DRUMPF. |
-| Dumb blondes. |
-| Ethnic slurs. |
-| Euthanization of the Chinese population for fun and profit. |
-| Extra chromosomes. |
-| Glooooooooooooooooooooria. |
-| Heidi Klum's former 10 body. |
-| Hillary Clinton's mysterious women powers. |
-| Hillary Clinton's sexts. |
-| Integrity, or progress? |
+| Dumb blo des. |
+| Eth ic slu s. |
+| Eutha izatio  of the Chi ese populatio  fo  fu  a d p ofit. |
+| Ext a ch omosomes. |
+| Gloooooooooooooooooooo ia. |
+| Heidi Klum's fo me  10 body. |
+| Hilla y Cli to 's myste ious wome  powe s. |
+| Hilla y Cli to 's sexts. |
+| I teg ity, o  p og ess? |
 | Jokes about 9/11. |
-| Legalized marijuana. |
-| Lindsey Graham's phone number. |
-| Long and beautiful fingers. |
-| Losers and haters. |
-| Low budget abortion clinics. |
-| Mexican rapists. |
-| Miss America sex tapes. |
-| Non casual sex. |
-| Non-Americans. |
-| Overly polite strippers from Wisconsin. |
-| Police shooting black people. |
+| Legalized ma ijua a. |
+| Li dsey G aham's pho e  umbe . |
+| Lo g a d beautiful fi ge s. |
+| Lose s a d hate s. |
+| Low budget abo tio  cli ics. |
+| Mexica   apists. |
+| Miss Ame ica sex tapes. |
+| No  casual sex. |
+| No -Ame ica s. |
+| Ove ly polite st ippe s f om Wisco si . |
+| Police shooti g black people. |
 | Polish People. |
-| Poorly educated voters. |
-| President Obama's fake birth certificate. |
-| Problematic Mexicans. |
-| Rosie O'Donnell's truck driver accent. |
-| Rubio's robot overlords. |
+| Poo ly educated vote s. |
+| P eside t Obama's fake bi th ce tificate. |
+| P oblematic Mexica s. |
+| Rosie O'Do ell's t uck d ive  acce t. |
+| Rubio's  obot ove lo ds. |
 | Rubio's sweat. |
-| Rubio's water bottle. |
-| Sarah Palin in a helicopter shooting seals with an AK-47. |
-| Second or Third World Countries. |
-| Secret Service laundry Trips. |
-| Self-proclaimed teen idol, Donald Trump. |
-| Slowly stroking it to a photo of myself. |
-| Spraying oneself with Febreeze in lieu of a shower |
-| Strategic bankruptcies. |
-| Tears of deported immigrants. |
-| That damn Apple™ agreement. |
-| The funding of Planned Parenthood™. |
-| The Oral Office. |
-| The other Bush. |
-| The Rwandan Genocide. |
-| The Ultimate Yule LogPlay this card and win the round.The gift that keeps on giving. |
-| The War on Drugs. |
-| Thinly veiled Hitler quotes. |
-| Tiny children in horse costumes. |
-| Trump's flabby, wrinkled figure. |
-| Trump's hairpiece or a drowned rat. |
-| Two small breasts and a bunch of left wings. |
-| Ugly mexican hookers. |
-| Vacation to the Islamic State. |
-| Vanilla Isis. |
-| Vietnamese prison camps. |
-| Weak and pathetic people. |
-| Weekend at Bernie's. |
-| Well educated scientists who say vaccines don't cause autism. |
-| What's her face. |
-| White Rosa Parks. |
-| A $20 bill with Harriet Tubman's face on it. |
-| A federal holiday named after a black woman (or any woman, for that matter). |
-| A really solid tuck job. |
-| a reissue of Battleship where you have to find the clitoris. |
-| A Very Hillary Christmas Special. |
-| An 80-year-old woman with her 20-year-old lover. |
-| An all-girl orgy comprised entirely of feminists. |
-| Anyone but Hillary. |
-| Arthur Weasley's muggle porn. |
-| Asking Apple to unlock Hillary's iPhone. |
-| Bacon panties to stop rape in the Middle East. |
-| Barbara Bush's bush.. NOT located in the Rose Garden. |
-| Being an overweight bitch. |
-| Big Bird impersonator, Linda Tripp. |
-| Bill becoming First Lady. |
-| Bill Clinton in the Supreme (Food) Court. |
-| Bill Clinton's Ashley Madison account. |
-| Bill Clinton's flaccid penis. |
-| Bill Clinton's sexual assault victims. |
-| Bill Clintons love child. |
-| Bill's saxophone (only thing of Bill's that gets blown). |
-| Blowing the election Monica Lewinsky style. |
-| Bruce Jenner's car having tranny issues. |
-| Bruises from "falling down some stairs". |
-| Calling your white friend "my nigga". |
-| Chelsea's first period. |
-| Chillary. |
-| CNN's shocking new study that shows women aren't treated equally with men. |
-| Congress examining your emails and finding out you're subscribed to www.muffdivers.com. |
-| Craigslist sex ad. |
-| Daddy loving you a little too much. |
-| Depriving white men of the right to vote for 150 years and just seeing what happens. |
-| Donald Trump's Presidential Seal: The bald spread eagle. |
-| Donald Trump's worn out toupee. |
-| Donating your breast milk for vegan consumption. |
-| Drones hurting more innocent children than Jared from Subway. |
-| E.coli-infested burritos from Chipotle. |
-| Female President on her period. |
-| Growing up black. |
-| Guys who take off their wedding rings before they flirt with you at a bar. |
-| Hagrid and Madame Maxime roleplay. |
-| Having an affair with the Grand Master of the KKK. |
-| Having unprotected sex to honor the anniversary of Roe v. Wade. |
-| Hillary Clinton telling the truth about anything. |
-| Hillary for Prison 2016. |
-| Hillary's dildo collection. |
-| Hillary's front-butt locked in a chastity belt. |
-| Joe Biden whispering sweet nothings in your ear. |
-| Keeping up with the Obamas. |
-| Keeping women in their rightful place... the kitchen. |
+| Rubio's wate  bottle. |
+| Sa ah Pali  i  a helicopte  shooti g seals with a  AK-47. |
+| Seco d o  Thi d Wo ld Cou t ies. |
+| Sec et Se vice lau d y T ips. |
+| Self-p oclaimed tee  idol, Do ald T ump. |
+| Slowly st oki g it to a photo of myself. |
+| Sp ayi g o eself with Feb eeze i  lieu of a showe  |
+| St ategic ba k uptcies. |
+| Tea s of depo ted immig a ts. |
+| That dam  Apple™ ag eeme t. |
+| The fu di g of Pla ed Pa e thood™. |
+| The O al Office. |
+| The othe  Bush. |
+| The Rwa da  Ge ocide. |
+| The Ultimate Yule Log
+Play this ca d a d wi  the  ou d.
+The gift that keeps o  givi g. |
+| The Wa  o  D ugs. |
+| Thi ly veiled Hitle  quotes. |
+| Ti y child e  i  ho se costumes. |
+| T ump's flabby, w i kled figu e. |
+| T ump's hai piece o  a d ow ed  at. |
+| Two small b easts a d a bu ch of left wi gs. |
+| Ugly mexica  hooke s. |
+| Vacatio  to the Islamic State. |
+| Va illa Isis. |
+| Viet amese p iso  camps. |
+| Weak a d pathetic people. |
+| Weeke d at Be ie's. |
+| Well educated scie tists who say vacci es do 't cause autism. |
+| What's he  face. |
+| White Rosa Pa ks. |
+| A $20 bill with Ha iet Tubma 's face o  it. |
+| A fede al holiday  amed afte  a black woma  (o  a y woma , fo  that matte ). |
+| A  eally solid tuck job. |
+| a  eissue of Battleship whe e you have to fi d the clito is. |
+| A Ve y Hilla y Ch istmas Special. |
+| A  80-yea -old woma  with he  20-yea -old love . |
+| A  all-gi l o gy comp ised e ti ely of femi ists. |
+| A yo e but Hilla y. |
+| A thu  Weasley's muggle po . |
+| Aski g Apple to u lock Hilla y's iPho e. |
+| Baco  pa ties to stop  ape i  the Middle East. |
+| Ba ba a Bush's bush.. NOT located i  the Rose Ga de . |
+| Bei g a  ove weight bitch. |
+| Big Bi d impe so ato , Li da T ipp. |
+| Bill becomi g Fi st Lady. |
+| Bill Cli to  i  the Sup eme (Food) Cou t. |
+| Bill Cli to 's Ashley Madiso  accou t. |
+| Bill Cli to 's flaccid pe is. |
+| Bill Cli to 's sexual assault victims. |
+| Bill Cli to s love child. |
+| Bill's saxopho e (o ly thi g of Bill's that gets blow ). |
+| Blowi g the electio  Mo ica Lewi sky style. |
+| B uce Je e 's ca  havi g t a y issues. |
+| B uises f om "falli g dow  some stai s". |
+| Calli g you  white f ie d "my  igga". |
+| Chelsea's fi st pe iod. |
+| Chilla y. |
+| CNN's shocki g  ew study that shows wome  a e 't t eated equally with me . |
+| Co g ess exami i g you  emails a d fi di g out you' e subsc ibed to www.muffdive s.com. |
+| C aigslist sex ad. |
+| Daddy lovi g you a little too much. |
+| Dep ivi g white me  of the  ight to vote fo  150 yea s a d just seei g what happe s. |
+| Do ald T ump's P eside tial Seal: The bald sp ead eagle. |
+| Do ald T ump's wo  out toupee. |
+| Do ati g you  b east milk fo  vega  co sumptio . |
+| D o es hu ti g mo e i oce t child e  tha  Ja ed f om Subway. |
+| E.coli-i fested bu itos f om Chipotle. |
+| Female P eside t o  he  pe iod. |
+| G owi g up black. |
+| Guys who take off thei  weddi g  i gs befo e they fli t with you at a ba . |
+| Hag id a d Madame Maxime  oleplay. |
+| Havi g a  affai  with the G a d Maste  of the KKK. |
+| Havi g u p otected sex to ho o  the a ive sa y of Roe v. Wade. |
+| Hilla y Cli to  telli g the t uth about a ythi g. |
+| Hilla y fo  P iso  2016. |
+| Hilla y's dildo collectio . |
+| Hilla y's f o t-butt locked i  a chastity belt. |
+| Joe Bide  whispe i g sweet  othi gs i  you  ea . |
+| Keepi g up with the Obamas. |
+| Keepi g wome  i  thei   ightful place... the kitche . |
 | Kill Bill. |
-| Kunte Kinte whipping and nae naeing. |
-| Letting your step child out of the cage. |
-| Living with the fact that you're a white person who regularly download songs from "Glee." |
-| Losing the 2016 election and applying for the celebrity apprentice. |
-| Loudmouth lesbians. |
-| Monica voting Republican because democrats left a bad taste in her mouth. |
-| Monica: Putting the "BJ" in Bill Jefferson Clinton. |
-| Nancy Reagan spoon feeding baby food to the Gipper. |
-| Obama's celebrity black book. |
-| Pro-Choice or Pro-Hanger. |
-| Realizing halfway through a great date that you forgot to tweeze those nipple hairs. |
-| Reminding yourself not to start a conversation about your to-do list after your mind wanders during sex. |
-| Resting bitch face. |
-| Saddam Hussein reenacting the Godfather with a group of Saddam Hussein lookalikes. |
-| Shitting in the Oval Office trash can. |
-| Sucking Wall Street's dick for 30 years. |
-| Talking sexy social justice with Maya Angelou until your caged bird sings. |
-| Taylor Swift's sloppy seconds. |
-| Thawed out placenta. |
-| The assassination of Hillary's sex life. |
-| The disconcertingly placed hotel room mirror that allows you to finally know how your face looks when you poop. |
-| The First Presidential queef. |
-| The look on your boyfriend's face when he said "anal is no big deal" so you pulled out a strap-on. |
-| The new Special K diet: eating the box. |
-| The underwear sniff test. |
-| Transgender and minority women. |
+| Ku te Ki te whippi g a d  ae  aei g. |
+| Letti g you  step child out of the cage. |
+| Livi g with the fact that you' e a white pe so  who  egula ly dow load so gs f om "Glee." |
+| Losi g the 2016 electio  a d applyi g fo  the celeb ity app e tice. |
+| Loudmouth lesbia s. |
+| Mo ica voti g Republica  because democ ats left a bad taste i  he  mouth. |
+| Mo ica: Putti g the "BJ" i  Bill Jeffe so  Cli to . |
+| Na cy Reaga  spoo  feedi g baby food to the Gippe . |
+| Obama's celeb ity black book. |
+| P o-Choice o  P o-Ha ge . |
+| Realizi g halfway th ough a g eat date that you fo got to tweeze those  ipple hai s. |
+| Remi di g you self  ot to sta t a co ve satio  about you  to-do list afte  you  mi d wa de s du i g sex. |
+| Resti g bitch face. |
+| Saddam Hussei   ee acti g the Godfathe  with a g oup of Saddam Hussei  lookalikes. |
+| Shitti g i  the Oval Office t ash ca . |
+| Sucki g Wall St eet's dick fo  30 yea s. |
+| Talki g sexy social justice with Maya A gelou u til you  caged bi d si gs. |
+| Taylo  Swift's sloppy seco ds. |
+| Thawed out place ta. |
+| The assassi atio  of Hilla y's sex life. |
+| The disco ce ti gly placed hotel  oom mi o  that allows you to fi ally k ow how you  face looks whe  you poop. |
+| The Fi st P eside tial queef. |
+| The look o  you  boyf ie d's face whe  he said "a al is  o big deal" so you pulled out a st ap-o . |
+| The  ew Special K diet: eati g the box. |
+| The u de wea  s iff test. |
+| T a sge de  a d mi o ity wome . |
 | Ultimate BITCH CARD |
-| Using April Fools as a barometer to figure out which of your friends are actually funny. |
-| Wearing the pantsuits in your relationship. |
-| A beautiful, ever-expanding circle of inclusivity that will never include Republicans. |
-| Black lives mattering. |
-| Donald Trump holding his nose while he eats pussy. |
-| Eating the president's pussy. |
-| Increasing economic and political polarization. |
-| Keeping the government out of my vagina. |
-| Kicking the middle class in the balls with a regressive tax code. |
-| Letting Bernie Sanders rest his world-weary head on your lap. |
-| Slapping Ted Cruz over and over. |
-| The Bernie Sanders revolution. |
-| The fact that Hillary Clinton is a woman. |
-| The systematic disenfranchisement of black voters. |
-| A liberal bias. |
-| Actually voting for Donald Trump to be President of the actual United States. |
-| Conservative talking points. |
-| Courageousely going ahead with that racist comment. |
-| Dispelling this fiction that Barack Obama doesn't know what he's doing. |
-| Fully appreciating naked Morris dancing. |
-| Growing up and becoming a Republican. |
-| Hating Hilary Clinton. |
+| Usi g Ap il Fools as a ba omete  to figu e out which of you  f ie ds a e actually fu y. |
+| Wea i g the pa tsuits i  you   elatio ship. |
+| A beautiful, eve -expa di g ci cle of i clusivity that will  eve  i clude Republica s. |
+| Black lives matte i g. |
+| Do ald T ump holdi g his  ose while he eats pussy. |
+| Eati g the p eside t's pussy. |
+| I c easi g eco omic a d political pola izatio . |
+| Keepi g the gove me t out of my vagi a. |
+| Kicki g the middle class i  the balls with a  eg essive tax code. |
+| Letti g Be ie Sa de s  est his wo ld-wea y head o  you  lap. |
+| Slappi g Ted C uz ove  a d ove . |
+| The Be ie Sa de s  evolutio . |
+| The fact that Hilla y Cli to  is a woma . |
+| The systematic dise f a chiseme t of black vote s. |
+| A libe al bias. |
+| Actually voti g fo  Do ald T ump to be P eside t of the actual U ited States. |
+| Co se vative talki g poi ts. |
+| Cou ageousely goi g ahead with that  acist comme t. |
+| Dispelli g this fictio  that Ba ack Obama does 't k ow what he's doi g. |
+| Fully app eciati g  aked Mo is da ci g. |
+| G owi g up a d becomi g a Republica . |
+| Hati g Hila y Cli to . |
 | Jeb! |
-| Shouting the loudest. |
-| Sound fiscal policy. |
-| The good, hardworking people of Dubuque, Iowa. |
+| Shouti g the loudest. |
+| Sou d fiscal policy. |
+| The good, ha dwo ki g people of Dubuque, Iowa. |
 
 |Total amount: 184|
 |---|

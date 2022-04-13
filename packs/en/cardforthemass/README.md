@@ -121,118 +121,118 @@ Answers amount: 110
 |---|
 
 ### Answers
-| Question |
+| Answers |
 |---|
 | #Awesome |
-| A $19.99 do it yourself wedding |
-| A 20 piece chicken nugget meal for one person |
+| A $19.99 do it you self weddi g |
+| A 20 piece chicke   ugget meal fo  o e pe so  |
 | A cactus |
-| A cheese grater |
-| A clown car |
-| A faint smell of poop with no defined point of origin |
-| A get-out-of-jail-free card |
-| A gourmet restaurant for dogs |
-| A hamburger and French Fries |
+| A cheese g ate  |
+| A clow  ca  |
+| A fai t smell of poop with  o defi ed poi t of o igi  |
+| A get-out-of-jail-f ee ca d |
+| A gou met  estau a t fo  dogs |
+| A hambu ge  a d F e ch F ies |
 | A mall cop |
-| A Mexican soap opera |
+| A Mexica  soap ope a |
 | A mouthful of soup |
-| A ninja with uncontrollable flatulence |
-| A preserved fetal pig |
-| A puzzle too insanely hard to solve |
-| A recall of hotdogs |
-| A reputation for playing by the book |
+| A  i ja with u co t ollable flatule ce |
+| A p ese ved fetal pig |
+| A puzzle too i sa ely ha d to solve |
+| A  ecall of hotdogs |
+| A  eputatio  fo  playi g by the book |
 | A sasquatch |
-| A split personality that runs amok while I'm asleep |
-| A strange feeling inside |
-| Actually reading the terms of service |
-| Addressing the issue |
-| All the rice in China |
-| Allergy to nuts |
-| An actual elephant in the room |
-| An alligator death roll |
-| An itsy-bitsy teenie-weenie yellow polka dot bikini |
-| An uncomfortable amount of monkeys |
-| Are we there yet? |
-| Awesome watch and decoder ring |
-| Beans, beans, the musical fruit |
-| Being the very best, like no on ever was |
-| Bicker over the position of the Big Dipper |
-| Breaking into a zoo to steal a monkey |
-| Buying a new cell phone every year |
-| Buying second hand underwear |
-| Cold-cocking a stranger who felt compelled to conjecture you "must be getting close!" |
-| Crappy 1980's plastic Halloween costumes with a character printed on it |
-| Detroit |
-| Dial-up internet |
-| Drink a gallon of milk |
-| Drinking water from a garden hose |
-| Eating out of the garbage |
-| Extreme potato eating |
-| Farting loudly in church |
-| Fast food chain restaurant |
-| Flooring it |
-| Fresh cat pee |
-| Headless Horseman |
-| Herding cats |
-| Hoarders |
-| Hot bowl of grits |
-| Hot snot |
-| Invade Russia in the winter |
-| Inverted controls |
-| Ketchup water |
+| A split pe so ality that  u s amok while I'm asleep |
+| A st a ge feeli g i side |
+| Actually  eadi g the te ms of se vice |
+| Add essi g the issue |
+| All the  ice i  Chi a |
+| Alle gy to  uts |
+| A  actual elepha t i  the  oom |
+| A  alligato  death  oll |
+| A  itsy-bitsy tee ie-wee ie yellow polka dot biki i |
+| A  u comfo table amou t of mo keys |
+| A e we the e yet? |
+| Awesome watch a d decode   i g |
+| Bea s, bea s, the musical f uit |
+| Bei g the ve y best, like  o o  eve  was |
+| Bicke  ove  the positio  of the Big Dippe  |
+| B eaki g i to a zoo to steal a mo key |
+| Buyi g a  ew cell pho e eve y yea  |
+| Buyi g seco d ha d u de wea  |
+| Cold-cocki g a st a ge  who felt compelled to co jectu e you "must be getti g close!" |
+| C appy 1980's plastic Hallowee  costumes with a cha acte  p i ted o  it |
+| Det oit |
+| Dial-up i te et |
+| D i k a gallo  of milk |
+| D i ki g wate  f om a ga de  hose |
+| Eati g out of the ga bage |
+| Ext eme potato eati g |
+| Fa ti g loudly i  chu ch |
+| Fast food chai   estau a t |
+| Floo i g it |
+| F esh cat pee |
+| Headless Ho sema  |
+| He di g cats |
+| Hoa de s |
+| Hot bowl of g its |
+| Hot s ot |
+| I vade Russia i  the wi te  |
+| I ve ted co t ols |
+| Ketchup wate  |
 | Lipstick |
-| Making it clear that Johnny is here |
-| Men's beach volleyball |
-| Mental illness |
-| Murphy's law |
-| Not fitting in |
-| Novelty mugs that nobody uses |
-| Parking like a jerk |
-| Pasteurized processed cheese |
-| Perform an autopsy |
-| Pick of the litter |
-| Pinkeye |
-| Prank calling |
-| Pregnant women and sweaty people |
-| Projectile fart |
-| Riding a tandem bicycle alone |
-| Robots with human faces |
-| Sarcasm so intense that it circles back to sincerity |
-| Shame and dishonor |
-| Shoe collectors |
-| Slap someone with a large trout |
+| Maki g it clea  that Joh y is he e |
+| Me 's beach volleyball |
+| Me tal ill ess |
+| Mu phy's law |
+| Not fitti g i  |
+| Novelty mugs that  obody uses |
+| Pa ki g like a je k |
+| Pasteu ized p ocessed cheese |
+| Pe fo m a  autopsy |
+| Pick of the litte  |
+| Pi keye |
+| P a k calli g |
+| P eg a t wome  a d sweaty people |
+| P ojectile fa t |
+| Ridi g a ta dem bicycle alo e |
+| Robots with huma  faces |
+| Sa casm so i te se that it ci cles back to si ce ity |
+| Shame a d disho o  |
+| Shoe collecto s |
+| Slap someo e with a la ge t out |
 | Some stupid excuse |
-| Squirting hot sauce in your eye |
-| Stampede of "Black Friday" shoppers |
-| Stepping on a plastic building brick |
-| Stuff and things |
-| Taste dried spit |
-| That person that talks on the phone in the bathroom |
-| The contents of vomit |
-| The dreams of a child |
-| The element of surprise |
-| The founding fathers |
-| The instigator of a food fight |
-| The Nobel Peace Prize |
-| The only good card in my hand |
-| The point of no return |
-| The shy kid in the corner |
-| The things I do for love |
-| The world's worst human being |
-| Throwing out containers with rotten food in it |
-| Toddlers |
-| Tourists |
-| Training your younger, better looking replacement |
-| Two brothers and a donkey |
-| Ugly children |
-| Walking the dog |
-| Wash your dirty feet |
-| Watching your purchase get stuck inside of the vending machine |
-| What could have been |
-| Wireless technology |
-| Worst dad in America |
-| Your face |
-| Your mom |
+| Squi ti g hot sauce i  you  eye |
+| Stampede of "Black F iday" shoppe s |
+| Steppi g o  a plastic buildi g b ick |
+| Stuff a d thi gs |
+| Taste d ied spit |
+| That pe so  that talks o  the pho e i  the bath oom |
+| The co te ts of vomit |
+| The d eams of a child |
+| The eleme t of su p ise |
+| The fou di g fathe s |
+| The i stigato  of a food fight |
+| The Nobel Peace P ize |
+| The o ly good ca d i  my ha d |
+| The poi t of  o  etu  |
+| The shy kid i  the co e  |
+| The thi gs I do fo  love |
+| The wo ld's wo st huma  bei g |
+| Th owi g out co tai e s with  otte  food i  it |
+| Toddle s |
+| Tou ists |
+| T ai i g you  you ge , bette  looki g  eplaceme t |
+| Two b othe s a d a do key |
+| Ugly child e  |
+| Walki g the dog |
+| Wash you  di ty feet |
+| Watchi g you  pu chase get stuck i side of the ve di g machi e |
+| What could have bee  |
+| Wi eless tech ology |
+| Wo st dad i  Ame ica |
+| You  face |
+| You  mom |
 
 |Total amount: 110|
 |---|

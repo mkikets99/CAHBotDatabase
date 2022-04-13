@@ -8,8 +8,7 @@ Answers amount: 23
 |---|---|
 | Blood is thicker than _. | 1 |
 | Donna, pick up my dry cleaning and get my wife something for Christmas. I think she likes _. | 1 |
-| Here's what you can expect for the new year.Out: _.
-In: _. | 2 |
+| Here's what you can expect for the new year. Out: _. In: _. | 2 |
 | It's beginning to look a lot like _. | 1 |
 | Jesus performed the miracle of _ but it was never recorded. | 1 |
 | This holiday season, Tim Allen must overcome his fear of _ to save Christmas. | 1 |
@@ -19,31 +18,31 @@ In: _. | 2 |
 |---|
 
 ### Answers
-| Question |
+| Answers |
 |---|
-| A choir of angels descending from the sky and jizzing all over dad's sweater. |
-| A frozen homeless man shattering on your doorstep. |
-| A Toyota Corolla with a "Bring Our Jobs Back" Trumper sticker. |
-| Another shot of morphine. |
-| Eliminate liberal bias! |
-| Finding out that Santa isn't real. |
-| Fucking up Silent Night in front of 3,000 parents. |
-| Gift wrapping a live hamster. |
-| How cool it is that I love jesus and he loves me back. |
-| How great of a blowjob Jesus could give. |
-| How many drinks and Deborah has had. |
-| Is snowman that contains the soul of my dead father. |
-| My hot neighbor |
-| My uncle who voted for Trump. |
-| Piece of shit Christmas card with no money in them. |
-| Pretending to be one of the guys but actually being the spider god. |
-| Probably grandma's last Christmas, kids. |
-| Snow falling gently on the frozen body of an orphan boy. |
-| Sodomising the corpse of Ben Franklin. |
-| Starting to see where ISIS is coming from. |
-| The 9,000 children who starred to death today. |
-| The shocking stupidity of the American public. |
-| These new jeans that look so cool but are actually so bad. |
+| A choi  of a gels desce di g f om the sky a d jizzi g all ove  dad's sweate . |
+| A f oze  homeless ma  shatte i g o  you  doo step. |
+| A Toyota Co olla with a "B i g Ou  Jobs Back" T umpe  sticke . |
+| A othe  shot of mo phi e. |
+| Elimi ate libe al bias! |
+| Fi di g out that Sa ta is 't  eal. |
+| Fucki g up Sile t Night i  f o t of 3,000 pa e ts. |
+| Gift w appi g a live hamste . |
+| How cool it is that I love jesus a d he loves me back. |
+| How g eat of a blowjob Jesus could give. |
+| How ma y d i ks a d Debo ah has had. |
+| Is s owma  that co tai s the soul of my dead fathe . |
+| My hot  eighbo  |
+| My u cle who voted fo  T ump. |
+| Piece of shit Ch istmas ca d with  o mo ey i  them. |
+| P ete di g to be o e of the guys but actually bei g the spide  god. |
+| P obably g a dma's last Ch istmas, kids. |
+| S ow falli g ge tly o  the f oze  body of a  o pha  boy. |
+| Sodomisi g the co pse of Be  F a kli . |
+| Sta ti g to see whe e ISIS is comi g f om. |
+| The 9,000 child e  who sta ed to death today. |
+| The shocki g stupidity of the Ame ica  public. |
+| These  ew jea s that look so cool but a e actually so bad. |
 
 |Total amount: 23|
 |---|

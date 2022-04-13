@@ -14,30 +14,30 @@ Answers amount: 22
 |---|
 
 ### Answers
-| Question |
+| Answers |
 |---|
-| A back-alley abortion from a Mexican cyborg doctor. |
-| A father and son fighting each other over the last scrap of bread. |
-| A gnawing sense of dread. |
-| A legitimate reason to commit suicide. |
-| Bringing millions of dangerous low-paying manufacturing jobs back to America. |
-| Burying my only son. |
-| Casual dismissiveness. |
-| Desperately hurling insults at Donald Trump as he absorbs them into his rapidly expanding body. |
-| Drinking urine to survive. |
-| Extra rations for my little girl. |
-| Finding out that democracy might not be such a great idea. |
-| Making Islam illegal. |
-| Mild amusement. |
-| Nuclear winter. |
-| President Donald Trump. |
+| A back-alley abo tio  f om a Mexica  cybo g docto . |
+| A fathe  a d so  fighti g each othe  ove  the last sc ap of b ead. |
+| A g awi g se se of d ead. |
+| A legitimate  easo  to commit suicide. |
+| B i gi g millio s of da ge ous low-payi g ma ufactu i g jobs back to Ame ica. |
+| Bu yi g my o ly so . |
+| Casual dismissive ess. |
+| Despe ately hu li g i sults at Do ald T ump as he abso bs them i to his  apidly expa di g body. |
+| D i ki g u i e to su vive. |
+| Ext a  atio s fo  my little gi l. |
+| Fi di g out that democ acy might  ot be such a g eat idea. |
+| Maki g Islam illegal. |
+| Mild amuseme t. |
+| Nuclea  wi te . |
+| P eside t Do ald T ump. |
 | Rage. |
-| Roaming through a wasteland of windblown trash and deserted highways. |
-| The purging of the disloyal. |
-| Trying to remember what music was. |
-| Trying to wake up from this nightmare. |
-| Whipping lower-class white men into a xenophobic frenzy. |
-| World Wars 3 through 5. |
+| Roami g th ough a wastela d of wi dblow  t ash a d dese ted highways. |
+| The pu gi g of the disloyal. |
+| T yi g to  emembe  what music was. |
+| T yi g to wake up f om this  ightma e. |
+| Whippi g lowe -class white me  i to a xe ophobic f e zy. |
+| Wo ld Wa s 3 th ough 5. |
 
 |Total amount: 22|
 |---|

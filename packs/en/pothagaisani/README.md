@@ -107,111 +107,111 @@ Answers amount: 103
 |---|
 
 ### Answers
-| Question |
+| Answers |
 |---|
-| Act surprised when a doctor removes a small kitchen appliance from my anus. |
-| Ask the mice in my walls to dress me like Cinderella. |
-| Bake brownies that make everyone hallucinate. |
-| Bark at the watermelon. |
-| Bitch-slap a sasy barbershop quartet. |
-| Build an ark, load two of each animal, and then pass out while a flood comes. |
-| Castrate a slug. |
-| Charge a bull for my bar tab. |
-| Chastise the dog for licking itself. |
-| Check the neighbor's livestock for stool abnormalities. |
-| Cherish chewable THC candies. |
-| Chew on a friend's wart. |
-| Create a cheese that can only solidify in your crotch. |
-| Dance with a lamp shade on my privates. |
-| Dance with an imaginary bong. |
-| Dare the cat to jump over a piece of pie. |
-| Do laundry in the dishwasher. |
-| Doodle on a cheese doodle. |
-| Drink heavily while riding a unicycle. |
-| Eat a cucumber suggestively. |
-| Eat a loaded brownie. |
-| Eat nothing but condiments for 16 days. |
-| Floss your teeth with a tampon string. |
-| Fornicate with a slutty piece of furniture. |
-| Give the ol' "brown eye" an opportunity to wink. |
-| Grab his left nut to make the right one jealous. |
-| Hallucinate that I am a cartoon sponge. |
+| Act su p ised whe  a docto   emoves a small kitche  applia ce f om my a us. |
+| Ask the mice i  my walls to d ess me like Ci de ella. |
+| Bake b ow ies that make eve yo e halluci ate. |
+| Ba k at the wate melo . |
+| Bitch-slap a sasy ba be shop qua tet. |
+| Build a  a k, load two of each a imal, a d the  pass out while a flood comes. |
+| Cast ate a slug. |
+| Cha ge a bull fo  my ba  tab. |
+| Chastise the dog fo  licki g itself. |
+| Check the  eighbo 's livestock fo  stool ab o malities. |
+| Che ish chewable THC ca dies. |
+| Chew o  a f ie d's wa t. |
+| C eate a cheese that ca  o ly solidify i  you  c otch. |
+| Da ce with a lamp shade o  my p ivates. |
+| Da ce with a  imagi a y bo g. |
+| Da e the cat to jump ove  a piece of pie. |
+| Do lau d y i  the dishwashe . |
+| Doodle o  a cheese doodle. |
+| D i k heavily while  idi g a u icycle. |
+| Eat a cucumbe  suggestively. |
+| Eat a loaded b ow ie. |
+| Eat  othi g but co dime ts fo  16 days. |
+| Floss you  teeth with a tampo  st i g. |
+| Fo icate with a slutty piece of fu itu e. |
+| Give the ol' "b ow  eye" a  oppo tu ity to wi k. |
+| G ab his left  ut to make the  ight o e jealous. |
+| Halluci ate that I am a ca too  spo ge. |
 | Hump hemp. |
-| Imagine you are a marigold. |
-| Juggle barbecue tongs. |
+| Imagi e you a e a ma igold. |
+| Juggle ba becue to gs. |
 | Juggle fetal pigs. |
-| Knit thermal underwaer for purcupines. |
+| K it the mal u de wae  fo  pu cupi es. |
 | Lactate. |
 | Laugh at a dish towel. |
-| Laugh at the nearest chair. |
-| Lick a frozen pole until my tongue sticks. |
-| Lick everything in sight. |
-| Lick postage stamps professionally. |
-| Lick the dog's underpants. |
-| Lisp as if my life depends on it. |
-| Make chipmunks jealous with how many nuts I can fit in my mouth. |
-| Make freshly squeezed orange juice with my firm butt cheeks. |
-| Marinate submarine sandwiches in subway station. |
-| Menstruate golf balls. |
-| Mix cement in my underpants. |
-| Moon a Prime Minister. |
-| Mow the lawn naked. |
-| Paint your ass like a clown's face. |
-| Park my car in a hammock. |
-| Passionately kiss a manhole cover. |
-| Perform a lobotomy on a head of lettuce. |
-| Perform obscene sock puppet shows. |
-| Perform Pap Smears on my stuffed-animals. |
-| Pick my best friend's nose with a chopstick. |
-| Play hide-and-seek with imaginary serial killers. |
-| Play hockey with Martians. |
-| Pour flour into an oscillating fan. |
-| Practice voodoo on a potato. |
-| Pretend I am Godzilla and stomp on doll houses. |
-| Pretend that a plate of cupcakes are your childen. |
-| Pull out my teeth with pliers. |
-| Pull the fire alarm at a library. |
-| Re-stain your patio with pig's blood. |
-| Recite my parent's wedding vows while flogging myself. |
-| Replace the mistletoe with reefer. |
-| Ride a walrus to my 10th year high school reunion. |
-| Roll a joint full of oregano. |
-| Roll around in a giant crisper drawer. |
+| Laugh at the  ea est chai . |
+| Lick a f oze  pole u til my to gue sticks. |
+| Lick eve ythi g i  sight. |
+| Lick postage stamps p ofessio ally. |
+| Lick the dog's u de pa ts. |
+| Lisp as if my life depe ds o  it. |
+| Make chipmu ks jealous with how ma y  uts I ca  fit i  my mouth. |
+| Make f eshly squeezed o a ge juice with my fi m butt cheeks. |
+| Ma i ate subma i e sa dwiches i  subway statio . |
+| Me st uate golf balls. |
+| Mix ceme t i  my u de pa ts. |
+| Moo  a P ime Mi iste . |
+| Mow the law   aked. |
+| Pai t you  ass like a clow 's face. |
+| Pa k my ca  i  a hammock. |
+| Passio ately kiss a ma hole cove . |
+| Pe fo m a lobotomy o  a head of lettuce. |
+| Pe fo m obsce e sock puppet shows. |
+| Pe fo m Pap Smea s o  my stuffed-a imals. |
+| Pick my best f ie d's  ose with a chopstick. |
+| Play hide-a d-seek with imagi a y se ial kille s. |
+| Play hockey with Ma tia s. |
+| Pou  flou  i to a  oscillati g fa . |
+| P actice voodoo o  a potato. |
+| P ete d I am Godzilla a d stomp o  doll houses. |
+| P ete d that a plate of cupcakes a e you  childe . |
+| Pull out my teeth with plie s. |
+| Pull the fi e ala m at a lib a y. |
+| Re-stai  you  patio with pig's blood. |
+| Recite my pa e t's weddi g vows while floggi g myself. |
+| Replace the mistletoe with  eefe . |
+| Ride a wal us to my 10th yea  high school  eu io . |
+| Roll a joi t full of o ega o. |
+| Roll a ou d i  a gia t c ispe  d awe . |
 | Sell high-tops to hippies. |
-| Sell seashells by the seashore. |
-| Share a bong at a campfire sing-along. |
+| Sell seashells by the seasho e. |
+| Sha e a bo g at a campfi e si g-alo g. |
 | Shoot tube socks out of a tuba. |
-| Sit in porridge that is too hot. |
-| Ski off a kitchen table. |
-| Slice and dice an armoire into bark dust. |
-| Smoke a joint with someone double-jointed. |
-| Smoke salmon throug a bong. |
-| Squirt skim milk out of my nose after drinking 2%. |
-| Suck pudding out of everyone's orifices. |
-| Suck the blood out used bandages. |
-| Swim naked in a bathtub full of tapioca pudding. |
-| Swim the crawl stroke on a waterbed. |
-| Tattoo a green cross on my forehead. |
-| Tell someone that "Around the corner, fudge is made." |
-| Test my stuffed animals for STDs. |
-| Testify that I am a spoon. |
-| Tottoo "THC" on your forehead. |
-| Try to run faster than popping corn. |
-| Twirl batons that are human femur bones. |
-| Urinate purple. |
-| Use dirty underwear to perform a puppet show. |
-| Use salad tongs to pleasure strangers in a soup kitchen. |
-| Use the drapes as toilet paper. |
-| Vacuum the drapes. |
-| Walk a pirate's plank into a gian bowl of gelatin. |
-| Warn the corn that the carrots are invading the crisper drawer. |
-| Wear lip gloss on my anus. |
-| Wear my grandparent's dentures to a wedding. |
-| Wear nothing but Christmas tree ornaments to a mayor's inauguration ceremony. |
-| Wear nothing but edible pasties while grocery shopping. |
-| Whistle at the bacon. |
-| Write obscenities on everyone's foreheads in caramel. |
-| Yodel with elderly potheads. |
+| Sit i  po idge that is too hot. |
+| Ski off a kitche  table. |
+| Slice a d dice a  a moi e i to ba k dust. |
+| Smoke a joi t with someo e double-joi ted. |
+| Smoke salmo  th oug a bo g. |
+| Squi t skim milk out of my  ose afte  d i ki g 2%. |
+| Suck puddi g out of eve yo e's o ifices. |
+| Suck the blood out used ba dages. |
+| Swim  aked i  a bathtub full of tapioca puddi g. |
+| Swim the c awl st oke o  a wate bed. |
+| Tattoo a g ee  c oss o  my fo ehead. |
+| Tell someo e that "A ou d the co e , fudge is made." |
+| Test my stuffed a imals fo  STDs. |
+| Testify that I am a spoo . |
+| Tottoo "THC" o  you  fo ehead. |
+| T y to  u  faste  tha  poppi g co . |
+| Twi l bato s that a e huma  femu  bo es. |
+| U i ate pu ple. |
+| Use di ty u de wea  to pe fo m a puppet show. |
+| Use salad to gs to pleasu e st a ge s i  a soup kitche . |
+| Use the d apes as toilet pape . |
+| Vacuum the d apes. |
+| Walk a pi ate's pla k i to a gia  bowl of gelati . |
+| Wa  the co  that the ca ots a e i vadi g the c ispe  d awe . |
+| Wea  lip gloss o  my a us. |
+| Wea  my g a dpa e t's de tu es to a weddi g. |
+| Wea   othi g but Ch istmas t ee o ame ts to a mayo 's i augu atio  ce emo y. |
+| Wea   othi g but edible pasties while g oce y shoppi g. |
+| Whistle at the baco . |
+| W ite obsce ities o  eve yo e's fo eheads i  ca amel. |
+| Yodel with elde ly potheads. |
 
 |Total amount: 103|
 |---|

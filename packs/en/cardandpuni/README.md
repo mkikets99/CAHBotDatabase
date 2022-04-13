@@ -83,179 +83,179 @@ Answers amount: 171
 |---|
 
 ### Answers
-| Question |
+| Answers |
 |---|
-| A denture-free blowjob from Betty White. |
-| A donkey punch. |
-| A face only a mother could love. |
-| A particiation award. |
-| A participation award. |
-| A retirement home orgy. |
-| A reverse mermaid pathetically kicking around in a circle. |
-| A rug that really ties the room together. |
-| A unicorn with a unibrow riding a unicycle. |
-| Accidentally drunk sexting Dad. |
-| Accidently drunk sexting your parents. |
-| Amateur acupuncture. |
-| An "accidental" facial. |
-| An 89-year-old woman with time and gravity-affected breast implants jumping rope. |
-| An empty, neutered ballsack. |
-| An extravagent merkin. |
-| Another Saturday night alone, a jar full of peanut butter, and my dog. |
-| Asking a morbidly obese woman if she's pregnant. |
-| Beans, beans, the magical fruit. |
-| Being dumber than a 5th grader. |
-| Bill Fucking Murray. |
-| Bill's penis in and around Hillary's mouth. |
-| Blowing into a Nintendo cartridge and passing out. |
-| Butt barf. |
-| Buying a dog as a practice child and failing miserably. |
-| Buying a dog as a practice kid and colossally failing. |
-| Consuming undercooked eggs or poultry. |
-| Danger zone! |
-| Defiling new car smell. |
-| Deliberately spreading STDs. |
-| Disguising a queef as a fart. |
-| Docking. |
-| Donkey punching Donkey Kong. |
-| Dressing as yourself for Halloween. |
-| Dropping the soap. |
-| Ducking autocorrect. |
-| Either a queef or a fart. |
-| Failing to honor my 5th grade D.A.R.E. agreement. |
-| Farmers who fuck goats. |
-| Finding a used Band-Aid in the pool. |
-| Forgetting about Dre. |
-| Harriet Tubman underboob. |
-| Having a big toe for all of your toes. |
-| Having a big toe for all ten toes. |
-| Immediate regret. |
-| Ironic facial hair. |
-| Junk in the trunk. |
-| Kitten mittens. |
-| Lena Dunham's voluptuous muffin top. |
-| Literally fucking the shit out of someone. |
+| A de tu e-f ee blowjob f om Betty White. |
+| A do key pu ch. |
+| A face o ly a mothe  could love. |
+| A pa ticiatio  awa d. |
+| A pa ticipatio  awa d. |
+| A  eti eme t home o gy. |
+| A  eve se me maid pathetically kicki g a ou d i  a ci cle. |
+| A  ug that  eally ties the  oom togethe . |
+| A u ico  with a u ib ow  idi g a u icycle. |
+| Accide tally d u k sexti g Dad. |
+| Accide tly d u k sexti g you  pa e ts. |
+| Amateu  acupu ctu e. |
+| A  "accide tal" facial. |
+| A  89-yea -old woma  with time a d g avity-affected b east impla ts jumpi g  ope. |
+| A  empty,  eute ed ballsack. |
+| A  ext avage t me ki . |
+| A othe  Satu day  ight alo e, a ja  full of pea ut butte , a d my dog. |
+| Aski g a mo bidly obese woma  if she's p eg a t. |
+| Bea s, bea s, the magical f uit. |
+| Bei g dumbe  tha  a 5th g ade . |
+| Bill Fucki g Mu ay. |
+| Bill's pe is i  a d a ou d Hilla y's mouth. |
+| Blowi g i to a Ni te do ca t idge a d passi g out. |
+| Butt ba f. |
+| Buyi g a dog as a p actice child a d faili g mise ably. |
+| Buyi g a dog as a p actice kid a d colossally faili g. |
+| Co sumi g u de cooked eggs o  poult y. |
+| Da ge  zo e! |
+| Defili g  ew ca  smell. |
+| Delibe ately sp eadi g STDs. |
+| Disguisi g a queef as a fa t. |
+| Docki g. |
+| Do key pu chi g Do key Ko g. |
+| D essi g as you self fo  Hallowee . |
+| D oppi g the soap. |
+| Ducki g autoco ect. |
+| Eithe  a queef o  a fa t. |
+| Faili g to ho o  my 5th g ade D.A.R.E. ag eeme t. |
+| Fa me s who fuck goats. |
+| Fi di g a used Ba d-Aid i  the pool. |
+| Fo getti g about D e. |
+| Ha iet Tubma  u de boob. |
+| Havi g a big toe fo  all of you  toes. |
+| Havi g a big toe fo  all te  toes. |
+| Immediate  eg et. |
+| I o ic facial hai . |
+| Ju k i  the t u k. |
+| Kitte  mitte s. |
+| Le a Du ham's voluptuous muffi  top. |
+| Lite ally fucki g the shit out of someo e. |
 | Love. |
-| Luigi's inferiority complex. |
-| Male pattern baldness on a female. |
-| Masking failures with religion. |
-| Masturbating in the produce section. |
-| Methin' around. |
-| Michael Cera finally hitting puberty, |
-| Mistaking sriracha for contact lens solution. |
-| Movie theater handjobs. |
-| My windowless white van. |
-| Naked sumo jello wrestling. |
-| Not playing this game because you're Mormon. |
-| Overdosing on life. |
-| Owen Wilson's nose. |
-| Pineapple-infused cum. |
-| Poking a fatty on Facebook. |
-| Premature defecation. |
-| Pulling the plug. |
-| Shotgunning a Four Loco®, Bro! |
-| Shotgunning a Four Loko, bro! |
-| Showing that bitch a whole new world. |
-| Simultaneous diarrhea and vomiting. |
-| Simultaneous diarrhea and vomitting. |
-| Sniffing scented markers for a quick fix. |
-| Snorting the fine line between genius and insanity. |
-| Sober sex. |
+| Luigi's i fe io ity complex. |
+| Male patte  bald ess o  a female. |
+| Maski g failu es with  eligio . |
+| Mastu bati g i  the p oduce sectio . |
+| Methi ' a ou d. |
+| Michael Ce a fi ally hitti g pube ty, |
+| Mistaki g s i acha fo  co tact le s solutio . |
+| Movie theate  ha djobs. |
+| My wi dowless white va . |
+| Naked sumo jello w estli g. |
+| Not playi g this game because you' e Mo mo . |
+| Ove dosi g o  life. |
+| Owe  Wilso 's  ose. |
+| Pi eapple-i fused cum. |
+| Poki g a fatty o  Facebook. |
+| P ematu e defecatio . |
+| Pulli g the plug. |
+| Shotgu i g a Fou  Loco®, B o! |
+| Shotgu i g a Fou  Loko, b o! |
+| Showi g that bitch a whole  ew wo ld. |
+| Simulta eous dia hea a d vomiti g. |
+| Simulta eous dia hea a d vomitti g. |
+| S iffi g sce ted ma ke s fo  a quick fix. |
+| S o ti g the fi e li e betwee  ge ius a d i sa ity. |
+| Sobe  sex. |
 | Some type of palsy. |
-| Someone who looks retarded but isn't. |
-| Stinging urination. |
-| Taking our jobs. |
-| The antidote. |
-| The douchebag whose humor consists solely of quoting movies, expecially Anchorman. |
-| The ever-worsening wrath of the hangover gods. |
-| The Flying Spaghetti Monster. |
-| The Human Centipede: infinity edition. |
+| Someo e who looks  eta ded but is 't. |
+| Sti gi g u i atio . |
+| Taki g ou  jobs. |
+| The a tidote. |
+| The douchebag whose humo  co sists solely of quoti g movies, expecially A cho ma . |
+| The eve -wo se i g w ath of the ha gove  gods. |
+| The Flyi g Spaghetti Mo ste . |
+| The Huma  Ce tipede: i fi ity editio . |
 | The Itty Bitty Titty Committee. |
-| The little bastard kicking the back of your airplane seat while his parents do absolutely fucking nothing. |
-| The restraining order. |
-| The secret sauce on my mystery meat. |
-| The sound of stirring macaroni and cheese. |
-| The TSA guy stroking it to your naked body scan in the back room. |
-| The worst case of hemorrhoids I have ever seen. |
-| This shit again. |
-| Wiping back to front. |
-| 8-year olds, dude. |
-| A ball pit filled with elephant testicles. |
-| A basic white girl. |
-| A blumpkin. |
-| A bond stronger than the bromance between Seth Rogan and James Franco. |
-| A center for ants!? |
-| A condom that expired in 1998. |
-| A cool, dry place. |
-| A late, but joyful visit from Aunt Flo. |
-| A lot of extra skin. |
+| The little basta d kicki g the back of you  ai pla e seat while his pa e ts do absolutely fucki g  othi g. |
+| The  est ai i g o de . |
+| The sec et sauce o  my myste y meat. |
+| The sou d of sti i g maca o i a d cheese. |
+| The TSA guy st oki g it to you   aked body sca  i  the back  oom. |
+| The wo st case of hemo hoids I have eve  see . |
+| This shit agai . |
+| Wipi g back to f o t. |
+| 8-yea  olds, dude. |
+| A ball pit filled with elepha t testicles. |
+| A basic white gi l. |
+| A blumpki . |
+| A bo d st o ge  tha  the b oma ce betwee  Seth Roga  a d James F a co. |
+| A ce te  fo  a ts!? |
+| A co dom that expi ed i  1998. |
+| A cool, d y place. |
+| A late, but joyful visit f om Au t Flo. |
+| A lot of ext a ski . |
 | A meat popsicle. |
-| A particular set of skills. |
-| A pretty mouth. |
-| A short, ruthless brawl between the Oompa Loompas and the Lollipop Guild. |
-| A Slip'N Slide® made of sandpaper. |
-| A wacky waving inflatable arm-flailing tubeman. |
-| An Australian kiss. |
-| An innie weener. |
-| Anything flammable, perishable, or potentially hazardous. |
-| Attempting to impregnate the elderly. |
-| Baby in a corner. |
-| Being naughty and ordering dessert. |
-| Being ugly and having no alibi. |
-| Blank. |
-| Blindly agreeing to all the terms and conditions. |
-| Bloodying a sword. |
-| Caitlyn Jenner. |
-| Drinking your own piss. |
-| Eating Flamin' Hot Cheetos® out of the toilet. |
-| Free samples! |
-| Getting too old for this shit. |
-| Giving you up, letting you down, running around, and deserting you. |
-| Having nipples so wide that they start to become one, like a unibrow. |
-| Helen Keller. |
-| Jared from Subway®. |
-| Kim Jung-un's wee wang. |
-| Knowing my way around a penis. |
-| Licking the rim. |
-| Magical Mormon underwear. |
-| Making new holes to fuck. |
-| Messing with Texas |
-| Microwaving a watermelon, then silently fucking it until completion. |
-| Mike Tyson repeatedly saying the word "moist." |
-| More than a mouthful of bodily fluids. |
-| My famous anus. |
-| My imaginary friend who likes to watch. |
-| Not being mad, just disappointed. |
-| Obsessive-compulsive disorder. |
-| One for the homies. |
-| Peeling a dick like a banana. |
-| Permanent brain damage. |
-| Proposing an open relationship |
-| Shitting in the shower and stomping it down the drain. |
-| Slow-motion penile helicoptering. |
-| Spitting. |
-| Swallowing. |
-| That thong, th-thong-thong-thong. |
-| The endless possibilities of shrimp. |
-| The events that allegedly occurred during my blackout. |
-| The first time I tasted semen. |
-| The fullest extent of the law. |
-| The man inside me. |
-| The realization that new baby smell is actually just placental marinade. |
+| A pa ticula  set of skills. |
+| A p etty mouth. |
+| A sho t,  uthless b awl betwee  the Oompa Loompas a d the Lollipop Guild. |
+| A Slip'N Slide® made of sa dpape . |
+| A wacky wavi g i flatable a m-flaili g tubema . |
+| A  Aust alia  kiss. |
+| A  i ie wee e . |
+| A ythi g flammable, pe ishable, o  pote tially haza dous. |
+| Attempti g to imp eg ate the elde ly. |
+| Baby i  a co e . |
+| Bei g  aughty a d o de i g desse t. |
+| Bei g ugly a d havi g  o alibi. |
+| Bla k. |
+| Bli dly ag eei g to all the te ms a d co ditio s. |
+| Bloodyi g a swo d. |
+| Caitly  Je e . |
+| D i ki g you  ow  piss. |
+| Eati g Flami ' Hot Cheetos® out of the toilet. |
+| F ee samples! |
+| Getti g too old fo  this shit. |
+| Givi g you up, letti g you dow ,  u i g a ou d, a d dese ti g you. |
+| Havi g  ipples so wide that they sta t to become o e, like a u ib ow. |
+| Hele  Kelle . |
+| Ja ed f om Subway®. |
+| Kim Ju g-u 's wee wa g. |
+| K owi g my way a ou d a pe is. |
+| Licki g the  im. |
+| Magical Mo mo  u de wea . |
+| Maki g  ew holes to fuck. |
+| Messi g with Texas |
+| Mic owavi g a wate melo , the  sile tly fucki g it u til completio . |
+| Mike Tyso   epeatedly sayi g the wo d "moist." |
+| Mo e tha  a mouthful of bodily fluids. |
+| My famous a us. |
+| My imagi a y f ie d who likes to watch. |
+| Not bei g mad, just disappoi ted. |
+| Obsessive-compulsive diso de . |
+| O e fo  the homies. |
+| Peeli g a dick like a ba a a. |
+| Pe ma e t b ai  damage. |
+| P oposi g a  ope   elatio ship |
+| Shitti g i  the showe  a d stompi g it dow  the d ai . |
+| Slow-motio  pe ile helicopte i g. |
+| Spitti g. |
+| Swallowi g. |
+| That tho g, th-tho g-tho g-tho g. |
+| The e dless possibilities of sh imp. |
+| The eve ts that allegedly occu ed du i g my blackout. |
+| The fi st time I tasted seme . |
+| The fullest exte t of the law. |
+| The ma  i side me. |
+| The  ealizatio  that  ew baby smell is actually just place tal ma i ade. |
 | The same mistake, twice. |
-| The shit that comes out of Donald Trump's mouth. |
-| The worse toilet in Scotland. |
-| This one time at band camp. |
-| Tiny child balls. |
-| Trusting a fart that shouldn't be trusted. |
-| Trying to poop silently. |
-| Two men with impossibly tangled beards. |
-| Unplugging it, then plugging it back in. |
-| Using Grandpa's ballsack and leg for an impromptu game of tetherball. |
-| Vagina dentata. |
-| Vaginal ventriloquism. |
-| Walking around all day with a kazoo lodged in my butt. |
-| What I want, what I really, really want. |
+| The shit that comes out of Do ald T ump's mouth. |
+| The wo se toilet i  Scotla d. |
+| This o e time at ba d camp. |
+| Ti y child balls. |
+| T usti g a fa t that should 't be t usted. |
+| T yi g to poop sile tly. |
+| Two me  with impossibly ta gled bea ds. |
+| U pluggi g it, the  pluggi g it back i . |
+| Usi g G a dpa's ballsack a d leg fo  a  imp omptu game of tethe ball. |
+| Vagi a de tata. |
+| Vagi al ve t iloquism. |
+| Walki g a ou d all day with a kazoo lodged i  my butt. |
+| What I wa t, what I  eally,  eally wa t. |
 
 |Total amount: 171|
 |---|

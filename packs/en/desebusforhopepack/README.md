@@ -16,27 +16,27 @@ Answers amount: 19
 |---|
 
 ### Answers
-| Question |
+| Answers |
 |---|
-| $10,000 worth of silica gel. |
-| A bathroom only for poop. |
-| A chair-shaped fart sponge. |
-| A lethal dose of caffeine. |
-| Accidentally broadcasting an NSFW video to 5,000 people. |
-| An encyclopedic knowledge of Night Court. |
-| Belting out the chorus of a popular song and mumbling through the rest. |
+| $10,000 wo th of silica gel. |
+| A bath oom o ly fo  poop. |
+| A chai -shaped fa t spo ge. |
+| A lethal dose of caffei e. |
+| Accide tally b oadcasti g a  NSFW video to 5,000 people. |
+| A  e cyclopedic k owledge of Night Cou t. |
+| Belti g out the cho us of a popula  so g a d mumbli g th ough the  est. |
 | Bill's mom. |
-| Desert Bus. |
-| Doing it for the children. |
-| Having no idea what the fuck is going on. |
-| Letting the internet feed you. |
-| Playing one-handed. |
-| Shipping a fish brick to Ohio. |
+| Dese t Bus. |
+| Doi g it fo  the child e . |
+| Havi g  o idea what the fuck is goi g o . |
+| Letti g the i te et feed you. |
+| Playi g o e-ha ded. |
+| Shippi g a fish b ick to Ohio. |
 | The BONE ZONE! |
 | The D E V I C E. |
-| The Turner Lickability Scale. |
-| Whale dong. |
-| William Shatner watching you. |
+| The Tu e  Lickability Scale. |
+| Whale do g. |
+| William Shat e  watchi g you. |
 
 |Total amount: 19|
 |---|

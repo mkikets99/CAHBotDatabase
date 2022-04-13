@@ -141,462 +141,462 @@ Answers amount: 454
 |---|
 
 ### Answers
-| Question |
+| Answers |
 |---|
-| (Sleeping Beauty's curse) A magical prick |
-| A babe in the woods |
-| A backside grind |
-| A beer bottle |
+| (Sleepi g Beauty's cu se) A magical p ick |
+| A babe i  the woods |
+| A backside g i d |
+| A bee  bottle |
 | A black hole |
-| A blind lip reader |
+| A bli d lip  eade  |
 | A bombshell |
 | A booty call |
-| A bun in the oven |
-| A burning sensation in an awkward place |
+| A bu  i  the ove  |
+| A bu i g se satio  i  a  awkwa d place |
 | A cavity |
-| A celebrity sex tape |
+| A celeb ity sex tape |
 | A climax |
-| A coming out party |
-| A contortionist |
-| A court-appointed psychiatrist |
-| A cracker |
+| A comi g out pa ty |
+| A co to tio ist |
+| A cou t-appoi ted psychiat ist |
+| A c acke  |
 | A cute little pussy |
-| A disgraced  politician |
-| A disturbance in the Force |
-| A dominatrix |
-| A fairy |
-| A festering wound |
-| A fire in the hole |
+| A disg aced  politicia  |
+| A distu ba ce i  the Fo ce |
+| A domi at ix |
+| A fai y |
+| A feste i g wou d |
+| A fi e i  the hole |
 | A foot fetish |
-| A frisky televangelist |
+| A f isky televa gelist |
 | A gigolo |
-| A girls' night out |
+| A gi ls'  ight out |
 | A good bottle of scotch |
-| A groin pull |
-| A handyman |
-| A hangover |
-| A happy ending |
-| A hard of hearing ex body builder masseuse |
-| A hole in one |
-| A horny toad |
-| A hot rod |
-| A hotel room that just doesn't smell right |
-| A jar of Vaseline |
-| A Kardashian |
-| A Ken doll |
-| A little "alone time" |
+| A g oi  pull |
+| A ha dyma  |
+| A ha gove  |
+| A happy e di g |
+| A ha d of hea i g ex body builde  masseuse |
+| A hole i  o e |
+| A ho y toad |
+| A hot  od |
+| A hotel  oom that just does 't smell  ight |
+| A ja  of Vaseli e |
+| A Ka dashia  |
+| A Ke  doll |
+| A little "alo e time" |
 | A little camel toe |
-| A little crack |
-| A little squirt |
-| A little tongue in cheek |
+| A little c ack |
+| A little squi t |
+| A little to gue i  cheek |
 | A load of BS |
-| A long range missile |
-| A long shaft |
-| A long Slip 'n' Slide |
-| A lovely bunch of coconuts |
-| A member of the Village People |
-| A mountain of credit card debt |
-| A naughty girl |
-| A nice big cucumber |
-| A nice little drone strike |
-| A night without Lindsey Lohan |
-| A no longer dormant volcano |
-| A noted aphrodisiac |
-| A nymphomaniac |
-| A pearl necklace |
-| A peeping Tom |
-| A porn star |
-| A priest |
-| A racist family member |
-| A real boob |
-| A sack full of grapes |
+| A lo g  a ge missile |
+| A lo g shaft |
+| A lo g Slip ' ' Slide |
+| A lovely bu ch of coco uts |
+| A membe  of the Village People |
+| A mou tai  of c edit ca d debt |
+| A  aughty gi l |
+| A  ice big cucumbe  |
+| A  ice little d o e st ike |
+| A  ight without Li dsey Loha  |
+| A  o lo ge  do ma t volca o |
+| A  oted aph odisiac |
+| A  ymphoma iac |
+| A pea l  ecklace |
+| A peepi g Tom |
+| A po  sta  |
+| A p iest |
+| A  acist family membe  |
+| A  eal boob |
+| A sack full of g apes |
 | A selfie |
-| A sex machine |
-| A sexually transmitted disease |
-| A shotgun weding |
+| A sex machi e |
+| A sexually t a smitted disease |
+| A shotgu  wedi g |
 | A six pack |
 | A slave |
-| A slip of the tongue |
+| A slip of the to gue |
 | A smelly dump |
-| A spanking |
-| A stiff upper lip |
+| A spa ki g |
+| A stiff uppe  lip |
 | A stimulus package |
-| A strip club |
-| A stripper |
+| A st ip club |
+| A st ippe  |
 | A stud |
 | A swallow |
 | A swimsuit model |
-| A sword swallower |
-| A thick carpet of black hair |
-| A tree hugger |
-| A virgin |
-| A white hot something or other |
+| A swo d swallowe  |
+| A thick ca pet of black hai  |
+| A t ee hugge  |
+| A vi gi  |
+| A white hot somethi g o  othe  |
 | A whole lot of love |
 | Acid flashbacks |
-| Affirmative Action |
-| Afternoon delight |
-| Airing dirty laundry |
-| America's sweetheart |
-| An anatomically correct snowman |
-| An excessive "man crush" |
-| An experiment gone horribly wrong |
-| An identity crisis |
-| An orifice |
-| An over enthusiastic proctologist |
-| An over-used port-a-potty |
-| Androids |
-| Angel wing tattoos |
-| Animal magnetism |
-| Another unnecessary Die Hard sequel |
-| Artificial insemination |
-| Asking your doctor is you're healthy enough for sexual activity |
-| Backsliding |
-| Bacon panties to stop rape in the Middle East. |
+| Affi mative Actio  |
+| Afte oo  delight |
+| Ai i g di ty lau d y |
+| Ame ica's sweethea t |
+| A  a atomically co ect s owma  |
+| A  excessive "ma  c ush" |
+| A  expe ime t go e ho ibly w o g |
+| A  ide tity c isis |
+| A  o ifice |
+| A  ove  e thusiastic p octologist |
+| A  ove -used po t-a-potty |
+| A d oids |
+| A gel wi g tattoos |
+| A imal mag etism |
+| A othe  u ecessa y Die Ha d sequel |
+| A tificial i semi atio  |
+| Aski g you  docto  is you' e healthy e ough fo  sexual activity |
+| Backslidi g |
+| Baco  pa ties to stop  ape i  the Middle East. |
 | Badly-botched botox |
-| Banging away |
-| Beating a dead horse |
-| Beavers |
-| Becoming comfortably numb |
-| Beer, glorious beer |
-| Being a sore loser |
-| Being blown away |
-| Being butt naked |
-| Being debriefed |
-| Being inflamed |
-| Being on top |
-| Being sent to the penalty box |
-| Being titillated |
-| Bieng handy |
-| Bieng up and coming |
+| Ba gi g away |
+| Beati g a dead ho se |
+| Beave s |
+| Becomi g comfo tably  umb |
+| Bee , glo ious bee  |
+| Bei g a so e lose  |
+| Bei g blow  away |
+| Bei g butt  aked |
+| Bei g deb iefed |
+| Bei g i flamed |
+| Bei g o  top |
+| Bei g se t to the pe alty box |
+| Bei g titillated |
+| Bie g ha dy |
+| Bie g up a d comi g |
 | Big balls |
 | Big bosoms |
 | Big feet |
-| Big hair |
+| Big hai  |
 | Big lips |
-| Bill Clinton's favorite: good sax |
-| Binge drinking |
+| Bill Cli to 's favo ite: good sax |
+| Bi ge d i ki g |
 | Black magic |
 | Blackmail |
-| Blowing it |
-| Body language |
-| Body painting |
-| Bonding with my Roomba. |
+| Blowi g it |
+| Body la guage |
+| Body pai ti g |
+| Bo di g with my Roomba. |
 | Bottoms |
-| Boy bands |
-| Bradley Cooper |
-| Breaking wind |
-| Breast-feeding |
-| Bromance |
-| Bruised bananas |
-| Bull riding |
-| Bunny costumes |
+| Boy ba ds |
+| B adley Coope  |
+| B eaki g wi d |
+| B east-feedi g |
+| B oma ce |
+| B uised ba a as |
+| Bull  idi g |
+| Bu y costumes |
 | Bush |
-| Butting in |
-| Catwoman |
-| Ceiling mirrors |
-| Changing positions |
-| Cheesy pickup lines |
-| Chemical dependency |
-| Chick flicks with ridiculous endings |
+| Butti g i  |
+| Catwoma  |
+| Ceili g mi o s |
+| Cha gi g positio s |
+| Cheesy pickup li es |
+| Chemical depe de cy |
+| Chick flicks with  idiculous e di gs |
 | Chicks |
 | Cleavage |
-| Clothing that leaves little to the imagination |
-| Cold hard cash |
-| Come again |
-| Coming first |
-| Coming soon |
-| Coming together |
-| Conjugal visits |
-| Contributing to the delinquency of a minor |
-| Cougars |
-| Crabs Adjust Humidity. |
-| Dark chocolate |
-| Dating outside my race |
+| Clothi g that leaves little to the imagi atio  |
+| Cold ha d cash |
+| Come agai  |
+| Comi g fi st |
+| Comi g soo  |
+| Comi g togethe  |
+| Co jugal visits |
+| Co t ibuti g to the deli que cy of a mi o  |
+| Couga s |
+| C abs Adjust Humidity. |
+| Da k chocolate |
+| Dati g outside my  ace |
 | Death by chocolate |
-| Deciding to become a professional wrestler |
-| Diving on the grenade |
-| Dogs in little sweaters |
-| Doing it by hand |
-| Doing it the hard way |
-| Domestic intelligence gathering |
-| Donald Trump's hair |
-| Downward dog |
-| Driving a hard bargain |
-| Eating out |
+| Decidi g to become a p ofessio al w estle  |
+| Divi g o  the g e ade |
+| Dogs i  little sweate s |
+| Doi g it by ha d |
+| Doi g it the ha d way |
+| Domestic i tellige ce gathe i g |
+| Do ald T ump's hai  |
+| Dow wa d dog |
+| D ivi g a ha d ba gai  |
+| Eati g out |
 | Ecstasy |
-| Evil clowns |
-| Evil laughter |
-| Eye candy |
-| Faking it |
-| Fast food chain restaurant |
-| Faux leopard print |
-| Feeling a little prick |
-| Feeling the earth move |
-| Fifty Shades of Grey |
-| Fingering the bad guy |
-| Fishnets |
-| Flatulent hippos |
-| Flogging |
-| Fox news anchors. |
-| Fruits |
-| Funny cat videos |
-| George Clooney |
-| Getting a facial |
-| Getting a hot tip |
-| Getting a little behind |
-| Getting a swelled head |
-| Getting aroused by mannequins |
-| Getting caught with your fingers in the pie |
-| Getting in touch with my feminine side |
-| Getting into a rhythm |
-| Getting jerked around |
-| Getting off |
-| Getting on top |
-| Getting over the hump |
-| Getting probed by aliens |
-| Getting really hot |
-| Getting sloppy drunk |
-| Getting sweaty |
-| Getting tested for an STD |
-| Getting the juices flowing |
-| Getting tied up |
-| Getting wet |
-| Girls with glasses |
-| Girly drinks |
-| Giving lip service |
-| Giving someone the shaft |
-| Global warming. |
-| Going ballistic |
-| Going down |
-| Going in head first |
-| Going in the back door |
-| Going on a blind date with someone who is described as "really nice" |
-| Going to great lengths |
-| Good vibrations |
-| Grinning and bearing it |
-| Handcuffs |
-| Hanky-Panky |
-| Having a couple of stiff ones |
-| Having a hot dream about a co-worker |
-| Having someone push in your stool for you |
-| Having to go really bad |
-| Heavy breathing |
-| Helping yourself |
-| Hillary Clinton attending Donald Trump's wedding. |
-| Hitting the sack |
-| Hookers |
-| Hot cross buns |
+| Evil clow s |
+| Evil laughte  |
+| Eye ca dy |
+| Faki g it |
+| Fast food chai   estau a t |
+| Faux leopa d p i t |
+| Feeli g a little p ick |
+| Feeli g the ea th move |
+| Fifty Shades of G ey |
+| Fi ge i g the bad guy |
+| Fish ets |
+| Flatule t hippos |
+| Floggi g |
+| Fox  ews a cho s. |
+| F uits |
+| Fu y cat videos |
+| Geo ge Cloo ey |
+| Getti g a facial |
+| Getti g a hot tip |
+| Getti g a little behi d |
+| Getti g a swelled head |
+| Getti g a oused by ma equi s |
+| Getti g caught with you  fi ge s i  the pie |
+| Getti g i  touch with my femi i e side |
+| Getti g i to a  hythm |
+| Getti g je ked a ou d |
+| Getti g off |
+| Getti g o  top |
+| Getti g ove  the hump |
+| Getti g p obed by alie s |
+| Getti g  eally hot |
+| Getti g sloppy d u k |
+| Getti g sweaty |
+| Getti g tested fo  a  STD |
+| Getti g the juices flowi g |
+| Getti g tied up |
+| Getti g wet |
+| Gi ls with glasses |
+| Gi ly d i ks |
+| Givi g lip se vice |
+| Givi g someo e the shaft |
+| Global wa mi g. |
+| Goi g ballistic |
+| Goi g dow  |
+| Goi g i  head fi st |
+| Goi g i  the back doo  |
+| Goi g o  a bli d date with someo e who is desc ibed as " eally  ice" |
+| Goi g to g eat le gths |
+| Good vib atio s |
+| G i i g a d bea i g it |
+| Ha dcuffs |
+| Ha ky-Pa ky |
+| Havi g a couple of stiff o es |
+| Havi g a hot d eam about a co-wo ke  |
+| Havi g someo e push i  you  stool fo  you |
+| Havi g to go  eally bad |
+| Heavy b eathi g |
+| Helpi g you self |
+| Hilla y Cli to  atte di g Do ald T ump's weddi g. |
+| Hitti g the sack |
+| Hooke s |
+| Hot c oss bu s |
 | Hot Sauce |
-| Hottubbing |
-| Human shields |
+| Hottubbi g |
+| Huma  shields |
 | Hump day |
 | Jailbait. |
-| James Bond |
-| Jazz hands |
+| James Bo d |
+| Jazz ha ds |
 | Jell-O shots |
-| Jennifer Lawrence |
-| Juicy round melons |
-| Just a little bit inside |
-| Just haning out |
-| Justin Timberlake |
-| Karma |
-| Keeping it up |
-| Kim Jong-un |
-| Kinky porn |
-| Knowing that some stereotypes are true |
-| Ladyfingers |
-| Landing strips |
-| Large jugs |
+| Je ife  Law e ce |
+| Juicy  ou d melo s |
+| Just a little bit i side |
+| Just ha i g out |
+| Justi  Timbe lake |
+| Ka ma |
+| Keepi g it up |
+| Kim Jo g-u  |
+| Ki ky po  |
+| K owi g that some ste eotypes a e t ue |
+| Ladyfi ge s |
+| La di g st ips |
+| La ge jugs |
 | Lattes |
-| Lawyers |
-| Laying something bare |
-| Leather |
-| Leprechauns |
-| Lesbians Confessions |
-| Licking a popsicle |
-| Licking my lips |
-| Lifting and separating |
-| Lingerie |
-| Liquor |
+| Lawye s |
+| Layi g somethi g ba e |
+| Leathe  |
+| Lep echau s |
+| Lesbia s Co fessio s |
+| Licki g a popsicle |
+| Licki g my lips |
+| Lifti g a d sepa ati g |
+| Li ge ie |
+| Liquo  |
 | Little people |
 | Little yappy dogs |
-| Long John Silver |
+| Lo g Joh  Silve  |
 | Loose lips |
-| Loud banging |
+| Loud ba gi g |
 | Love bites |
-| Low impact aerobics |
-| Low-grade narcolepsy |
-| Low-hanging fruit |
-| Lumberjacks |
-| Magic fingers |
+| Low impact ae obics |
+| Low-g ade  a colepsy |
+| Low-ha gi g f uit |
+| Lumbe jacks |
+| Magic fi ge s |
 | Make-up sex |
-| Making it harder than it needs to be |
-| Male enhancement pills |
-| Manhood |
-| Medical marijuana clincs |
-| Men in uniform |
-| Miley Cyrus at 55. |
-| Missionary |
-| Motorboating |
-| Mr. Spock |
+| Maki g it ha de  tha  it  eeds to be |
+| Male e ha ceme t pills |
+| Ma hood |
+| Medical ma ijua a cli cs |
+| Me  i  u ifo m |
+| Miley Cy us at 55. |
+| Missio a y |
+| Moto boati g |
+| M . Spock |
 | My "ex" |
-| My boyfriend's stupid penis. |
-| My experiences with underage drinking |
-| My finger on the button |
-| My fingers |
+| My boyf ie d's stupid pe is. |
+| My expe ie ces with u de age d i ki g |
+| My fi ge  o  the butto  |
+| My fi ge s |
 | My fist |
-| My former BFF |
-| My hot neighbor |
-| My incredibly flexible yoga instructor |
-| My junk |
-| My magic awand |
+| My fo me  BFF |
+| My hot  eighbo  |
+| My i c edibly flexible yoga i st ucto  |
+| My ju k |
+| My magic awa d |
 | My mouth |
-| My partner |
-| My secret identity |
-| My tongue |
-| My virginity |
-| My worst enemy |
-| Nelson Mandela |
-| Nice knockers |
+| My pa t e  |
+| My sec et ide tity |
+| My to gue |
+| My vi gi ity |
+| My wo st e emy |
+| Nelso  Ma dela |
+| Nice k ocke s |
 | Night moves |
-| None of your business |
-| Not knowing when you're licked |
-| Not lasting long enough |
+| No e of you  busi ess |
+| Not k owi g whe  you' e licked |
+| Not lasti g lo g e ough |
 | Nuts |
-| Obamacare. |
+| Obamaca e. |
 | Oddly-shaped feet |
-| One of those trashy reality TV shows about catty women. |
-| Orphans |
-| Partying with Charlie Sheen |
-| Passion fruit |
-| Pickup artist |
-| Playing fast and loose |
-| Playing for the other team |
-| Playing the organ |
-| Playing the race card. |
-| Poking a hole |
-| Prescription drugs |
-| Prom night |
-| Prostitution |
-| Public nudity |
-| Pulling an all-nighter |
-| Reaching out and touching someone |
-| Really long fingernails |
-| Really screwing somebody |
-| Releasing gas in a crowd |
-| Riding bareback |
-| road rage |
-| Robert Mugabe |
-| Romantic candlelight |
-| Running out of toilet paper in an airline lavatory |
+| O e of those t ashy  eality TV shows about catty wome . |
+| O pha s |
+| Pa tyi g with Cha lie Shee  |
+| Passio  f uit |
+| Pickup a tist |
+| Playi g fast a d loose |
+| Playi g fo  the othe  team |
+| Playi g the o ga  |
+| Playi g the  ace ca d. |
+| Poki g a hole |
+| P esc iptio  d ugs |
+| P om  ight |
+| P ostitutio  |
+| Public  udity |
+| Pulli g a  all- ighte  |
+| Reachi g out a d touchi g someo e |
+| Really lo g fi ge ails |
+| Really sc ewi g somebody |
+| Releasi g gas i  a c owd |
+| Ridi g ba eback |
+|  oad  age |
+| Robe t Mugabe |
+| Roma tic ca dlelight |
+| Ru i g out of toilet pape  i  a  ai li e lavato y |
 | S & M |
-| Same sex marriage |
-| Santa Claus teabagging a sleeping child, taking a picture and leaving it in the child's stocking. |
-| Sarah Palin at Toastmasters™. |
+| Same sex ma iage |
+| Sa ta Claus teabaggi g a sleepi g child, taki g a pictu e a d leavi g it i  the child's stocki g. |
+| Sa ah Pali  at Toastmaste s™. |
 | Sausage fests |
-| Scissoring, if that's a thing. |
-| Scratching an itch |
-| Searching for a black box |
-| Selling hot dogs |
-| Sending a strippergram to the wrong address |
-| Shrinkage |
-| Sir Lancelot |
-| Sitting on the throne |
-| Skinny dipping The inevitable zombie apocalypse |
-| Skinny jeans |
-| Sliding in head first |
-| Snap-on tools |
-| Sofia Vergara |
-| Some coconut-scented body lotion |
-| Something fishy |
-| Something frilly |
-| Something furry |
-| Something pink |
-| Something really hard |
-| Something smellier than a high schooler's gym shorts on Friday |
-| Something stiff |
-| Spouting off |
-| Squishy things |
-| Standing at attention |
+| Scisso i g, if that's a thi g. |
+| Sc atchi g a  itch |
+| Sea chi g fo  a black box |
+| Selli g hot dogs |
+| Se di g a st ippe g am to the w o g add ess |
+| Sh i kage |
+| Si  La celot |
+| Sitti g o  the th o e |
+| Ski y dippi g The i evitable zombie apocalypse |
+| Ski y jea s |
+| Slidi g i  head fi st |
+| S ap-o  tools |
+| Sofia Ve ga a |
+| Some coco ut-sce ted body lotio  |
+| Somethi g fishy |
+| Somethi g f illy |
+| Somethi g fu y |
+| Somethi g pi k |
+| Somethi g  eally ha d |
+| Somethi g smellie  tha  a high schoole 's gym sho ts o  F iday |
+| Somethi g stiff |
+| Spouti g off |
+| Squishy thi gs |
+| Sta di g at atte tio  |
 | Stilettos |
-| Sucking at something |
-| Suppositories |
-| Swearing in sign language |
-| Sweating it out |
-| Sweet nectar of the Gods |
-| Taking a hint |
-| Taking it the wrong way |
-| Taking things into your own hands |
-| Talking dirty |
-| Teeny tiny teddies |
+| Sucki g at somethi g |
+| Supposito ies |
+| Swea i g i  sig  la guage |
+| Sweati g it out |
+| Sweet  ecta  of the Gods |
+| Taki g a hi t |
+| Taki g it the w o g way |
+| Taki g thi gs i to you  ow  ha ds |
+| Talki g di ty |
+| Tee y ti y teddies |
 | Tequila |
-| Terrorists. |
-| That time of the month |
+| Te o ists. |
+| That time of the mo th |
 | The 1% of the 1% |
-| The aftertaste of a burp |
+| The afte taste of a bu p |
 | The Batmobile |
-| The best Congress that money can buy |
-| The biggest one I've ever seen |
-| The birds and the bees |
-| The conservative agenda |
-| The crack of dawn |
-| The death penalty |
-| The Devil's Work |
-| The easter bunny attacking you in your sleep. |
-| The feeble minded |
-| The fragile male ego |
-| The full monty |
-| The gates of Heaven |
-| The hardest one |
+| The best Co g ess that mo ey ca  buy |
+| The biggest o e I've eve  see  |
+| The bi ds a d the bees |
+| The co se vative age da |
+| The c ack of daw  |
+| The death pe alty |
+| The Devil's Wo k |
+| The easte  bu y attacki g you i  you  sleep. |
+| The feeble mi ded |
+| The f agile male ego |
+| The full mo ty |
+| The gates of Heave  |
+| The ha dest o e |
 | The homeless |
-| The Karma Sutra |
-| The Koch brothers |
-| The liberal media machine. |
-| The Love Canal |
+| The Ka ma Sut a |
+| The Koch b othe s |
+| The libe al media machi e. |
+| The Love Ca al |
 | The magic bullet |
-| The meaning of life |
-| The monster under your bed |
-| The perfect little black dress |
-| The poor |
+| The mea i g of life |
+| The mo ste  u de  you  bed |
+| The pe fect little black d ess |
+| The poo  |
 | The Pope. |
-| The root of all evil |
-| The runs |
+| The  oot of all evil |
+| The  u s |
 | The sack of Rome |
-| The seven deadly sins |
-| The seven dwarfs |
-| The Tea Party |
-| The unspoken language of love |
-| The Vikings |
-| The whole shebang |
+| The seve  deadly si s |
+| The seve  dwa fs |
+| The Tea Pa ty |
+| The u spoke  la guage of love |
+| The Viki gs |
+| The whole sheba g |
 | Thigh-high boots |
-| Things that are slippery when wet |
-| Thongs |
+| Thi gs that a e slippe y whe  wet |
+| Tho gs |
 | Those people |
-| Tickling your fancy |
-| Tooting your own horn |
+| Tickli g you  fa cy |
+| Tooti g you  ow  ho  |
 | Toys |
-| Tropical cream |
-| Tulips on my organ |
-| Twerking in a MOPP suit. |
-| Two words: on sale |
-| Undulating |
-| Unnecessary roughness |
-| Uranus |
-| Using more racial slurs than a Quentin Tarantino movie |
-| Victoria's Secret |
-| Vladimir Putin |
-| Waxing |
-| Weapons of Mass Destruction |
-| Wearing clown makeup |
-| When something is up |
-| When the pleasure is all mine |
-| Whipped cream |
+| T opical c eam |
+| Tulips o  my o ga  |
+| Twe ki g i  a MOPP suit. |
+| Two wo ds: o  sale |
+| U dulati g |
+| U ecessa y  ough ess |
+| U a us |
+| Usi g mo e  acial slu s tha  a Que ti  Ta a ti o movie |
+| Victo ia's Sec et |
+| Vladimi  Puti  |
+| Waxi g |
+| Weapo s of Mass Dest uctio  |
+| Wea i g clow  makeup |
+| Whe  somethi g is up |
+| Whe  the pleasu e is all mi e |
+| Whipped c eam |
 | Whips |
-| White people singing rap lyrics |
-| World religions |
-| Yoga pants as formal wear |
-| Your hands |
-| Your sweet cheeks |
+| White people si gi g  ap ly ics |
+| Wo ld  eligio s |
+| Yoga pa ts as fo mal wea  |
+| You  ha ds |
+| You  sweet cheeks |
 
 |Total amount: 454|
 |---|

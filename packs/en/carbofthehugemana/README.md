@@ -131,554 +131,555 @@ Answers amount: 547
 |---|
 
 ### Answers
-| Question |
+| Answers |
 |---|
-| "Christian Domestic Discipline 101" from Amazon.com.* |
-| "Exiting, pursued by a bear." |
-| "Vegan-leather" bondage gear. |
+| "Ch istia  Domestic Discipli e 101" f om Amazo .com.* |
+| "Exiti g, pu sued by a bea ." |
+| "Vega -leathe " bo dage gea . |
 | 50 Shades of Off-White. |
-| A "boudoir-style" photoshoot that turns into something else. |
-| A 20+ year age gap between you and your partner. |
-| A bi-sexual woman learning blowjob technique from a gay man. |
-| A Brat. |
-| A catholic schoolgirl uniform. |
-| A cherry-wood spanking bench. |
-| A collar and a leash. |
-| A Fleshlight™ knock-off from China.* |
+| A "boudoi -style" photoshoot that tu s i to somethi g else. |
+| A 20+ yea  age gap betwee  you a d you  pa t e . |
+| A bi-sexual woma  lea i g blowjob tech ique f om a gay ma . |
+| A B at. |
+| A catholic schoolgi l u ifo m. |
+| A che y-wood spa ki g be ch. |
+| A colla  a d a leash. |
+| A Fleshlight™ k ock-off f om Chi a.* |
 | A fox-tail butt plug. |
-| A gift certificate to Liberator™.* |
+| A gift ce tificate to Libe ato ™.* |
 | A happy submissive. |
-| A librarian doing something with her mouth other than "shushing." |
+| A lib a ia  doi g somethi g with he  mouth othe  tha  "shushi g." |
 | A mild foot-fetish. |
-| A really, really good spanking. |
-| A sex-toy or a dog-toy. |
-| A Violet Wand with multiple attachments.* |
-| Aftercare.* |
-| Alternative uses for Icy Hot and Gold Bond Medicated Powder. |
-| An advanced teledildonics* protoype. |
-| An all-day fuck fest. |
-| An introverted Dom. |
-| An upgraded Sybian.* |
-| Anal safer sex. |
-| Asking "Do you have other sizes of ball gags?" |
-| Awkward dynamics in a poly relationship. |
-| Awkward sex on the honymoon. |
-| Being bent over the bed, blindfolded, and bound, and waiting... |
-| Being choked - with love - by your partner. |
-| Being pleasantly surprised at the quality of the sex tape you made using your iPhone. |
-| Buying kink supplies at Hobby Lobby.* |
-| Creepy kink guys who prey on newbies to the scene. |
+| A  eally,  eally good spa ki g. |
+| A sex-toy o  a dog-toy. |
+| A Violet Wa d with multiple attachme ts.* |
+| Afte ca e.* |
+| Alte ative uses fo  Icy Hot a d Gold Bo d Medicated Powde . |
+| A  adva ced teledildo ics* p otoype. |
+| A  all-day fuck fest. |
+| A  i t ove ted Dom. |
+| A  upg aded Sybia .* |
+| A al safe  sex. |
+| Aski g "Do you have othe  sizes of ball gags?" |
+| Awkwa d dy amics i  a poly  elatio ship. |
+| Awkwa d sex o  the ho ymoo . |
+| Bei g be t ove  the bed, bli dfolded, a d bou d, a d waiti g... |
+| Bei g choked - with love - by you  pa t e . |
+| Bei g pleasa tly su p ised at the quality of the sex tape you made usi g you  iPho e. |
+| Buyi g ki k supplies at Hobby Lobby.* |
+| C eepy ki k guys who p ey o   ewbies to the sce e. |
 | Daddy's belt. |
-| Deciding who gets to sleep in the middle. |
-| Defending marriage from those kind of people. |
-| Dinner at a fine restaurant with candlelight, small portions, tablecloths, and a remote-controlled bullet in your partner.* |
-| Drool from sucking cock. |
+| Decidi g who gets to sleep i  the middle. |
+| Defe di g ma iage f om those ki d of people. |
+| Di e  at a fi e  estau a t with ca dlelight, small po tio s, tablecloths, a d a  emote-co t olled bullet i  you  pa t e .* |
+| D ool f om sucki g cock. |
 | Fetlife.* |
-| Figuring out how to keep a woman with really small, flexible hands restrained in bondage cuffs. |
-| Fisher-Price's new "My First Slave Collar." |
-| Getting an infection from your partner's unclean toys. |
+| Figu i g out how to keep a woma  with  eally small, flexible ha ds  est ai ed i  bo dage cuffs. |
+| Fishe -P ice's  ew "My Fi st Slave Colla ." |
+| Getti g a  i fectio  f om you  pa t e 's u clea  toys. |
 | GGG.* |
-| Gifted but not talented. |
-| Glitter everywhere. |
-| Hair gel on the inside of your car windows. |
-| High protocol.* |
-| I'm your Secretary. |
-| Kinky sex. |
-| Leaving claw marks on my back. |
+| Gifted but  ot tale ted. |
+| Glitte  eve ywhe e. |
+| Hai  gel o  the i side of you  ca  wi dows. |
+| High p otocol.* |
+| I'm you  Sec eta y. |
+| Ki ky sex. |
+| Leavi g claw ma ks o  my back. |
 | Liquid latex. |
-| Making whore life choices. |
-| My custom-built bondage bed. |
-| My Good Girl.* |
-| My safeword is "Cinnamon." |
-| My token monogamous friend. |
+| Maki g who e life choices. |
+| My custom-built bo dage bed. |
+| My Good Gi l.* |
+| My safewo d is "Ci amo ." |
+| My toke  mo ogamous f ie d. |
 | Needle-play. |
-| No, Sir. |
+| No, Si . |
 | Nope.  Not at all. |
-| Not just embracing your inner demon, but taking it out for dinner and dancing, then home... |
-| One scoop of creamed potatoes. A slice of butter. Four peas. And as much ice cream as you'd like to eat.* |
-| Orgasm denial. |
-| Pegging.* |
-| Piercings in unusual places. |
+| Not just emb aci g you  i e  demo , but taki g it out fo  di e  a d da ci g, the  home... |
+| O e scoop of c eamed potatoes. A slice of butte . Fou  peas. A d as much ice c eam as you'd like to eat.* |
+| O gasm de ial. |
+| Peggi g.* |
+| Pie ci gs i  u usual places. |
 | Pity sex. |
-| Reaching out and "touching" someone. |
-| Restraining orders. |
-| Rubbing a bald head. |
+| Reachi g out a d "touchi g" someo e. |
+| Rest ai i g o de s. |
+| Rubbi g a bald head. |
 | Sex positive people. |
-| Shibari.* |
-| Six rolls of "Moving Wrap" from U-Haul™. |
-| Slamming your partner against a wall. |
-| Squirting.* |
-| Sub drop.* |
-| That fantasy. |
-| That really cute barista. |
-| The BAD cane. |
-| The Hitachi Magic Wand.* |
-| The lovely bruises from last night. |
-| The morning-after pill. |
-| The other paddle. |
-| The threesome that will never happen. |
-| Trying to introduce the person you're dating when you don't know what your relationship status actually is. |
-| Vampire gloves.* |
-| Vetwrap bandaging tape. |
-| Walking in on your mom dominating your dad. |
+| Shiba i.* |
+| Six  olls of "Movi g W ap" f om U-Haul™. |
+| Slammi g you  pa t e  agai st a wall. |
+| Squi ti g.* |
+| Sub d op.* |
+| That fa tasy. |
+| That  eally cute ba ista. |
+| The BAD ca e. |
+| The Hitachi Magic Wa d.* |
+| The lovely b uises f om last  ight. |
+| The mo i g-afte  pill. |
+| The othe  paddle. |
+| The th eesome that will  eve  happe . |
+| T yi g to i t oduce the pe so  you' e dati g whe  you do 't k ow what you   elatio ship status actually is. |
+| Vampi e gloves.* |
+| Vetw ap ba dagi g tape. |
+| Walki g i  o  you  mom domi ati g you  dad. |
 | Wax-play. |
-| Whistling inappropriate Oingo-Boingo songs. |
-| Yes, Sir! |
-| Your behavior.  It's very bad. |
-| "I'm off my meds so I may be a bit weird." |
-| 63 new messages saying either "Hay" or "Wanna fuck?" |
-| A coyote date where you're willing to chew your own arm off to get away. |
-| A date so awful you reevaluate your orientation. |
-| A deep, meaningful relationship... started on Tinder. |
-| Aging out of the online dating pool. |
-| An awe-inspiringly generic profile. |
-| Because you're unique. |
-| Being dumped on your birthday. |
-| Being on a date where every single question is answered with the statement, "I'm no comfortable talking about that." |
-| Being very concerned about "The Surgery" they keep referring to. |
-| Calling out you date for attempting Pick Up Artist techniques on you.* |
-| Checking out the hot one on the left in the photo then realizing that the profile is for the not-so-hot one on the right. |
-| Considering the date successful when they put their phone down for more than 50% of the time. |
-| Contacting your cryptographer friend at the NSA for help in translating the poor grammar and spelling in a profile. |
-| Dating someone almost half your age... almost. |
-| Deciding if the amazing sex was worth the amazing crazy. |
-| Destroying on really nice article of clothing. |
-| Discovering that your significant other is shocked you masturbate. |
-| Discovering you date thinks she's a "squirter," but it's really just pee. |
-| Discovering your 32 year old date is a virgin.          By choice. |
-| Discovering your date has dotted-line tattoos saying "cut here" on their wrists. |
-| Discussing your favorite types of bondage on your first date. |
-| Driving two hours for a date only to find that they moved and left no forwarding address. |
-| Ending a three-year relationship via email. |
-| Extreme halitosis. |
-| Faking an orgasm so you can kick them out. |
-| Faking food poisoning to end the date. |
-| Figuring out who gets the Hitachi Wand after the break-up. |
-| Finding a polite way to ask if your date was born the gender they are now. |
-| Finding out that they live in their parents' basement. |
-| Finding out they're single in an "Ashley Madison" kind of way. |
-| Finding out your date thinks that Cards Against Humanity™ isn't funny. At all. |
-| Finding yourself disturbed at how turned on you are by someone who's that trashy. |
-| Finding yourself trapped in a discussion about how the conspiracy is everywhere. |
-| Fucking a guy with a huge penis... who has no idea what he's doing with it. |
-| Fucking them senseless. |
-| Geographically undesirable.* |
-| Getting back from a bad date to your roommate having sex on the couch.  Again. |
-| Getting drunk.  Not for the date, but just for the searching online. |
-| Getting the feeling that you really need to watch your drink. |
-| Ghosting.* |
-| Giving the person who asked for your number the number of "dial-a-prayer."* |
-| Going to Denny's and being told by your date what you can order so they can use their coupon. |
-| Having explosive diarrhea in your date's bathroom. |
-| Having mind-blowing sex with someone whose politics are the polar opposite of yours. |
-| Having sex with someone who learned their technique from watching bad porn. |
-| Having your cat back away, hackles-up, hissing and yowling at your date. |
-| Having your date say grace while you think, "I'm picking up the tab, why are you thanking God?" |
-| Ignoring glaringly obvious red-flags because they're really hot. |
-| Judging someone based on the content of their character... and the shape of their butt. |
-| Listening to him talk all night about his Twilight fan-fiction. |
-| Looking through your "friends" on Facebook and playing "Would you or wouldn't you?" at 3:30am because you're awake and have nothing better to do. |
-| Lying about your age by 10 years and thinking no one will notice. |
-| Major bitchy/asshole resting face. |
-| Meeting your date only to see their face fall at the sight of you. |
-| Messages from people who are WAY less attractive than you. |
-| Messages from people who obviously have not read your profile. |
+| Whistli g i app op iate Oi go-Boi go so gs. |
+| Yes, Si ! |
+| You  behavio .  It's ve y bad. |
+| "I'm off my meds so I may be a bit wei d." |
+| 63  ew messages sayi g eithe  "Hay" o  "Wa a fuck?" |
+| A coyote date whe e you' e willi g to chew you  ow  a m off to get away. |
+| A date so awful you  eevaluate you  o ie tatio . |
+| A deep, mea i gful  elatio ship... sta ted o  Ti de . |
+| Agi g out of the o li e dati g pool. |
+| A  awe-i spi i gly ge e ic p ofile. |
+| Because you' e u ique. |
+| Bei g dumped o  you  bi thday. |
+| Bei g o  a date whe e eve y si gle questio  is a swe ed with the stateme t, "I'm  o comfo table talki g about that." |
+| Bei g ve y co ce ed about "The Su ge y" they keep  efe i g to. |
+| Calli g out you date fo  attempti g Pick Up A tist tech iques o  you.* |
+| Checki g out the hot o e o  the left i  the photo the   ealizi g that the p ofile is fo  the  ot-so-hot o e o  the  ight. |
+| Co side i g the date successful whe  they put thei  pho e dow  fo  mo e tha  50% of the time. |
+| Co tacti g you  c yptog aphe  f ie d at the NSA fo  help i  t a slati g the poo  g amma  a d spelli g i  a p ofile. |
+| Dati g someo e almost half you  age... almost. |
+| Decidi g if the amazi g sex was wo th the amazi g c azy. |
+| Dest oyi g o   eally  ice a ticle of clothi g. |
+| Discove i g that you  sig ifica t othe  is shocked you mastu bate. |
+| Discove i g you date thi ks she's a "squi te ," but it's  eally just pee. |
+| Discove i g you  32 yea  old date is a vi gi .          By choice. |
+| Discove i g you  date has dotted-li e tattoos sayi g "cut he e" o  thei  w ists. |
+| Discussi g you  favo ite types of bo dage o  you  fi st date. |
+| D ivi g two hou s fo  a date o ly to fi d that they moved a d left  o fo wa di g add ess. |
+| E di g a th ee-yea   elatio ship via email. |
+| Ext eme halitosis. |
+| Faki g a  o gasm so you ca  kick them out. |
+| Faki g food poiso i g to e d the date. |
+| Figu i g out who gets the Hitachi Wa d afte  the b eak-up. |
+| Fi di g a polite way to ask if you  date was bo  the ge de  they a e  ow. |
+| Fi di g out that they live i  thei  pa e ts' baseme t. |
+| Fi di g out they' e si gle i  a  "Ashley Madiso " ki d of way. |
+| Fi di g out you  date thi ks that Ca ds Agai st Huma ity™ is 't fu y. At all. |
+| Fi di g you self distu bed at how tu ed o  you a e by someo e who's that t ashy. |
+| Fi di g you self t apped i  a discussio  about how the co spi acy is eve ywhe e. |
+| Fucki g a guy with a huge pe is... who has  o idea what he's doi g with it. |
+| Fucki g them se seless. |
+| Geog aphically u desi able.* |
+| Getti g back f om a bad date to you   oommate havi g sex o  the couch.  Agai . |
+| Getti g d u k.  Not fo  the date, but just fo  the sea chi g o li e. |
+| Getti g the feeli g that you  eally  eed to watch you  d i k. |
+| Ghosti g.* |
+| Givi g the pe so  who asked fo  you   umbe  the  umbe  of "dial-a-p aye ."* |
+| Goi g to De y's a d bei g told by you  date what you ca  o de  so they ca  use thei  coupo . |
+| Havi g explosive dia hea i  you  date's bath oom. |
+| Havi g mi d-blowi g sex with someo e whose politics a e the pola  opposite of you s. |
+| Havi g sex with someo e who lea ed thei  tech ique f om watchi g bad po . |
+| Havi g you  cat back away, hackles-up, hissi g a d yowli g at you  date. |
+| Havi g you  date say g ace while you thi k, "I'm picki g up the tab, why a e you tha ki g God?" |
+| Ig o i g gla i gly obvious  ed-flags because they' e  eally hot. |
+| Judgi g someo e based o  the co te t of thei  cha acte ... a d the shape of thei  butt. |
+| Liste i g to him talk all  ight about his Twilight fa -fictio . |
+| Looki g th ough you  "f ie ds" o  Facebook a d playi g "Would you o  would 't you?" at 3:30am because you' e awake a d have  othi g bette  to do. |
+| Lyi g about you  age by 10 yea s a d thi ki g  o o e will  otice. |
+| Majo  bitchy/asshole  esti g face. |
+| Meeti g you  date o ly to see thei  face fall at the sight of you. |
+| Messages f om people who a e WAY less att active tha  you. |
+| Messages f om people who obviously have  ot  ead you  p ofile. |
 | My eyes. |
-| My favorite movies: The Secretary; Amelie; and The Shawshank Redemption. |
-| Not clicking "casual sex" because you don't want to look like a slut. (even though you really want casual sex). |
-| OKCupid suggesting not one, not two, but three different exes. |
-| One hour into the date, they have to call-in and tell their Dom how the date is going. |
-| One topic of conversation.  Vegan "food."  Nothing else. |
-| Pictures of you drinking a cocktail, sky-diving, and rock-climbing. |
-| Pubic hair that makes you think of Donald Trump's toupee. |
-| Random hairs from your ex on everything.  Including your underwear. |
-| Reading a friend's profile and realizing you two should totally hook up. |
-| Realizing this isn't a date, it's a chance for the person to share their love of Jesus with someone new. |
-| Receiving flowers on your first date that smell like rotting flesh. |
-| Returing your ex's stockings to her - after you've tied up your new girlfriend with them. |
-| Signing up with eHarmony only to be told, "we can't find any matches for you." |
-| Spending $400 on another god-awful bridesmaid's dress. |
-| Spending the entire night surfing OKCupid, Match.com, Plenty of Fish, and Craig's List without reaching out. |
-| Swiping left so hard you crack the screen. |
-| Telling your parents you two met at church, not on CollarSpace.com.* |
-| The day after the first date when she tells you she's pregnant... and doesn't know who the father is. |
-| The embarrassment of the hot nurse reading your medication list including Valtrex and Viagra...* |
-| The sense of connection after discovering you take the psychiatric meds. |
-| Thinking, "Curvy?  Well, yeah.  Spheres have curves." |
-| Thinking, "maybe just this once I don't need protection..." and finding out later, "yeah, I did." |
-| Trying to decide if online- or offline-dating is worse. |
-| Unholy rage and abuse at a polite "thanks, but no thanks" response to an online-dating contact |
-| Upon meeting, discovering their photos were poor, outdated, and probably someone else... quite possibly of a different species altogether. |
-| Watching your date get someone else's number while out with you. |
-| Wedding reception hook-ups. |
-| Wondering if maybe you're the ONLY person on any of these dating sites given your response rate. |
-| Wondering why no one has actually created the dating site "Lowered Expectations."* |
-| Wondering why none of your friends will set you up with their friends. |
-| Yelling into the void.* |
-| Your date declaring their undying love in the first 45 minutes |
-| Your date explaining that he's a masculinist and a member of the men's rights movement. |
-| Your date surprising you by coming out of your bedroom wearing one of your button-down shirts.And nothing else. |
-| "Platonic" cuddle buddies. |
+| My favo ite movies: The Sec eta y; Amelie; a d The Shawsha k Redemptio . |
+| Not clicki g "casual sex" because you do 't wa t to look like a slut. (eve  though you  eally wa t casual sex). |
+| OKCupid suggesti g  ot o e,  ot two, but th ee diffe e t exes. |
+| O e hou  i to the date, they have to call-i  a d tell thei  Dom how the date is goi g. |
+| O e topic of co ve satio .  Vega  "food."  Nothi g else. |
+| Pictu es of you d i ki g a cocktail, sky-divi g, a d  ock-climbi g. |
+| Pubic hai  that makes you thi k of Do ald T ump's toupee. |
+| Ra dom hai s f om you  ex o  eve ythi g.  I cludi g you  u de wea . |
+| Readi g a f ie d's p ofile a d  ealizi g you two should totally hook up. |
+| Realizi g this is 't a date, it's a cha ce fo  the pe so  to sha e thei  love of Jesus with someo e  ew. |
+| Receivi g flowe s o  you  fi st date that smell like  otti g flesh. |
+| Retu i g you  ex's stocki gs to he  - afte  you've tied up you   ew gi lf ie d with them. |
+| Sig i g up with eHa mo y o ly to be told, "we ca 't fi d a y matches fo  you." |
+| Spe di g $400 o  a othe  god-awful b idesmaid's d ess. |
+| Spe di g the e ti e  ight su fi g OKCupid, Match.com, Ple ty of Fish, a d C aig's List without  eachi g out. |
+| Swipi g left so ha d you c ack the sc ee . |
+| Telli g you  pa e ts you two met at chu ch,  ot o  Colla Space.com.* |
+| The day afte  the fi st date whe  she tells you she's p eg a t... a d does 't k ow who the fathe  is. |
+| The emba assme t of the hot  u se  eadi g you  medicatio  list i cludi g Valt ex a d Viag a...* |
+| The se se of co ectio  afte  discove i g you take the psychiat ic meds. |
+| Thi ki g, "Cu vy?  Well, yeah.  Sphe es have cu ves." |
+| Thi ki g, "maybe just this o ce I do 't  eed p otectio ..." a d fi di g out late , "yeah, I did." |
+| T yi g to decide if o li e- o  offli e-dati g is wo se. |
+| U holy  age a d abuse at a polite "tha ks, but  o tha ks"  espo se to a  o li e-dati g co tact |
+| Upo  meeti g, discove i g thei  photos we e poo , outdated, a d p obably someo e else... quite possibly of a diffe e t species altogethe . |
+| Watchi g you  date get someo e else's  umbe  while out with you. |
+| Weddi g  eceptio  hook-ups. |
+| Wo de i g if maybe you' e the ONLY pe so  o  a y of these dati g sites give  you   espo se  ate. |
+| Wo de i g why  o o e has actually c eated the dati g site "Lowe ed Expectatio s."* |
+| Wo de i g why  o e of you  f ie ds will set you up with thei  f ie ds. |
+| Yelli g i to the void.* |
+| You  date decla i g thei  u dyi g love i  the fi st 45 mi utes |
+| You  date explai i g that he's a masculi ist a d a membe  of the me 's  ights moveme t. |
+| You  date su p isi g you by comi g out of you  bed oom wea i g o e of you  butto -dow  shi ts.
+A d  othi g else. |
+| "Plato ic" cuddle buddies. |
 | (wub)(wub)(wub) |
-| A dance board with "new ideas." |
-| A dance so face-meltingly hot, you have to go to the restroom and check your underwear. |
-| A pretentious DJ who attempts to "challenge" the dancers. |
+| A da ce boa d with " ew ideas." |
+| A da ce so face-melti gly hot, you have to go to the  est oom a d check you  u de wea . |
+| A p ete tious DJ who attempts to "challe ge" the da ce s. |
 | Acapella Dubstep. |
-| An elbow to the nose. |
-| An exploded blister. |
-| An Indian co-worker who wears so much cologne you can taste it. |
-| An unexpected massage. |
-| Argentine Tango. |
-| Arm-Leading. |
-| Asking someone to dance who says, "Oh. I'm not very good." |
-| Asking the DJ to play "Cold Turkey." |
-| Austin Blues Predators. |
-| Awkward Eye Contact. |
+| A  elbow to the  ose. |
+| A  exploded bliste . |
+| A  I dia  co-wo ke  who wea s so much colog e you ca  taste it. |
+| A  u expected massage. |
+| A ge ti e Ta go. |
+| A m-Leadi g. |
+| Aski g someo e to da ce who says, "Oh. I'm  ot ve y good." |
+| Aski g the DJ to play "Cold Tu key." |
+| Austi  Blues P edato s. |
+| Awkwa d Eye Co tact. |
 | Ballet. |
-| Ballroom Avenger. |
-| Bathrooms with danceable music. |
-| Beaver Clamp. |
+| Ball oom Ave ge . |
+| Bath ooms with da ceable music. |
+| Beave  Clamp. |
 | Because of you people. |
-| Blues Dancing. |
-| Bonerboy. |
-| Children at exchanges. |
-| Clear the Floor. |
-| Completely drunk organizers. |
-| Condoms in the restrooms at the Exchange. |
-| Connection. |
-| Core. |
-| Dance Evangelist. |
-| Dancers are like locusts on food, but more destructive. |
-| Dancers whining to organizers about trivial, stupid shit. |
-| Dancers who don't wash their hands after using the restroom. |
-| Dancesturbation. |
-| Dancing ballroom before ballroom was cool. |
-| Dating within the dance scene. |
-| Dating your dance instructor. |
-| Denver: The Final Fusion Exchange. |
-| Dirty Waltz. |
-| Diva dance instructors. |
-| Don't. Fuck. With. Ivy. |
-| Frankenblues. |
-| Guys going after new follows like piranha on a cow. |
-| Hit me like a real Westie. |
-| I'm not backleading, you're just doing it wrong. |
-| Leaving room for Baby Jesus. |
-| Let Jesus find his own dance partner. |
-| LindyXtreme! |
-| Mad Stylin', yo. |
-| Nice shoes... Wanna dance? |
-| No, I don't watch "Dancing with the Stars." |
-| No, sorry, no. |
-| Organizer murder-suicide pacts. |
-| Organizers with the patience of saints. |
-| Package Delivery. |
-| Please. Dance me nice. |
+| Blues Da ci g. |
+| Bo e boy. |
+| Child e  at excha ges. |
+| Clea  the Floo . |
+| Completely d u k o ga ize s. |
+| Co doms i  the  est ooms at the Excha ge. |
+| Co ectio . |
+| Co e. |
+| Da ce Eva gelist. |
+| Da ce s a e like locusts o  food, but mo e dest uctive. |
+| Da ce s whi i g to o ga ize s about t ivial, stupid shit. |
+| Da ce s who do 't wash thei  ha ds afte  usi g the  est oom. |
+| Da cestu batio . |
+| Da ci g ball oom befo e ball oom was cool. |
+| Dati g withi  the da ce sce e. |
+| Dati g you  da ce i st ucto . |
+| De ve : The Fi al Fusio  Excha ge. |
+| Di ty Waltz. |
+| Diva da ce i st ucto s. |
+| Do 't. Fuck. With. Ivy. |
+| F a ke blues. |
+| Guys goi g afte   ew follows like pi a ha o  a cow. |
+| Hit me like a  eal Westie. |
+| I'm  ot backleadi g, you' e just doi g it w o g. |
+| Leavi g  oom fo  Baby Jesus. |
+| Let Jesus fi d his ow  da ce pa t e . |
+| Li dyXt eme! |
+| Mad Styli ', yo. |
+| Nice shoes... Wa a da ce? |
+| No, I do 't watch "Da ci g with the Sta s." |
+| No, so y,  o. |
+| O ga ize  mu de -suicide pacts. |
+| O ga ize s with the patie ce of sai ts. |
+| Package Delive y. |
+| Please. Da ce me  ice. |
 | Polka Kills. |
-| Post-Exchange Flu. |
-| Pungent dancer feet. |
-| Recess dancers fucking in the woods. |
-| Recess dancers who don't understand that, if you're in a hotel, they have these magical things called showers. |
-| Socially awkward but a good dancer. |
-| Sorry but we're not sorry. |
-| Spaghetti arms. |
-| Tango shoes. |
-| That sketchy guy hitting on the inappropriately young girls. |
-| That special sweaty moldy smell of tee-shirts that were danced-in, washed, not dried soon enough, and then danced in again to release that unique bouquet... |
-| The ability to get drunk at altitude after one drink but not stopping. |
-| The clinging stench of that last person you danced with. |
-| The Hangar Dance. |
+| Post-Excha ge Flu. |
+| Pu ge t da ce  feet. |
+| Recess da ce s fucki g i  the woods. |
+| Recess da ce s who do 't u de sta d that, if you' e i  a hotel, they have these magical thi gs called showe s. |
+| Socially awkwa d but a good da ce . |
+| So y but we' e  ot so y. |
+| Spaghetti a ms. |
+| Ta go shoes. |
+| That sketchy guy hitti g o  the i app op iately you g gi ls. |
+| That special sweaty moldy smell of tee-shi ts that we e da ced-i , washed,  ot d ied soo  e ough, a d the  da ced i  agai  to  elease that u ique bouquet... |
+| The ability to get d u k at altitude afte  o e d i k but  ot stoppi g. |
+| The cli gi g ste ch of that last pe so  you da ced with. |
+| The Ha ga  Da ce. |
 | The Hokey-Pokey. |
-| The hunched posture teenage girls get from texting all the time. |
-| The Lambada: The Forbidden Dance. |
-| The Life of Robert Johnson: The Illustrated Children's Book. Note: Robert Johnson was a blues musician who sold his soul to the Devil for guitar-playing skills. |
-| The most convoluted pricing structure ever. |
-| The number of fallen angels who can blues dance on the head of a pin. |
-| The underrepresentation of African-American dancers at Blues events. |
-| The wearing of lingerie as clothing while sweatily dancing. |
-| The wrong kind of gluten-free bread. |
-| Their attractiveness doesn't match their dance ability. |
-| Three-way dances. |
-| Trip hop. |
-| Twerking. |
+| The hu ched postu e tee age gi ls get f om texti g all the time. |
+| The Lambada: The Fo bidde  Da ce. |
+| The Life of Robe t Joh so : The Illust ated Child e 's Book. Note: Robe t Joh so  was a blues musicia  who sold his soul to the Devil fo  guita -playi g skills. |
+| The most co voluted p ici g st uctu e eve . |
+| The  umbe  of falle  a gels who ca  blues da ce o  the head of a pi . |
+| The u de ep ese tatio  of Af ica -Ame ica  da ce s at Blues eve ts. |
+| The wea i g of li ge ie as clothi g while sweatily da ci g. |
+| The w o g ki d of glute -f ee b ead. |
+| Thei  att active ess does 't match thei  da ce ability. |
+| Th ee-way da ces. |
+| T ip hop. |
+| Twe ki g. |
 | Two Step. |
-| Two way objectification. |
-| Ugly Exchange Tee-shirts. |
-| Unshaven female armpits. |
-| Wandering hands. |
+| Two way objectificatio . |
+| Ugly Excha ge Tee-shi ts. |
+| U shave  female a mpits. |
+| Wa de i g ha ds. |
 | Westies. |
-| Wishing that people would look at you as a piece of meat instead of merely dance candy. |
-| "Somebody That I Used To Know" covered by Sting. |
+| Wishi g that people would look at you as a piece of meat i stead of me ely da ce ca dy. |
+| "Somebody That I Used To K ow" cove ed by Sti g. |
 | A cuddle puddle. |
-| A dildo cannon. |
-| A light-green satin corset. |
-| A little bit pregnant. |
-| A meat party in my mouth! |
-| A princess who can kill the dragon on her own, thank you very much. |
-| A sad panda. |
-| A selfie where you can see that you didn't clean up after last night's escapades. |
-| A smaller, blacker vagina. |
-| A special little snowflake. |
-| A willing sheep. |
-| An open relationship status on Facebook. |
-| Androgynous haircuts. |
-| Being absolutely crazy about my therapist. |
-| Being aggressive-aggressive. It's like passive-aggressive, but without the "passive." |
-| Being disappointed when your date drops their pants. |
-| Being mad stylin', yo. |
-| Bizarre acapella renditions of popular songs. |
-| Bombing the homeless. |
-| Burning Man. |
-| Carlos Chang's Fine Italian Cuisine. |
-| Carmen Sandiego's clitoris. |
-| Clitter™! Glitter for your vagina!* |
-| Coffee so strong that it can be used for vision quests. |
-| Comfy sweats and premium ice cream. |
-| Cranky Old Man 2: Get Off My Lawn!™ New from Capcom Games! |
-| Creeper. |
-| Cross-generational sex talk. |
+| A dildo ca o . |
+| A light-g ee  sati  co set. |
+| A little bit p eg a t. |
+| A meat pa ty i  my mouth! |
+| A p i cess who ca  kill the d ago  o  he  ow , tha k you ve y much. |
+| A sad pa da. |
+| A selfie whe e you ca  see that you did 't clea  up afte  last  ight's escapades. |
+| A smalle , blacke  vagi a. |
+| A special little s owflake. |
+| A willi g sheep. |
+| A  ope   elatio ship status o  Facebook. |
+| A d ogy ous hai cuts. |
+| Bei g absolutely c azy about my the apist. |
+| Bei g agg essive-agg essive. It's like passive-agg essive, but without the "passive." |
+| Bei g disappoi ted whe  you  date d ops thei  pa ts. |
+| Bei g mad styli ', yo. |
+| Biza e acapella  e ditio s of popula  so gs. |
+| Bombi g the homeless. |
+| Bu i g Ma . |
+| Ca los Cha g's Fi e Italia  Cuisi e. |
+| Ca me  Sa diego's clito is. |
+| Clitte ™! Glitte  fo  you  vagi a!* |
+| Coffee so st o g that it ca  be used fo  visio  quests. |
+| Comfy sweats a d p emium ice c eam. |
+| C a ky Old Ma  2: Get Off My Law !™ New f om Capcom Games! |
+| C eepe . |
+| C oss-ge e atio al sex talk. |
 | Daiya cheese.* |
-| Defenestration.* |
-| Dihydrogen Monoxide.* |
-| Discovering that he's hung like a lightswitch. |
-| Embarrassing bridal shower gifts. |
-| Expired memes. |
-| Facebook friend-purging. |
-| Failing the Bechtel Test* in real life. |
-| Fashion advice from Amazon's homepage. |
-| Firecracker chocolate.* |
-| Georgia O'Keeffe. |
-| Gingers don't have souls. |
-| Going out on a date with a guy who might be 6 feet tall - but only if he's wearing heels. |
-| Happy Family Memories.* |
-| Hearing neighbors having sex... and not finding her believable. |
+| Defe est atio .* |
+| Dihyd oge  Mo oxide.* |
+| Discove i g that he's hu g like a lightswitch. |
+| Emba assi g b idal showe  gifts. |
+| Expi ed memes. |
+| Facebook f ie d-pu gi g. |
+| Faili g the Bechtel Test* i   eal life. |
+| Fashio  advice f om Amazo 's homepage. |
+| Fi ec acke  chocolate.* |
+| Geo gia O'Keeffe. |
+| Gi ge s do 't have souls. |
+| Goi g out o  a date with a guy who might be 6 feet tall - but o ly if he's wea i g heels. |
+| Happy Family Memo ies.* |
+| Hea i g  eighbo s havi g sex... a d  ot fi di g he  believable. |
 | Heavy flow. |
-| High powered jacuzzi jets. |
-| Hot, left-handed, women geeks. |
-| Identity theft. |
-| Illegal downloading. |
-| Instagramming pictures of food. |
-| Intense, grab your ankles vomiting. |
-| Introducing yourself after the dance. |
-| Just remember that Jesus Loves You. |
+| High powe ed jacuzzi jets. |
+| Hot, left-ha ded, wome  geeks. |
+| Ide tity theft. |
+| Illegal dow loadi g. |
+| I stag ammi g pictu es of food. |
+| I te se, g ab you  a kles vomiti g. |
+| I t oduci g you self afte  the da ce. |
+| Just  emembe  that Jesus Loves You. |
 | Just to see how it feels... |
-| Kermit the frog porking out. |
+| Ke mit the f og po ki g out. |
 | Misplaced WMDs. |
-| Missing the bowl. |
-| Morbidly obese, 9-year-old children with high cholesterol. |
+| Missi g the bowl. |
+| Mo bidly obese, 9-yea -old child e  with high choleste ol. |
 | Not labia. YAY-bia! |
-| Not remembering the difference between Second-Wave and Third-Wave feminism. |
-| Paint fumes in an enclosed space. |
-| Portland. |
-| President Hillary enjoying a male intern. |
-| Puppy breath. |
-| Russian homophobia. |
-| Sand in the damnedest places. |
-| Sarah Palin at Toastmasters™. |
-| Self-righteous hipsters. |
-| Single-payer healthcare like the rest of the civilized world. |
-| Sneezing while wearing the Diva Cup™ and a skirt with no underwear.* |
+| Not  emembe i g the diffe e ce betwee  Seco d-Wave a d Thi d-Wave femi ism. |
+| Pai t fumes i  a  e closed space. |
+| Po tla d. |
+| P eside t Hilla y e joyi g a male i te . |
+| Puppy b eath. |
+| Russia  homophobia. |
+| Sa d i  the dam edest places. |
+| Sa ah Pali  at Toastmaste s™. |
+| Self- ighteous hipste s. |
+| Si gle-paye  healthca e like the  est of the civilized wo ld. |
+| S eezi g while wea i g the Diva Cup™ a d a ski t with  o u de wea .* |
 | Soy Milk. |
 | Stupid Cosmo Sex Tips. |
-| Talking with your girlfriends about his "limitations." |
+| Talki g with you  gi lf ie ds about his "limitatio s." |
 | Tasty, tasty cheese. |
-| That sounds like my first time. |
-| The dumpster behind the supermarket. |
+| That sou ds like my fi st time. |
+| The dumpste  behi d the supe ma ket. |
 | The Fox News Team. |
-| The gayest straight man you know. |
-| The horrifying realization that Jesus wasn't white. Or capitalist. Or American. |
-| The hunt for the wilderpeople |
-| The NuvaRing™.* |
-| The world's angriest ginger. |
-| Thinking, "I'm missing 'Big Bang Theory' for this?" |
-| Tonight's special - Stuffed avocado. |
-| Tori Amos' new album. |
-| Turtle sex. |
-| Unbelievably hot smart women. |
-| Volleyball shorts. |
-| Wearing jeans so you don't have to shave. |
-| Wiccan prayer in school. |
-| You and your best friend simultaneously flashing the hand signal for "abortion" at the first sound of a baby crying.* |
-| Your asshole inner voice. |
-| "Oh dear God, coffee!" |
-| "Useless, yerk-toting, Frisbee-chucking cheeba-monkeys" |
-| A college fratboy. |
-| A dream where you see yourself standing in sort of sun-god robes on a pyramid with a thousand naked women screaming and throwing little pickles at you. |
-| A Galapagos Marine Iguana. |
-| A giant gerbil shoving a Hollywood celebrity up his ass. |
-| A horny unicorn. |
-| A pain in my skull like my sinuses were cracking. |
-| Awkward wedding gifts. |
+| The gayest st aight ma  you k ow. |
+| The ho ifyi g  ealizatio  that Jesus was 't white. O  capitalist. O  Ame ica . |
+| The hu t fo  the wilde people |
+| The NuvaRi g™.* |
+| The wo ld's a g iest gi ge . |
+| Thi ki g, "I'm missi g 'Big Ba g Theo y' fo  this?" |
+| To ight's special - Stuffed avocado. |
+| To i Amos'  ew album. |
+| Tu tle sex. |
+| U believably hot sma t wome . |
+| Volleyball sho ts. |
+| Wea i g jea s so you do 't have to shave. |
+| Wicca  p aye  i  school. |
+| You a d you  best f ie d simulta eously flashi g the ha d sig al fo  "abo tio " at the fi st sou d of a baby c yi g.* |
+| You  asshole i e  voice. |
+| "Oh dea  God, coffee!" |
+| "Useless, ye k-toti g, F isbee-chucki g cheeba-mo keys" |
+| A college f atboy. |
+| A d eam whe e you see you self sta di g i  so t of su -god  obes o  a py amid with a thousa d  aked wome  sc eami g a d th owi g little pickles at you. |
+| A Galapagos Ma i e Igua a. |
+| A gia t ge bil shovi g a Hollywood celeb ity up his ass. |
+| A ho y u ico . |
+| A pai  i  my skull like my si uses we e c acki g. |
+| Awkwa d weddi g gifts. |
 | Babe, Dude Is CRAZY! |
-| Bisexual Asian Studies. |
-| Brain bleach. |
-| Burning Flipside. |
-| Buying slutty clothes from "Forever 21." |
-| Buzzword Bingo. |
-| Captain Tightpants. |
-| Carpal tunnel syndrome. |
-| Cassandra's day-planner. |
-| Cedar Fever Season. |
-| Cerberus. |
-| Don't be that guy. |
-| Drinking out of the milk carton. |
+| Bisexual Asia  Studies. |
+| B ai  bleach. |
+| Bu i g Flipside. |
+| Buyi g slutty clothes f om "Fo eve  21." |
+| Buzzwo d Bi go. |
+| Captai  Tightpa ts. |
+| Ca pal tu el sy d ome. |
+| Cassa d a's day-pla e . |
+| Ceda  Feve  Seaso . |
+| Ce be us. |
+| Do 't be that guy. |
+| D i ki g out of the milk ca to . |
 | Dude, Bitch Is CRAZY! |
 | Felicia Day. |
-| Fellating The Ghost. |
-| Florida. |
-| Fuck it. I don't know. |
-| Fucking In Tents. |
-| Girl pilots killing Nazis. |
-| Harry Dresden. |
+| Fellati g The Ghost. |
+| Flo ida. |
+| Fuck it. I do 't k ow. |
+| Fucki g I  Te ts. |
+| Gi l pilots killi g Nazis. |
+| Ha y D esde . |
 | He's still dead. |
 | Hot. But WEIRD... But HOT... |
-| I have a shitty hand |
-| ID-10-t Error. |
-| Jenny McCarthy's son slowly and painfully dying from polio. |
+| I have a shitty ha d |
+| ID-10-t E o . |
+| Je y McCa thy's so  slowly a d pai fully dyi g f om polio. |
 | Kaylee. |
-| Keeping grandma's corpse in the attic to continue collecting her Social Security benefits. |
-| Little Black Dress with thigh-highs. |
-| Magic underwear. |
-| Marketing weasels. |
-| Masturbating and crying at the same time. |
-| Michelle Bachmann. |
-| Mutant hamster races. |
-| My censor chip burning out. |
-| Naked in a hot tub full of Lime Jell-O™. |
-| Neck down alopecia. |
-| No reason. |
-| Orphan Meat. |
-| Patrick Stewart's glorious bald head. |
+| Keepi g g a dma's co pse i  the attic to co ti ue collecti g he  Social Secu ity be efits. |
+| Little Black D ess with thigh-highs. |
+| Magic u de wea . |
+| Ma keti g weasels. |
+| Mastu bati g a d c yi g at the same time. |
+| Michelle Bachma . |
+| Muta t hamste   aces. |
+| My ce so  chip bu i g out. |
+| Naked i  a hot tub full of Lime Jell-O™. |
+| Neck dow  alopecia. |
+| No  easo . |
+| O pha  Meat. |
+| Pat ick Stewa t's glo ious bald head. |
 | Pickleback. |
-| Pope Frank. |
+| Pope F a k. |
 | QUINTUPLETS!!!!! |
-| Radio-controlled shock collars. |
-| Random Technobabble. |
-| Random, pretentious reference to Greek Mythology. |
-| Raw Face Is Just Gross. |
-| Remember the Angelfish. Just float. |
-| Rick Santorum's lackluster endorsement. |
-| Roy Orbison Wrapped in cling film. |
-| Sentient calcium. |
-| Shooting people with "duckface." |
-| Spam, Spam, Spam, baked beans, and Spam. |
+| Radio-co t olled shock colla s. |
+| Ra dom Tech obabble. |
+| Ra dom, p ete tious  efe e ce to G eek Mythology. |
+| Raw Face Is Just G oss. |
+| Remembe  the A gelfish. Just float. |
+| Rick Sa to um's lackluste  e do seme t. |
+| Roy O biso  W apped i  cli g film. |
+| Se tie t calcium. |
+| Shooti g people with "duckface." |
+| Spam, Spam, Spam, baked bea s, a d Spam. |
 | Spoo. |
-| Squirrel! |
-| Steve Irwin in a singles bar. |
-| Syfy presents... |
-| Ted Cruz Crazy. |
-| That damn Total Recall remake. |
-| That time you got drunk and married a prostitute in Vegas. |
-| That's how we got into this mess. |
-| The "magical condom" that disappeared during sex. |
-| The Kool-Aid Man. |
-| The Man. |
-| The police-chief's underage twin daughters. |
-| The psychological damage caused to women who believe "Twilight" demonstrates a healthy relationship. |
-| The Sword of Damocles |
-| The Three Bimbos of the Apocalypse. |
-| The trump card. |
-| Those damn Drow elves. |
-| Trekkies in Captain's uniforms who could never pass the Starfleet Physical. |
-| Trickle-down Economics. |
-| Using 4Chan for parenting advice. |
-| Using custom CAH cards as an adjunct to therapy and medication. |
-| Vaginismus. |
-| Violent, but thorough. |
-| Waking up in a tub full of ice with your kidneys missing. |
-| Walking in single file to hide their numbers. |
+| Squi el! |
+| Steve I wi  i  a si gles ba . |
+| Syfy p ese ts... |
+| Ted C uz C azy. |
+| That dam  Total Recall  emake. |
+| That time you got d u k a d ma ied a p ostitute i  Vegas. |
+| That's how we got i to this mess. |
+| The "magical co dom" that disappea ed du i g sex. |
+| The Kool-Aid Ma . |
+| The Ma . |
+| The police-chief's u de age twi  daughte s. |
+| The psychological damage caused to wome  who believe "Twilight" demo st ates a healthy  elatio ship. |
+| The Swo d of Damocles |
+| The Th ee Bimbos of the Apocalypse. |
+| The t ump ca d. |
+| Those dam  D ow elves. |
+| T ekkies i  Captai 's u ifo ms who could  eve  pass the Sta fleet Physical. |
+| T ickle-dow  Eco omics. |
+| Usi g 4Cha  fo  pa e ti g advice. |
+| Usi g custom CAH ca ds as a  adju ct to the apy a d medicatio . |
+| Vagi ismus. |
+| Viole t, but tho ough. |
+| Waki g up i  a tub full of ice with you  kid eys missi g. |
+| Walki g i  si gle file to hide thei   umbe s. |
 | Wibbly Wobbly Timey Wimey. |
-| World of Floorcraft. |
-| Your inner voices are assholes. |
-| "Knock Knock, Motherfucker." |
-| "Working" from home. |
-| (1/2 * your age) + 7 |
-| 15 wild badgers living in my trousers. |
-| 3/4th ounce of bitters, another 3/4th ounce of bitters, yet another 3/4th ounce of bitters, 3 ounces of orange bitters, 3 ounces of gin in a tall glass over ice. Garnish with an orange slice and tears. |
-| A Coffee Break For Sisyphus. |
-| A solution in search of a problem. |
+| Wo ld of Floo c aft. |
+| You  i e  voices a e assholes. |
+| "K ock K ock, Mothe fucke ." |
+| "Wo ki g" f om home. |
+| (1/2 * you  age) + 7 |
+| 15 wild badge s livi g i  my t ouse s. |
+| 3/4th ou ce of bitte s, a othe  3/4th ou ce of bitte s, yet a othe  3/4th ou ce of bitte s, 3 ou ces of o a ge bitte s, 3 ou ces of gi  i  a tall glass ove  ice. Ga ish with a  o a ge slice a d tea s. |
+| A Coffee B eak Fo  Sisyphus. |
+| A solutio  i  sea ch of a p oblem. |
 | A towel. |
-| A White Panel Van with a Sign That Says "Free Candy." |
-| Action Nerd. |
-| All natural. |
-| Bad Girl Shenanigans. |
+| A White Pa el Va  with a Sig  That Says "F ee Ca dy." |
+| Actio  Ne d. |
+| All  atu al. |
+| Bad Gi l She a iga s. |
 | Bath Salts. |
 | Big Data. |
-| Boat Nectar. |
+| Boat Necta . |
 | Bow Ties. |
-| Bryan Adams being raped by a moose. |
-| Cake Is The Only Thing That Matters. |
+| B ya  Adams bei g  aped by a moose. |
+| Cake Is The O ly Thi g That Matte s. |
 | Camp Cosmos. |
-| Can't Stop The Signal. |
-| Captain Jack Harkness. |
-| Clinical Depression. |
-| Consumer whore. |
+| Ca 't Stop The Sig al. |
+| Captai  Jack Ha k ess. |
+| Cli ical Dep essio . |
+| Co sume  who e. |
 | Cthulhu. |
-| Die in a fire. |
-| Disposable Shitboard Bookcases from IKEA. |
-| Do Not Bounce. |
-| Do you want a Nutter Butter? They're Delicious! |
-| Don't Blink. |
-| Ending Women's Suffrage. |
-| For the love of coffee! |
-| God Less America |
+| Die i  a fi e. |
+| Disposable Shitboa d Bookcases f om IKEA. |
+| Do Not Bou ce. |
+| Do you wa t a Nutte  Butte ? They' e Delicious! |
+| Do 't Bli k. |
+| E di g Wome 's Suff age. |
+| Fo  the love of coffee! |
+| God Less Ame ica |
 | God of Cake. |
-| Groped By An Angel. |
-| I would lick that for hours. |
-| Inappropriately handling your ex-girlfriend's underthings before returning them to her. |
-| Invisible Pink Unicorn. |
-| It's Frothy! |
-| Jalapenos as a basic food group. |
-| Just Glue Some Gears On It |
-| Just turned 18. |
-| Kenny Loggins can read minds. |
-| Laundry day. |
+| G oped By A  A gel. |
+| I would lick that fo  hou s. |
+| I app op iately ha dli g you  ex-gi lf ie d's u de thi gs befo e  etu i g them to he . |
+| I visible Pi k U ico . |
+| It's F othy! |
+| Jalape os as a basic food g oup. |
+| Just Glue Some Gea s O  It |
+| Just tu ed 18. |
+| Ke y Loggi s ca   ead mi ds. |
+| Lau d y day. |
 | Mezcal of the Gods |
-| Mid-Air Birth. |
-| Nipple hair. |
-| No results found. |
-| Not feeling... fresh? |
-| Not Pro-Choice, actively Pro-Abortion. |
-| Organic. |
-| Out of your league. |
-| Oxygen Thieves. |
-| Peace, love, and surf naked. |
+| Mid-Ai  Bi th. |
+| Nipple hai . |
+| No  esults fou d. |
+| Not feeli g... f esh? |
+| Not P o-Choice, actively P o-Abo tio . |
+| O ga ic. |
+| Out of you  league. |
+| Oxyge  Thieves. |
+| Peace, love, a d su f  aked. |
 | Plot Twist! |
-| Poser in a parka. |
-| Psychiatrists Without Borders. |
-| Raccoons With Lightsabers. |
-| Red Shirts. |
+| Pose  i  a pa ka. |
+| Psychiat ists Without Bo de s. |
+| Raccoo s With Lightsabe s. |
+| Red Shi ts. |
 | Rule 34. |
 | Sapiosexual. |
-| Screaming and Then Silence. |
-| Setting an elderly relative adrift on an ice flow. |
-| Shiny Whore Fund. |
-| Shiny! |
+| Sc eami g a d The  Sile ce. |
+| Setti g a  elde ly  elative ad ift o  a  ice flow. |
+| Shi y Who e Fu d. |
+| Shi y! |
 | Shoe Slut. |
-| So-called "Nice Guys" and entitlement issues. |
-| Some douchebag yelling "More Cowbell." |
-| Some of God's Tears. |
-| Sparkadelica. |
-| Sparkle Pony. |
-| Spaying and neutering irresponsible pet owners. |
-| Stage troll |
-| Steampunk. |
-| Stem cells aren't people. Soylent Green is people. |
-| Strip Twister. |
+| So-called "Nice Guys" a d e titleme t issues. |
+| Some douchebag yelli g "Mo e Cowbell." |
+| Some of God's Tea s. |
+| Spa kadelica. |
+| Spa kle Po y. |
+| Spayi g a d  eute i g i espo sible pet ow e s. |
+| Stage t oll |
+| Steampu k. |
+| Stem cells a e 't people. Soyle t G ee  is people. |
+| St ip Twiste . |
 | That kills people! |
 | The Alot. |
-| The Full-Size White Pick-Up Truck - The Official Vehicle Of The Texas Asshole Ten Years Running. |
-| The Helvetica Scenario. |
-| The instant downgrade of attractiveness of someone who says, "I don't read." |
-| The Many-Angled Ones. |
+| The Full-Size White Pick-Up T uck - The Official Vehicle Of The Texas Asshole Te  Yea s Ru i g. |
+| The Helvetica Sce a io. |
+| The i sta t dow g ade of att active ess of someo e who says, "I do 't  ead." |
+| The Ma y-A gled O es. |
 | The smell of sex. |
-| Thin Mints. |
-| Unitarian Jihad. |
-| Vagina Dentata. |
+| Thi  Mi ts. |
+| U ita ia  Jihad. |
+| Vagi a De tata. |
 | Vegemite. |
-| Veni, Vidi, Venti. (I came, I saw, I had a large coffee). |
+| Ve i, Vidi, Ve ti. (I came, I saw, I had a la ge coffee). |
 | Wombat Nookie. |
-| You Can Do It! |
+| You Ca  Do It! |
 | You wish. |
 
 |Total amount: 547|

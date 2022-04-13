@@ -151,468 +151,468 @@ Answers amount: 460
 |---|
 
 ### Answers
-| Question |
+| Answers |
 |---|
-| A bad hair day. |
-| A bad report card. |
-| A big, red wet-looking zit on your nose. |
-| A broken Xbox®. |
-| A cage filled with hairless guinea pigs. |
-| A carpool full of kids with bad body odor. |
-| A casual sprinkle of pee on the toilet seat. |
-| A collection of haunted action figures that come to life at night. |
-| A doctor with a gigantic needle. |
-| A fear of hieghts when climbing a rock wall. |
-| A head swarming with lice. |
+| A bad hai  day. |
+| A bad  epo t ca d. |
+| A big,  ed wet-looki g zit o  you   ose. |
+| A b oke  Xbox®. |
+| A cage filled with hai less gui ea pigs. |
+| A ca pool full of kids with bad body odo . |
+| A casual sp i kle of pee o  the toilet seat. |
+| A collectio  of hau ted actio  figu es that come to life at  ight. |
+| A docto  with a giga tic  eedle. |
+| A fea  of hieghts whe  climbi g a  ock wall. |
+| A head swa mi g with lice. |
 | A hockey puck to the face. |
-| A house of mirrors filled with creepy clowns. |
+| A house of mi o s filled with c eepy clow s. |
 | A lap full of vomit. |
-| A laser light show. |
-| A leg cast in summer. |
-| A mad, bad duck in a petting zoo. |
-| A million Likes on Facebook®. |
+| A lase  light show. |
+| A leg cast i  summe . |
+| A mad, bad duck i  a petti g zoo. |
+| A millio  Likes o  Facebook®. |
 | A misplaced backpack. |
-| A missing hamster. |
-| A mouth full of sea water. |
-| A school solo with zero applause. |
-| A soccer ball to the crotch. |
-| A specially trained robot that tortures annoying family members. |
-| A star on the Hollywood Walk of Fame. |
-| A Star Wars® backpack with matching lunch box and undies. |
-| A Superman™ cape. |
-| A talking dog. |
-| A week of nonstop cartoon marathons. |
-| A whole lotta nothing. |
-| Abduction by aliens. |
-| Accidentally dropping an iPhone® in the toilet. |
-| Allergies that cause your face to swell up like a balloon. |
-| Always losing at Hangman. |
-| An amateur fireworks show that ends badly. |
-| An army of Barbie® dolls chasing you in the night. |
-| An epic lack of artistic talent. |
-| An epic tantrum full of swear words. |
-| An itchy butt during a spelling bee. |
-| Answering my parents with a grunt. |
+| A missi g hamste . |
+| A mouth full of sea wate . |
+| A school solo with ze o applause. |
+| A socce  ball to the c otch. |
+| A specially t ai ed  obot that to tu es a oyi g family membe s. |
+| A sta  o  the Hollywood Walk of Fame. |
+| A Sta  Wa s® backpack with matchi g lu ch box a d u dies. |
+| A Supe ma ™ cape. |
+| A talki g dog. |
+| A week of  o stop ca too  ma atho s. |
+| A whole lotta  othi g. |
+| Abductio  by alie s. |
+| Accide tally d oppi g a  iPho e® i  the toilet. |
+| Alle gies that cause you  face to swell up like a balloo . |
+| Always losi g at Ha gma . |
+| A  amateu  fi ewo ks show that e ds badly. |
+| A  a my of Ba bie® dolls chasi g you i  the  ight. |
+| A  epic lack of a tistic tale t. |
+| A  epic ta t um full of swea  wo ds. |
+| A  itchy butt du i g a spelli g bee. |
+| A swe i g my pa e ts with a g u t. |
 | Apps that cost too much. |
-| Arcade games. |
-| Awkward family photos posted online. |
-| Barack Obama's birth certificate. |
-| Beat It by Michael Jackson. |
-| Becoming a Kung Fu master. |
-| Becoming a YouTube™ star. |
-| Becoming famous. |
-| Being a know-it-all. |
-| Being angry all the time. |
-| Being forced to take a nap. |
-| Being forced to watch Food Network® all night with your parents. |
-| Being ignored. |
-| Being really unprepared for Picture Day. |
-| Beyonce's Superbowl performance. |
-| Biting your toenails. |
-| Boogers that slide down your throat when you sniff. |
-| Boogie® Boards. |
-| Book reports. |
-| Bowling. |
-| Break dancing. |
-| Breaking out in hives. |
-| Breaking out in song (loudly). |
-| Bringing sword duels back. |
-| Burping a whole sentence. |
-| Burping ballerinas dancing in your dreams. |
-| Butt acne. |
-| Canned tuna with extra dolphin. |
-| Cartoon Network®. |
-| Cat hair in my quesadilla. |
-| Chocolate chip pancakes with happy faces in whipped cream. |
+| A cade games. |
+| Awkwa d family photos posted o li e. |
+| Ba ack Obama's bi th ce tificate. |
+| Beat It by Michael Jackso . |
+| Becomi g a Ku g Fu maste . |
+| Becomi g a YouTube™ sta . |
+| Becomi g famous. |
+| Bei g a k ow-it-all. |
+| Bei g a g y all the time. |
+| Bei g fo ced to take a  ap. |
+| Bei g fo ced to watch Food Netwo k® all  ight with you  pa e ts. |
+| Bei g ig o ed. |
+| Bei g  eally u p epa ed fo  Pictu e Day. |
+| Beyo ce's Supe bowl pe fo ma ce. |
+| Biti g you  toe ails. |
+| Booge s that slide dow  you  th oat whe  you s iff. |
+| Boogie® Boa ds. |
+| Book  epo ts. |
+| Bowli g. |
+| B eak da ci g. |
+| B eaki g out i  hives. |
+| B eaki g out i  so g (loudly). |
+| B i gi g swo d duels back. |
+| Bu pi g a whole se te ce. |
+| Bu pi g balle i as da ci g i  you  d eams. |
+| Butt ac e. |
+| Ca ed tu a with ext a dolphi . |
+| Ca too  Netwo k®. |
+| Cat hai  i  my quesadilla. |
+| Chocolate chip pa cakes with happy faces i  whipped c eam. |
 | Chuck E. Cheese's®. |
-| Cleaning my room for the first time all year. |
-| Climbing a tree. |
-| Coaches in short shorts. |
-| Cold, hard cash. |
-| Copying homework. |
-| Coughing up green phlegm. |
-| Cranky, sleep-deprived school principals. |
-| Craving popularity. |
-| Crazy monster masks. |
-| Crumbs from the dessert I snuck into my room last year. |
-| Crushing on a lunch lady. |
-| Crying until your eyes turn red and everyone notices. |
+| Clea i g my  oom fo  the fi st time all yea . |
+| Climbi g a t ee. |
+| Coaches i  sho t sho ts. |
+| Cold, ha d cash. |
+| Copyi g homewo k. |
+| Coughi g up g ee  phlegm. |
+| C a ky, sleep-dep ived school p i cipals. |
+| C avi g popula ity. |
+| C azy mo ste  masks. |
+| C umbs f om the desse t I s uck i to my  oom last yea . |
+| C ushi g o  a lu ch lady. |
+| C yi g u til you  eyes tu   ed a d eve yo e  otices. |
 | Cupcakes that taste like dog biscuits. |
-| Curse words. |
-| Daydreaming. |
-| Dirty, long fingernails. |
-| Disney® TV stars. |
-| Dissecting frogs. |
-| Doing the "Wop, Wop, Gangnam Style" dance in public. |
-| Doing the Funky Chicken Dance. |
-| Dreaming I left the house without my underwear on. |
-| Drool on a pillow. |
-| Ear hair. |
-| Eating boogers. |
-| Eating Lucky Charms® daily. |
-| Emoticons. |
-| Endless car rides. |
-| Endless roller coaster lines. |
-| Epic explosions in inappropriate places. |
-| Everyone finding out that your secret wish is to be a Viking. |
-| Extremely tight gym shorts. |
+| Cu se wo ds. |
+| Dayd eami g. |
+| Di ty, lo g fi ge ails. |
+| Dis ey® TV sta s. |
+| Dissecti g f ogs. |
+| Doi g the "Wop, Wop, Ga g am Style" da ce i  public. |
+| Doi g the Fu ky Chicke  Da ce. |
+| D eami g I left the house without my u de wea  o . |
+| D ool o  a pillow. |
+| Ea  hai . |
+| Eati g booge s. |
+| Eati g Lucky Cha ms® daily. |
+| Emotico s. |
+| E dless ca   ides. |
+| E dless  olle  coaste  li es. |
+| Epic explosio s i  i app op iate places. |
+| Eve yo e fi di g out that you  sec et wish is to be a Viki g. |
+| Ext emely tight gym sho ts. |
 | Facebook®. |
-| Failing to get rid of bad karma |
-| Faking a fever. |
-| Faking good manners. |
-| Family vacations. |
-| Farting, moving away, and acting casual. |
-| Farts that smell like your last meal. |
-| Farts that stay in your pants. |
-| Fashion models falling on their faces on the runway. |
-| Fast food mystery meat. |
-| Feeling too old for a bouncy house, but jumping anyway. |
-| Finding a worm in your food. |
-| Finding an ancient banana under the front seat. |
-| Finding nasty stuff at the bottom of a borrowed sleeping bag. |
-| Finding out your babysitter really is a vampire. |
-| Finding six cavitites in one dentist visit. |
-| Fingernails on a chalkboard. |
-| Forgetting your parent's iTunes® password. |
-| Friends who snore as loud as your Grandpa. |
-| Funky armpits. |
-| Gassy unicorns. |
-| Getting a time-out at age 15. |
-| Getting banned from screen time for three weeks. |
-| Getting busted for passing notes in class. |
-| Getting busted telling a lie. |
-| Getting caught with your zipper open in front of your biggest crush. |
-| Getting grounded until you're 25. |
-| Getting laughing gas at the dentist's office. |
-| Getting picked last for a sports team (again). |
-| Getting stuck sitting next to THE MOST annoyingly chatty kid on the class field trip. |
-| Getting tickled until you fart. |
-| Getting your iPod® confiscated. |
-| Giving Grandma rabbit ears in the family photo. |
-| Giving yourself a haircut. |
-| Going camping without bug spray. |
-| Going on tour as a Guitar Hero® champ. |
+| Faili g to get  id of bad ka ma |
+| Faki g a feve . |
+| Faki g good ma e s. |
+| Family vacatio s. |
+| Fa ti g, movi g away, a d acti g casual. |
+| Fa ts that smell like you  last meal. |
+| Fa ts that stay i  you  pa ts. |
+| Fashio  models falli g o  thei  faces o  the  u way. |
+| Fast food myste y meat. |
+| Feeli g too old fo  a bou cy house, but jumpi g a yway. |
+| Fi di g a wo m i  you  food. |
+| Fi di g a  a cie t ba a a u de  the f o t seat. |
+| Fi di g  asty stuff at the bottom of a bo owed sleepi g bag. |
+| Fi di g out you  babysitte   eally is a vampi e. |
+| Fi di g six cavitites i  o e de tist visit. |
+| Fi ge ails o  a chalkboa d. |
+| Fo getti g you  pa e t's iTu es® passwo d. |
+| F ie ds who s o e as loud as you  G a dpa. |
+| Fu ky a mpits. |
+| Gassy u ico s. |
+| Getti g a time-out at age 15. |
+| Getti g ba ed f om sc ee  time fo  th ee weeks. |
+| Getti g busted fo  passi g  otes i  class. |
+| Getti g busted telli g a lie. |
+| Getti g caught with you  zippe  ope  i  f o t of you  biggest c ush. |
+| Getti g g ou ded u til you' e 25. |
+| Getti g laughi g gas at the de tist's office. |
+| Getti g picked last fo  a spo ts team (agai ). |
+| Getti g stuck sitti g  ext to THE MOST a oyi gly chatty kid o  the class field t ip. |
+| Getti g tickled u til you fa t. |
+| Getti g you  iPod® co fiscated. |
+| Givi g G a dma  abbit ea s i  the family photo. |
+| Givi g you self a hai cut. |
+| Goi g campi g without bug sp ay. |
+| Goi g o  tou  as a Guita  He o® champ. |
 | Google. |
-| Grandma's not-so-great cooking. |
-| Grandpa's bald spot. |
-| Greasy hair. |
-| Green smoothies that look and taste like diahrrea. |
-| Growing a mole with one black hair on your chin. |
-| Grownups. |
-| Gymnastic leotards that slide up your butt. |
-| Hacking my parent's password. |
-| Hairy armpits. |
-| Happily ever after endings. |
-| Haunted houses. |
-| Having only five minutes left of computer time. |
-| Having your embarrassing moments posted on YouTube™. |
+| G a dma's  ot-so-g eat cooki g. |
+| G a dpa's bald spot. |
+| G easy hai . |
+| G ee  smoothies that look a d taste like diah ea. |
+| G owi g a mole with o e black hai  o  you  chi . |
+| G ow ups. |
+| Gym astic leota ds that slide up you  butt. |
+| Hacki g my pa e t's passwo d. |
+| Hai y a mpits. |
+| Happily eve  afte  e di gs. |
+| Hau ted houses. |
+| Havi g o ly five mi utes left of compute  time. |
+| Havi g you  emba assi g mome ts posted o  YouTube™. |
 | Hawaii. |
-| Horseback riding while wearing a tutu. |
+| Ho seback  idi g while wea i g a tutu. |
 | Hot Cheetos®. |
-| Hot Girls. |
+| Hot Gi ls. |
 | Hot guys. |
-| Hugging it out. |
-| Hugs from parents on the schoolyard. |
-| Hysterical laughter fueled by a massive sugar high. |
+| Huggi g it out. |
+| Hugs f om pa e ts o  the schoolya d. |
+| Hyste ical laughte  fueled by a massive suga  high. |
 | Ice. |
-| Inappropriate rap lyrics. |
-| Infected private parts. |
-| Inhaling helium ballons and singing, "Twinkle, Twinkle Little Star." |
-| Itchy mosquito bites where the sun don't shine. |
-| Japanese erasers. |
-| Jerks. |
-| Kids that eat glue after kindergarten. |
-| Kissing the teacher's butt to get a better grade. |
-| Laser Tag. |
-| Laughing until you pee in your pants. |
-| Lemon-yellow teeth. |
+| I app op iate  ap ly ics. |
+| I fected p ivate pa ts. |
+| I hali g helium ballo s a d si gi g, "Twi kle, Twi kle Little Sta ." |
+| Itchy mosquito bites whe e the su  do 't shi e. |
+| Japa ese e ase s. |
+| Je ks. |
+| Kids that eat glue afte  ki de ga te . |
+| Kissi g the teache 's butt to get a bette  g ade. |
+| Lase  Tag. |
+| Laughi g u til you pee i  you  pa ts. |
+| Lemo -yellow teeth. |
 | Lights out (bedtime). |
-| Littering. |
-| Locking eyes with a nose picker at a stoplight. |
-| Losing privileges. |
+| Litte i g. |
+| Locki g eyes with a  ose picke  at a stoplight. |
+| Losi g p ivileges. |
 | Lots of zits. |
-| Loving the smell of your own farts and thinking everyone else should too. |
+| Lovi g the smell of you  ow  fa ts a d thi ki g eve yo e else should too. |
 | Maggots. |
-| Magicians with boring tricks. |
-| Making "bubbles" in the jacuzzi. |
-| Making the world a better place. |
-| Mean teachers. |
-| Minivans with TVs. |
-| Misplacing homework. |
-| Moans coming from the attic. |
-| Moldy Friday lunch found on Monday. |
-| Morning eye boogers. |
-| Mouth-breathers. |
-| Multivitamin gummy bears. |
-| My best friend's crush. |
-| My evil dentist. |
-| My Fairy Godmother. |
-| My parents reading my texts. |
-| My psycho math teacher. |
-| Neat freaks. |
-| Needing privacy. |
+| Magicia s with bo i g t icks. |
+| Maki g "bubbles" i  the jacuzzi. |
+| Maki g the wo ld a bette  place. |
+| Mea  teache s. |
+| Mi iva s with TVs. |
+| Misplaci g homewo k. |
+| Moa s comi g f om the attic. |
+| Moldy F iday lu ch fou d o  Mo day. |
+| Mo i g eye booge s. |
+| Mouth-b eathe s. |
+| Multivitami  gummy bea s. |
+| My best f ie d's c ush. |
+| My evil de tist. |
+| My Fai y Godmothe . |
+| My pa e ts  eadi g my texts. |
+| My psycho math teache . |
+| Neat f eaks. |
+| Needi g p ivacy. |
 | Netflix®. |
-| Never finding your stuff in the Lost and Found. |
-| Never-ending bloody noses. |
-| Not caring. At all. |
-| Not knowing when to shut up. |
-| Not making a single photo in the yearbook. |
-| Not showering for three days. |
-| Notes from your Mom pinned to your T-shirt. |
-| Overly huggy aunts. |
-| Peeing in an empty water bottle. |
-| Peeing in bed after eating too much watermelon. |
-| Piano teachers who spit when they talk. |
-| Pigeon poop in your hair. |
-| Playing Dunk the Principal. |
-| Playing piano with your toes. |
-| Playing the role of a tree in the school play. |
-| Poor hygiene. |
-| Pretending to like museums. |
-| Pubes held together in a little ponytail holder. |
-| Public humiliation. |
-| Puking on my teacher's shoes. |
-| Putting a booger in your pocket. |
-| Rainbow snowcones. |
-| Raising money to cure diseases. |
-| Regularly making very bad choices. |
-| Riding a unicycle while juggling bananas. |
-| Roach-infested sleep-away camp. |
+| Neve  fi di g you  stuff i  the Lost a d Fou d. |
+| Neve -e di g bloody  oses. |
+| Not ca i g. At all. |
+| Not k owi g whe  to shut up. |
+| Not maki g a si gle photo i  the yea book. |
+| Not showe i g fo  th ee days. |
+| Notes f om you  Mom pi ed to you  T-shi t. |
+| Ove ly huggy au ts. |
+| Peei g i  a  empty wate  bottle. |
+| Peei g i  bed afte  eati g too much wate melo . |
+| Pia o teache s who spit whe  they talk. |
+| Pigeo  poop i  you  hai . |
+| Playi g Du k the P i cipal. |
+| Playi g pia o with you  toes. |
+| Playi g the  ole of a t ee i  the school play. |
+| Poo  hygie e. |
+| P ete di g to like museums. |
+| Pubes held togethe  i  a little po ytail holde . |
+| Public humiliatio . |
+| Puki g o  my teache 's shoes. |
+| Putti g a booge  i  you  pocket. |
+| Rai bow s owco es. |
+| Raisi g mo ey to cu e diseases. |
+| Regula ly maki g ve y bad choices. |
+| Ridi g a u icycle while juggli g ba a as. |
+| Roach-i fested sleep-away camp. |
 | Roadkill. |
-| Roasting marshmallows. |
-| Running out of underwear at sleep-away camp. |
-| Salami sandwiches. |
-| Sand in your butt. |
-| Santa cumming down your chimney. |
-| School suspension for a crime you didn't commit. |
-| Scooping dog poop and realizing the bag is ripped after it's too late. |
-| Secret admirers. |
-| Secretly peeing in a pool. |
-| Seeing fresh puke and picking up the big pieces. |
-| Shirley Temples. |
-| Shopping with Mom. |
-| Silent but deadly farts. |
-| Siri®. |
-| Sitting on a juice box. |
+| Roasti g ma shmallows. |
+| Ru i g out of u de wea  at sleep-away camp. |
+| Salami sa dwiches. |
+| Sa d i  you  butt. |
+| Sa ta cummi g dow  you  chim ey. |
+| School suspe sio  fo  a c ime you did 't commit. |
+| Scoopi g dog poop a d  ealizi g the bag is  ipped afte  it's too late. |
+| Sec et admi e s. |
+| Sec etly peei g i  a pool. |
+| Seei g f esh puke a d picki g up the big pieces. |
+| Shi ley Temples. |
+| Shoppi g with Mom. |
+| Sile t but deadly fa ts. |
+| Si i®. |
+| Sitti g o  a juice box. |
 | Six-pack abs. |
-| Sixty-two boxes of unsold Girl Scout Cookies®. |
-| Skateboard road rash. |
-| Sleepovers with my friend's bratty brother who won't leave us alone. |
-| Slip 'n Slides®. |
-| Slow-dancing with your sibling. |
-| Smelly preschool bathrooms. |
-| Sneaking tech time. |
-| Snorting when you laugh. |
-| Sparkly fairy wings. |
-| Spewing vomit chunks. |
-| Spiders creeping up my legs. |
-| Spilling something that makes it look like you peed your pants. |
-| Stepping on a random Lego®. |
-| Sticky finger fungus. |
-| Stinky toe cheese. |
-| Sugar, sugar, sugar! |
-| Super snoozy school assemblies. |
-| Sweaty shin guards. |
+| Sixty-two boxes of u sold Gi l Scout Cookies®. |
+| Skateboa d  oad  ash. |
+| Sleepove s with my f ie d's b atty b othe  who wo 't leave us alo e. |
+| Slip '  Slides®. |
+| Slow-da ci g with you  sibli g. |
+| Smelly p eschool bath ooms. |
+| S eaki g tech time. |
+| S o ti g whe  you laugh. |
+| Spa kly fai y wi gs. |
+| Spewi g vomit chu ks. |
+| Spide s c eepi g up my legs. |
+| Spilli g somethi g that makes it look like you peed you  pa ts. |
+| Steppi g o  a  a dom Lego®. |
+| Sticky fi ge  fu gus. |
+| Sti ky toe cheese. |
+| Suga , suga , suga ! |
+| Supe  s oozy school assemblies. |
+| Sweaty shi  gua ds. |
 | Sweaty socks. |
-| Sweet dreams. |
-| Sword fights gone wrong. |
-| Tater Tots®. |
-| Taylor Swift. |
-| Teachers in holiday-themed sweaters. |
-| Teachers who obviously hate kids. |
-| Texting my best friend all day. |
-| That friend who can't sing, but doesn't know it. |
+| Sweet d eams. |
+| Swo d fights go e w o g. |
+| Tate  Tots®. |
+| Taylo  Swift. |
+| Teache s i  holiday-themed sweate s. |
+| Teache s who obviously hate kids. |
+| Texti g my best f ie d all day. |
+| That f ie d who ca 't si g, but does 't k ow it. |
 | That kid who always smells like waffles. |
-| The 3-second rule. |
-| The birds and the bees. |
-| The Boogie Man. |
-| The class genius who doesn't shower for weeks. |
-| The class pet I accidentally murdered. |
-| The Easter Bunny. |
-| The first day of school. |
-| The Girl Scouts®. |
-| The indentation on my butt after sitting on the toilet to take a huge dump. |
-| The itchy, hand-knit sweater from Grandma your mom makes you wear every time she visits. |
-| The non-existent private parts of a Ken® doll. |
-| The outfit your mother made you wear on the first day of school. |
-| The pimply pizza delivery guy. |
-| The scent of sneakers after a week at summer camp. |
+| The 3-seco d  ule. |
+| The bi ds a d the bees. |
+| The Boogie Ma . |
+| The class ge ius who does 't showe  fo  weeks. |
+| The class pet I accide tally mu de ed. |
+| The Easte  Bu y. |
+| The fi st day of school. |
+| The Gi l Scouts®. |
+| The i de tatio  o  my butt afte  sitti g o  the toilet to take a huge dump. |
+| The itchy, ha d-k it sweate  f om G a dma you  mom makes you wea  eve y time she visits. |
+| The  o -existe t p ivate pa ts of a Ke ® doll. |
+| The outfit you  mothe  made you wea  o  the fi st day of school. |
+| The pimply pizza delive y guy. |
+| The sce t of s eake s afte  a week at summe  camp. |
 | The school mascot. |
-| The science teacher's sweaty potbelly. |
-| The secret satisfaction of scratching your butt and sniffing it. |
-| The socks you wore five days in a row. |
-| The spectacular feeling of farting until you just can't fart anymore! |
-| The sweet sound of snot right before a cup of hot chocolate. |
-| The Tooth Fairy. |
-| The unmistakeable aroma of stinky underwear. |
-| The weird kid down the block. |
-| The word "balls." |
-| The word "NO." |
-| The world's longest list of chores. |
-| The world's most epic wedgie. |
-| Thinking Nationwide® is really on your side. |
-| Thirty minutes of reading every night. |
-| Thumb-wrestling wars. |
-| Timed math drills. |
-| Toenail trimmings on the table. |
-| Torn pop-up books. |
-| Trail mix. |
-| Training bras. |
-| Traveling into outer space. |
-| Trying but hating yoga. |
-| Trying on my Mom's high-heel shoes. |
-| Trying to smell your belly button. |
-| Turning 16. |
-| Turning beet red from embarrassment. |
-| Tweezing long nose hairs. |
-| Unbuckling on the way to the bathroom. |
-| Underwear skidmarks. |
-| Unidentifiable cafeteria food. |
-| Uranus. |
-| Valentine's Day. |
-| Vampire bunnies. |
+| The scie ce teache 's sweaty potbelly. |
+| The sec et satisfactio  of sc atchi g you  butt a d s iffi g it. |
+| The socks you wo e five days i  a  ow. |
+| The spectacula  feeli g of fa ti g u til you just ca 't fa t a ymo e! |
+| The sweet sou d of s ot  ight befo e a cup of hot chocolate. |
+| The Tooth Fai y. |
+| The u mistakeable a oma of sti ky u de wea . |
+| The wei d kid dow  the block. |
+| The wo d "balls." |
+| The wo d "NO." |
+| The wo ld's lo gest list of cho es. |
+| The wo ld's most epic wedgie. |
+| Thi ki g Natio wide® is  eally o  you  side. |
+| Thi ty mi utes of  eadi g eve y  ight. |
+| Thumb-w estli g wa s. |
+| Timed math d ills. |
+| Toe ail t immi gs o  the table. |
+| To  pop-up books. |
+| T ail mix. |
+| T ai i g b as. |
+| T aveli g i to oute  space. |
+| T yi g but hati g yoga. |
+| T yi g o  my Mom's high-heel shoes. |
+| T yi g to smell you  belly butto . |
+| Tu i g 16. |
+| Tu i g beet  ed f om emba assme t. |
+| Tweezi g lo g  ose hai s. |
+| U buckli g o  the way to the bath oom. |
+| U de wea  skidma ks. |
+| U ide tifiable cafete ia food. |
+| U a us. |
+| Vale ti e's Day. |
+| Vampi e bu ies. |
 | Vegas. |
-| Waiting for summer. |
-| Waking up feeling like a mucous membrane. |
-| Warts grow in places you can't hide. |
-| Wearing sunglasses all day. |
-| Weird stares from my frenemy. |
-| Whining until you get your way. |
-| Whoopie Cushions. |
-| Wiping out on a skateboard. |
-| Wiping out on your bike and taking out a crowd. |
+| Waiti g fo  summe . |
+| Waki g up feeli g like a mucous memb a e. |
+| Wa ts g ow i  places you ca 't hide. |
+| Wea i g su glasses all day. |
+| Wei d sta es f om my f e emy. |
+| Whi i g u til you get you  way. |
+| Whoopie Cushio s. |
+| Wipi g out o  a skateboa d. |
+| Wipi g out o  you  bike a d taki g out a c owd. |
 | Yellow teeth |
-| Yesterday's oatmeal. |
-| Yogurt that turned furry in the fridge. |
-| Your bathing suit slipping too low at the water slide park. |
-| Your coach's bad breath. |
-| Your cousin's R-rated movie collection. |
-| Your Dad's stinky feet. |
-| Your Mom and her multiple personalities. |
-| Your parents kissing. |
-| Your secret crush. |
+| Yeste day's oatmeal. |
+| Yogu t that tu ed fu y i  the f idge. |
+| You  bathi g suit slippi g too low at the wate  slide pa k. |
+| You  coach's bad b eath. |
+| You  cousi 's R- ated movie collectio . |
+| You  Dad's sti ky feet. |
+| You  Mom a d he  multiple pe so alities. |
+| You  pa e ts kissi g. |
+| You  sec et c ush. |
 | YouTube™. |
-| Ziplining. |
-| A block of cheese wearing sunglasses. |
-| A chicken nugget eating contest. |
-| A chunk of earwax on a toothpick. |
-| A hard-boiled egg. |
-| A lifetime supply of Polaroid film. |
-| A Minecraft® marathon. |
-| A scientific study stating that too much sugar is good for you. |
-| A traumatic case of diarrhea. |
-| Accidentally calling 911. |
-| Acrobatic street-sign twirling with awesome dance moves. |
-| Afternoons filled with binge-watching on Netflix®. |
-| All you can eat mac and cheese. |
-| An Oompa Loompa attack. |
-| Bacon. |
-| Becoming a vegetarian. |
-| Becoming the celebrity spokesperson for Bubblcious® Bubble Gum. |
-| Belly dancers. |
-| Blowing birthday money on arcade games. |
-| Buffalo wing breath. |
-| Cookies and Cream. |
-| Dabbing like there's no tomorrow. |
-| Death by teddy bear. |
-| Eating Bambi for dinner. |
-| Fidget spinner spinners everywhere uniting in world peace. |
-| Getting the chills when you pee. |
-| Having the coolest Pokemon® cards. |
-| Hiding the remote control from your dad on Super Bowl® Sunday. |
-| Instant gratification. |
-| Making superhero movies for a living. |
-| Milking a cow with your toes. |
-| Minions muttering mumbled messages madly at midnight. |
-| My father snoring like a sick elephant all night. |
-| Night vision goggles. |
-| Nodding like you're listening. |
-| Passing serious gas in a tub to create the jacuzzi effect. |
-| Pronouncing words wrong. |
-| Putting your hands in the air like you just don't care. |
-| Refusing to wear deodorant. |
-| Running out of toilet paper after the most satisfying dump. |
-| Scaring the bejeezus out of your Mom as she turns the corner. |
-| Secretly picking your nose in class. |
-| Snot rockets |
-| Studying for 1000 years. |
-| Sumo wrestler thongs. |
-| Taking tests. |
-| Talking like a drunk pirate. |
-| That kid who always stands too close. |
-| That teacher who needs a serious makeover. |
-| The know-it-all kid next door. |
-| The stress you feel when you haven't doen homework. |
-| Too cool for school ninja moves. |
-| Uncomfortable elevator silence. |
-| Urkel. |
-| Used dental floss. |
-| Whatever hot dogs are made of. |
-| Winning every spelling bee contest. |
-| Winning the gazillion dollar lottery. |
-| Wolverine® hands. |
-| Your dad singing "Wicked the Musical" showtunes. |
-| Your weird dad who likes to play hopscotch. |
-| A dozen spiders crawling up your leg. |
-| A golden ticket to Willy Wonka's Chocolate Factory. |
-| A lip-synch battle to the death. |
-| A one-way ticket to Mars. |
-| A sad face emoji, a happy face emoji, and a poop emoji. |
-| A secret Valentine. |
-| An app that instantly makes your parents stop nagging you. |
-| An endless loop of Elmo singing "Elmo's World®." |
-| Bad B.O. on the first day of school. |
-| Becoming the new, lucky owner of Harry Potter's™ wand. |
-| Being forced to clean up all the gum stuck to the bottom of a desk. |
-| Bikini Bottom. |
-| Breaking the world record for the longest poop known to mankind. |
-| Calling shotgun. |
-| Chocolate covered cockroaches. |
-| Computer Engineer Barbie®. |
-| Cookie dough on a cone. |
-| Corn dogs. |
-| Doing flips into a giant bowl of rainbow-colored cotton candy. |
-| Donald Duck whispering "marshmallow." |
-| Donald Trump hair. |
-| Dressing up like Lady Gaga. |
-| Dwayne "The Rock" Johnson's acting career. |
-| Eating breakfast for dinner everyday. |
-| Four hours in the mall with Mom's credit card. |
-| Hacking up a loogie. |
+| Zipli i g. |
+| A block of cheese wea i g su glasses. |
+| A chicke   ugget eati g co test. |
+| A chu k of ea wax o  a toothpick. |
+| A ha d-boiled egg. |
+| A lifetime supply of Pola oid film. |
+| A Mi ec aft® ma atho . |
+| A scie tific study stati g that too much suga  is good fo  you. |
+| A t aumatic case of dia hea. |
+| Accide tally calli g 911. |
+| Ac obatic st eet-sig  twi li g with awesome da ce moves. |
+| Afte oo s filled with bi ge-watchi g o  Netflix®. |
+| All you ca  eat mac a d cheese. |
+| A  Oompa Loompa attack. |
+| Baco . |
+| Becomi g a vegeta ia . |
+| Becomi g the celeb ity spokespe so  fo  Bubblcious® Bubble Gum. |
+| Belly da ce s. |
+| Blowi g bi thday mo ey o  a cade games. |
+| Buffalo wi g b eath. |
+| Cookies a d C eam. |
+| Dabbi g like the e's  o tomo ow. |
+| Death by teddy bea . |
+| Eati g Bambi fo  di e . |
+| Fidget spi e  spi e s eve ywhe e u iti g i  wo ld peace. |
+| Getti g the chills whe  you pee. |
+| Havi g the coolest Pokemo ® ca ds. |
+| Hidi g the  emote co t ol f om you  dad o  Supe  Bowl® Su day. |
+| I sta t g atificatio . |
+| Maki g supe he o movies fo  a livi g. |
+| Milki g a cow with you  toes. |
+| Mi io s mutte i g mumbled messages madly at mid ight. |
+| My fathe  s o i g like a sick elepha t all  ight. |
+| Night visio  goggles. |
+| Noddi g like you' e liste i g. |
+| Passi g se ious gas i  a tub to c eate the jacuzzi effect. |
+| P o ou ci g wo ds w o g. |
+| Putti g you  ha ds i  the ai  like you just do 't ca e. |
+| Refusi g to wea  deodo a t. |
+| Ru i g out of toilet pape  afte  the most satisfyi g dump. |
+| Sca i g the bejeezus out of you  Mom as she tu s the co e . |
+| Sec etly picki g you   ose i  class. |
+| S ot  ockets |
+| Studyi g fo  1000 yea s. |
+| Sumo w estle  tho gs. |
+| Taki g tests. |
+| Talki g like a d u k pi ate. |
+| That kid who always sta ds too close. |
+| That teache  who  eeds a se ious makeove . |
+| The k ow-it-all kid  ext doo . |
+| The st ess you feel whe  you have 't doe  homewo k. |
+| Too cool fo  school  i ja moves. |
+| U comfo table elevato  sile ce. |
+| U kel. |
+| Used de tal floss. |
+| Whateve  hot dogs a e made of. |
+| Wi i g eve y spelli g bee co test. |
+| Wi i g the gazillio  dolla  lotte y. |
+| Wolve i e® ha ds. |
+| You  dad si gi g "Wicked the Musical" showtu es. |
+| You  wei d dad who likes to play hopscotch. |
+| A doze  spide s c awli g up you  leg. |
+| A golde  ticket to Willy Wo ka's Chocolate Facto y. |
+| A lip-sy ch battle to the death. |
+| A o e-way ticket to Ma s. |
+| A sad face emoji, a happy face emoji, a d a poop emoji. |
+| A sec et Vale ti e. |
+| A  app that i sta tly makes you  pa e ts stop  aggi g you. |
+| A  e dless loop of Elmo si gi g "Elmo's Wo ld®." |
+| Bad B.O. o  the fi st day of school. |
+| Becomi g the  ew, lucky ow e  of Ha y Potte 's™ wa d. |
+| Bei g fo ced to clea  up all the gum stuck to the bottom of a desk. |
+| Biki i Bottom. |
+| B eaki g the wo ld  eco d fo  the lo gest poop k ow  to ma ki d. |
+| Calli g shotgu . |
+| Chocolate cove ed cock oaches. |
+| Compute  E gi ee  Ba bie®. |
+| Cookie dough o  a co e. |
+| Co  dogs. |
+| Doi g flips i to a gia t bowl of  ai bow-colo ed cotto  ca dy. |
+| Do ald Duck whispe i g "ma shmallow." |
+| Do ald T ump hai . |
+| D essi g up like Lady Gaga. |
+| Dway e "The Rock" Joh so 's acti g ca ee . |
+| Eati g b eakfast fo  di e  eve yday. |
+| Fou  hou s i  the mall with Mom's c edit ca d. |
+| Hacki g up a loogie. |
 | Hummus. |
-| Jumping rope with a bunch of worms tied together. |
-| Making friends with the neighbors just because they have a pool. |
-| Mistaking a glue stick for Chapstick®. |
-| Mistakingly waving at someone who isn't waving at you. |
-| My dad taking the wrong cat for surgery. |
-| My first kiss. |
+| Jumpi g  ope with a bu ch of wo ms tied togethe . |
+| Maki g f ie ds with the  eighbo s just because they have a pool. |
+| Mistaki g a glue stick fo  Chapstick®. |
+| Mistaki gly wavi g at someo e who is 't wavi g at you. |
+| My dad taki g the w o g cat fo  su ge y. |
+| My fi st kiss. |
 | ONLY WRITING IN ALL CAPS. |
 | Pickles. |
-| Prank calling my dad. |
-| Putting tape on your nose to make a pig snout. |
-| Resenting getting kicked out of the room when Game of Thrones comes on. |
-| Running around barefoot in the rain. |
-| Running away with the circus. |
-| Serena Williams. |
-| Singing "Supercalifragilisticexpialidocious" in German. |
-| Sleeping in every day. |
-| Smelling someone before you see them. |
+| P a k calli g my dad. |
+| Putti g tape o  you   ose to make a pig s out. |
+| Rese ti g getti g kicked out of the  oom whe  Game of Th o es comes o . |
+| Ru i g a ou d ba efoot i  the  ai . |
+| Ru i g away with the ci cus. |
+| Se e a Williams. |
+| Si gi g "Supe calif agilisticexpialidocious" i  Ge ma . |
+| Sleepi g i  eve y day. |
+| Smelli g someo e befo e you see them. |
 | Spam. |
-| Starbucks®. |
-| Sweet revenge. |
-| That boring friend who stalks you everyday. |
-| The dessert section in Trader Joe's®. |
-| The easter bunny attacking you in your sleep. |
-| The Ice Bucket Challenge. |
-| The inventor of the toilet. |
+| Sta bucks®. |
+| Sweet  eve ge. |
+| That bo i g f ie d who stalks you eve yday. |
+| The desse t sectio  i  T ade  Joe's®. |
+| The easte  bu y attacki g you i  you  sleep. |
+| The Ice Bucket Challe ge. |
+| The i ve to  of the toilet. |
 | The last days of school. |
-| The most painful splinter. |
-| The ultimate glow-in-the-dark, green glitter, coconut-scented slime. |
-| Tofurky®. |
-| Waking up to Mom pulling your toes and cracking them. |
-| Watching me whip and nae-nae. |
-| Wearing an invisibility cloak into the principal's office. |
-| Witnessing a little girl turning into an apricot. |
+| The most pai ful spli te . |
+| The ultimate glow-i -the-da k, g ee  glitte , coco ut-sce ted slime. |
+| Tofu ky®. |
+| Waki g up to Mom pulli g you  toes a d c acki g them. |
+| Watchi g me whip a d  ae- ae. |
+| Wea i g a  i visibility cloak i to the p i cipal's office. |
+| Wit essi g a little gi l tu i g i to a  ap icot. |
 
 |Total amount: 460|
 |---|

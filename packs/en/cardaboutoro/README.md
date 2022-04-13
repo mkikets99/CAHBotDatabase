@@ -51,206 +51,208 @@ Answers amount: 198
 |---|
 
 ### Answers
-| Question |
+| Answers |
 |---|
-| A Captain John's Seafood Dinner |
-| A Christmas Day bathhouse visit |
-| A Doug Ford shaped pinata |
-| A drunk girl getting banged on a pile of garbage bags |
-| A kickstarter campaign to pay your rent |
-| A loud fart that you thought would be a quiet fart |
-| A now-homeless Much Music VJ |
-| A Polar Vortex |
-| a purse stashed with condoms and dental dams |
-| A thirteen minute make-out session with Kathleen Wynne |
+| A Captai  Joh 's Seafood Di e  |
+| A Ch istmas Day bathhouse visit |
+| A Doug Fo d shaped pi ata |
+| A d u k gi l getti g ba ged o  a pile of ga bage bags |
+| A kicksta te  campaig  to pay you   e t |
+| A loud fa t that you thought would be a quiet fa t |
+| A  ow-homeless Much Music VJ |
+| A Pola  Vo tex |
+| a pu se stashed with co doms a d de tal dams |
+| A thi tee  mi ute make-out sessio  with Kathlee  Wy e |
 | A walk of shame |
-| A warm sack of foreskins |
-| Adult bed-wetting |
-| Alcohol-free art gallery openings |
-| An Ossington hipster who really lives in Oakville |
-| Anonymous after dark anilingus |
-| Another blackout |
-| Another goddamn cupcake shop |
-| Another year of therapy |
-| Asian parents |
-| Auto-fellatio asphyxiation |
-| Autocorrect |
-| Backhanded compliments |
-| Bacon substitutes |
+| A wa m sack of fo eski s |
+| Adult bed-wetti g |
+| Alcohol-f ee a t galle y ope i gs |
+| A  Ossi gto  hipste  who  eally lives i  Oakville |
+| A o ymous afte  da k a ili gus |
+| A othe  blackout |
+| A othe  goddam  cupcake shop |
+| A othe  yea  of the apy |
+| Asia  pa e ts |
+| Auto-fellatio asphyxiatio  |
+| Autoco ect |
+| Backha ded complime ts |
+| Baco  substitutes |
 | Bed bugs |
-| Being forced to compliment an ugly baby |
-| Being the next contestant on the Cash Cab |
-| Being the only high person at the party |
-| Being the third wheel |
-| Believing vaccines cause Autism |
-| Bieber Fever |
-| Bike lanes on Bloor |
-| Blaming amalgamation |
-| Blaming the CBC |
-| Blood fisting |
-| Books I'll never read |
-| Butt pirates |
-| Buying discount hoop earrings in Scarborough |
-| Buying underwear in Chinatown |
-| Calling the Rogers Centre the Skydome |
+| Bei g fo ced to complime t a  ugly baby |
+| Bei g the  ext co testa t o  the Cash Cab |
+| Bei g the o ly high pe so  at the pa ty |
+| Bei g the thi d wheel |
+| Believi g vacci es cause Autism |
+| Biebe  Feve  |
+| Bike la es o  Bloo  |
+| Blami g amalgamatio  |
+| Blami g the CBC |
+| Blood fisti g |
+| Books I'll  eve   ead |
+| Butt pi ates |
+| Buyi g discou t hoop ea i gs i  Sca bo ough |
+| Buyi g u de wea  i  Chi atow  |
+| Calli g the Roge s Ce t e the Skydome |
 | CAMH |
-| Casual racism |
-| Casually mentioning having herpes |
+| Casual  acism |
+| Casually me tio i g havi g he pes |
 | Catholic guilt |
-| Celine Dion keeping her baby warm in the microwave |
-| Chocolate covered Plan B morning after pills |
-| Cineplex's Time Play app |
-| Coffee Time patrons |
-| Conversations about gluten |
-| Craigslist missed connections |
-| Cross-dressing dads coming out to their adult children |
+| Celi e Dio  keepi g he  baby wa m i  the mic owave |
+| Chocolate cove ed Pla  B mo i g afte  pills |
+| Ci eplex's Time Play app |
+| Coffee Time pat o s |
+| Co ve satio s about glute  |
+| C aigslist missed co ectio s |
+| C oss-d essi g dads comi g out to thei  adult child e  |
 | Deadbeat dads |
-| Death by a tsunami of used condoms |
-| Defending Etobicoke's right to exist |
-| Degrassi High |
-| Dining at the CNE |
-| Double penetration |
-| Drake's latest album |
-| Drunk dialing |
+| Death by a tsu ami of used co doms |
+| Defe di g Etobicoke's  ight to exist |
+| Deg assi High |
+| Di i g at the CNE |
+| Double pe et atio  |
+| D ake's latest album |
+| D u k diali g |
 | Duckfaced selfies |
 | Ed the Sock |
-| Failing as an aesthetician |
-| Falling asleep on the bus and waking up in Islingtontown |
-| Feelings |
-| Female-to-male transsexual chest hair |
-| Flash dance magic pants |
-| Ford Nation |
-| Forty-somethings wearing Uggs |
-| Freezing poop to make  dildo |
-| Gangnam style |
-| Getting lost in Honest Ed's |
-| Getting photobombed by Gian Gomeshii |
-| Getting shot at Caribana |
-| Glory holes |
-| Gonorrhoea... gift wrapped |
-| Grandparents constantly asking why I'm single |
-| Grocery shopping at Dollarama |
-| Hand feeding Rob Ford Cheez-its |
-| Hanlan's Point Clothing Optional Beach |
-| Happy Hour at Zanzibar |
-| Harry Potter male pregnancy fan fiction |
-| Hashtags on Facebook |
-| Hassle-free clinic test results |
-| Having a 647 phone number |
-| High Park after dark |
-| Hipsters serving brunch |
-| Hoarder marathons on Netflix |
-| Hostile eye contact |
-| Hot guys named Todd |
-| Ignoring the elephant in the room |
-| Intercourse with a hollowed out watermelon |
-| iTumes terms and conditions |
-| Jane and Finch |
-| Jungle fever |
+| Faili g as a  aestheticia  |
+| Falli g asleep o  the bus a d waki g up i  Isli gto tow  |
+| Feeli gs |
+| Female-to-male t a ssexual chest hai  |
+| Flash da ce magic pa ts |
+| Fo d Natio  |
+| Fo ty-somethi gs wea i g Uggs |
+| F eezi g poop to make  dildo |
+| Ga g am style |
+| Getti g lost i  Ho est Ed's |
+| Getti g photobombed by Gia  Gomeshii |
+| Getti g shot at Ca iba a |
+| Glo y holes |
+| Go o hoea... gift w apped |
+| G a dpa e ts co sta tly aski g why I'm si gle |
+| G oce y shoppi g at Dolla ama |
+| Ha d feedi g Rob Fo d Cheez-its |
+| Ha la 's Poi t Clothi g Optio al Beach |
+| Happy Hou  at Za ziba  |
+| Ha y Potte  male p eg a cy fa  fictio  |
+| Hashtags o  Facebook |
+| Hassle-f ee cli ic test  esults |
+| Havi g a 647 pho e  umbe  |
+| High Pa k afte  da k |
+| Hipste s se vi g b u ch |
+| Hoa de  ma atho s o  Netflix |
+| Hostile eye co tact |
+| Hot guys  amed Todd |
+| Ig o i g the elepha t i  the  oom |
+| I te cou se with a hollowed out wate melo  |
+| iTumes te ms a d co ditio s |
+| Ja e a d Fi ch |
+| Ju gle feve  |
 | Kale chips |
-| Kensington hippies |
-| King's Crown Nachos at Sneaky Dee's |
-| Knitted toe-socks |
-| Lip-syncing for your life |
-| Madonna On Ice: The Musical |
-| Making really bad "Don Valley Parking-Lot" jokes |
-| Manscaping |
-| Margaret Atwood's unconditional love |
-| Marilyn Denis' face |
-| McDonald's coffee |
-| Medical marijuana |
-| Menstruating in white jeans |
-| Microwave cooking for one |
-| Mistaking carjacker for valet parking |
-| Modrobes |
-| Multicultural television |
+| Ke si gto  hippies |
+| Ki g's C ow  Nachos at S eaky Dee's |
+| K itted toe-socks |
+| Lip-sy ci g fo  you  life |
+| Mado a O  Ice: The Musical |
+| Maki g  eally bad "Do  Valley Pa ki g-Lot" jokes |
+| Ma scapi g |
+| Ma ga et Atwood's u co ditio al love |
+| Ma ily  De is' face |
+| McDo ald's coffee |
+| Medical ma ijua a |
+| Me st uati g i  white jea s |
+| Mic owave cooki g fo  o e |
+| Mistaki g ca jacke  fo  valet pa ki g |
+| Mod obes |
+| Multicultu al televisio  |
 | NMBYism |
-| No Pants Day |
+| No Pa ts Day |
 | NoJetsTO |
 | Nooooooooooobody! |
-| Not giving a shit about peanut allergies |
-| Not going north of Bloor Street |
-| Olivia Chow falling down an escalator, forever |
+| Not givi g a shit about pea ut alle gies |
+| Not goi g  o th of Bloo  St eet |
+| Olivia Chow falli g dow  a  escalato , fo eve  |
 | Olivia Chow hogtied |
-| Parkdale |
-| Parking in a disabled space without a permit |
-| Pass the gravy I got a double abortion |
-| Passive aggressive Facebook updates |
-| Pegging |
-| People who live on Toronto Island |
-| Playing the race card |
-| Post-drunken depression |
-| Pretending the Distillery District is as cool as Montreal |
-| Pretending to not shop at Walmart |
-| Pretentious latte art |
-| Priority neighbourhoods |
-| Purchasing something you don't need to use a restroom |
-| Raccoon: The other, other dark meat |
-| Racist grandparents |
-| Referring to outsiders as "905ers" |
-| Resentment |
+| Pa kdale |
+| Pa ki g i  a disabled space without a pe mit |
+| Pass the g avy I got a double abo tio  |
+| Passive agg essive Facebook updates |
+| Peggi g |
+| People who live o  To o to Isla d |
+| Playi g the  ace ca d |
+| Post-d u ke  dep essio  |
+| P ete di g the Distille y Dist ict is as cool as Mo t eal |
+| P ete di g to  ot shop at Walma t |
+| P ete tious latte a t |
+| P io ity  eighbou hoods |
+| Pu chasi g somethi g you do 't  eed to use a  est oom |
+| Raccoo : The othe , othe  da k meat |
+| Racist g a dpa e ts |
+| Refe i g to outside s as "905e s" |
+| Rese tme t |
 | Rick The Temp |
-| Rob Ford re-elected |
-| Rogers wireless customer service representatives |
-| Santorum |
+| Rob Fo d  e-elected |
+| Roge s wi eless custome  se vice  ep ese tatives |
+| Sa to um |
 | SARS |
-| Saying "Nuit Blanche was better last year" |
-| Saying sorry too much |
-| Scarborough problems |
-| Sexting the wrong person |
-| Shawn Desmond CDs |
-| Shopper's Optimum Points |
-| Signal problems at track level |
-| Smacking snotty looking blonde children |
-| Snorting coke off the back of a toilet |
-| So You Think You Can Dance Canada |
-| Sook-Yin Lee |
-| Speaker's Corner |
-| Spooning with an erection |
-| Spraying oneself with Febreeze in lieu of a shower |
-| Standing on the left side of the escalator |
-| Standing too close to someone at the urinal |
-| Steven & Chris both blindfolded in a leather sling |
-| Still caring about the G-20 |
-| Stopping an actual gravy train |
-| Straight pride parades |
-| Street meat |
-| Streetcar short turns |
-| Strippers who work the day shift |
-| Subways!Subways!Subways! |
-| Taking Jack Layton's name in vain |
-| Taking out payday loans to pay off other payday loans |
-| Taking the TTC to Scarborough |
+| Sayi g "Nuit Bla che was bette  last yea " |
+| Sayi g so y too much |
+| Sca bo ough p oblems |
+| Sexti g the w o g pe so  |
+| Shaw  Desmo d CDs |
+| Shoppe 's Optimum Poi ts |
+| Sig al p oblems at t ack level |
+| Smacki g s otty looki g blo de child e  |
+| S o ti g coke off the back of a toilet |
+| So You Thi k You Ca  Da ce Ca ada |
+| Sook-Yi  Lee |
+| Speake 's Co e  |
+| Spoo i g with a  e ectio  |
+| Sp ayi g o eself with Feb eeze i  lieu of a showe  |
+| Sta di g o  the left side of the escalato  |
+| Sta di g too close to someo e at the u i al |
+| Steve  & Ch is both bli dfolded i  a leathe  sli g |
+| Still ca i g about the G-20 |
+| Stoppi g a  actual g avy t ai  |
+| St aight p ide pa ades |
+| St eet meat |
+| St eetca  sho t tu s |
+| St ippe s who wo k the day shift |
+| Subways!
+Subways!
+Subways! |
+| Taki g Jack Layto 's  ame i  vai  |
+| Taki g out payday loa s to pay off othe  payday loa s |
+| Taki g the TTC to Sca bo ough |
 | Thai lady boys |
-| That smell in the NE corner of High Park |
-| That woman on the GO train that clears her throat every five seconds |
+| That smell i  the NE co e  of High Pa k |
+| That woma  o  the GO t ai  that clea s he  th oat eve y five seco ds |
 | That's what she said |
-| The animatronic bears playing musical instruments at Chuck E. Cheese |
-| The biggest booty shakin' float at Caribana |
-| The Christie Pits groper |
-| The Dufferin bus |
-| The Ikea monkey |
+| The a imat o ic bea s playi g musical i st ume ts at Chuck E. Cheese |
+| The biggest booty shaki ' float at Ca iba a |
+| The Ch istie Pits g ope  |
+| The Duffe i  bus |
+| The Ikea mo key |
 | The LCBO |
 | The media |
-| The Roncevalles MILF Association |
-| The sound of Adam Vaughan giving birth to a child |
-| The Toronto Maple Leafs |
-| Those old people who live in the Manulife Centre |
-| Tim Horton's Rrroll Up The Rim To Win Contest |
+| The Ro cevalles MILF Associatio  |
+| The sou d of Adam Vaugha  givi g bi th to a child |
+| The To o to Maple Leafs |
+| Those old people who live i  the Ma ulife Ce t e |
+| Tim Ho to 's R oll Up The Rim To Wi  Co test |
 | Tits |
-| Traditional gender roles |
-| Trolling the comment section on The Toronto Star |
-| Truly believing Electric Circus was cool |
-| Twelve disgruntled Filipino nannies |
-| Twenty-five dollar martinis |
-| Twerking |
-| Unfulfilled sext-pectations |
-| Vegan bakeries |
-| Waving to someone who doesn't see you |
-| Weddings held in Mississauga |
-| When someone doesn't say "bleess you" after you sneeze |
-| White Squirrels of Trinity Bellwoods |
-| Zanta! |
+| T aditio al ge de   oles |
+| T olli g the comme t sectio  o  The To o to Sta  |
+| T uly believi g Elect ic Ci cus was cool |
+| Twelve disg u tled Filipi o  a ies |
+| Twe ty-five dolla  ma ti is |
+| Twe ki g |
+| U fulfilled sext-pectatio s |
+| Vega  bake ies |
+| Wavi g to someo e who does 't see you |
+| Weddi gs held i  Mississauga |
+| Whe  someo e does 't say "bleess you" afte  you s eeze |
+| White Squi els of T i ity Bellwoods |
+| Za ta! |
 
 |Total amount: 198|
 |---|

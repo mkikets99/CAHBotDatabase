@@ -24,62 +24,62 @@ Answers amount: 54
 |---|
 
 ### Answers
-| Question |
+| Answers |
 |---|
-| Getting inside the Horadric Cube with a hot babe and pressing the transmute button. |
-| Loan sharks or left sharks, whichever |
-| Punching a tree to gather wood. |
-| Sharpie lipstick |
-| Spending the year's insulin budget on Warhammer 40k figurines. |
-| The desparate girl who wanted to be a mom so bad that she robbed a sperm bank. |
-| The rocket launcher. |
-| Violating the First Law of Robotics. |
-| Achieving a gangbang life goal |
-| Charisma |
-| Forgetting to move the damn Elf on the Shelf |
-| Judging elves by the color of their skin and not by the content of their character. |
-| Smashing all the pottery in a Pottery Barn in search of rupees. |
+| Getti g i side the Ho ad ic Cube with a hot babe a d p essi g the t a smute butto . |
+| Loa  sha ks o  left sha ks, whicheve  |
+| Pu chi g a t ee to gathe  wood. |
+| Sha pie lipstick |
+| Spe di g the yea 's i suli  budget o  Wa hamme  40k figu i es. |
+| The despa ate gi l who wa ted to be a mom so bad that she  obbed a spe m ba k. |
+| The  ocket lau che . |
+| Violati g the Fi st Law of Robotics. |
+| Achievi g a ga gba g life goal |
+| Cha isma |
+| Fo getti g to move the dam  Elf o  the Shelf |
+| Judgi g elves by the colo  of thei  ski  a d  ot by the co te t of thei  cha acte . |
+| Smashi g all the potte y i  a Potte y Ba  i  sea ch of  upees. |
 | The Klobb. |
-| Vespene gas. |
-| Wil Wheaton crashing an actual spaceship. |
-| A giant mechanical bird with a tragic backstory. |
-| A grumpy spiritual director. |
-| All of the good times and premium gaming entertainment available to you in the Kickstarter room. |
-| Attacking from Kamchatka. |
-| Collecting all seven power crystals. |
-| Demons and shit. |
-| Endless pleasure. |
-| Futuristic death sports. |
-| Getting bitten by a radioactive spider and then battling leukemia for 30 years. |
+| Vespe e gas. |
+| Wil Wheato  c ashi g a  actual spaceship. |
+| A gia t mecha ical bi d with a t agic backsto y. |
+| A g umpy spi itual di ecto . |
+| All of the good times a d p emium gami g e te tai me t available to you i  the Kicksta te   oom. |
+| Attacki g f om Kamchatka. |
+| Collecti g all seve  powe  c ystals. |
+| Demo s a d shit. |
+| E dless pleasu e. |
+| Futu istic death spo ts. |
+| Getti g bitte  by a  adioactive spide  a d the  battli g leukemia fo  30 yea s. |
 | KHAAAAAAAAAN! |
-| Lagging out. |
-| Mistakenly hitting on a League of Legends statue. |
-| Separation of merch and state. |
-| Serana William`s black sweaty scrotum |
-| Stuffing my underwear with pancakes. |
-| Taking 3 hours to go on a 15 minute errand |
-| The imagination of Peter Jackson. |
+| Laggi g out. |
+| Mistake ly hitti g o  a League of Lege ds statue. |
+| Sepa atio  of me ch a d state. |
+| Se a a William`s black sweaty sc otum |
+| Stuffi g my u de wea  with pa cakes. |
+| Taki g 3 hou s to go o  a 15 mi ute e a d |
+| The imagi atio  of Pete  Jackso . |
 | The old gods. |
-| The pure, Zen-like state that exists between micro and macro. |
-| The Star Wars universe. |
-| Whatever Final Fantasy bullshit happened this year. |
-| Xena, Warrior Princess. |
-| A floor that is literally made of lava. |
-| All this liquid in my mouth. |
-| Exciting content! |
-| Giving a dolphin a handjob for science. |
-| Hoes in different area codes. |
-| Rubbing chocolate pudding all over Bill Cosby's nipples. |
-| Stepping on a god damn friggin' LEGO. |
-| What The Rock was really cooking. |
-| An immediately regrettable $9 hot dog from the Boston Convention Center. |
-| Casting Magic Missile at a bully. |
-| Firefly: Season 2. |
-| Getting bitch slapped by Dhalsim. |
+| The pu e, Ze -like state that exists betwee  mic o a d mac o. |
+| The Sta  Wa s u ive se. |
+| Whateve  Fi al Fa tasy bullshit happe ed this yea . |
+| Xe a, Wa io  P i cess. |
+| A floo  that is lite ally made of lava. |
+| All this liquid i  my mouth. |
+| Exciti g co te t! |
+| Givi g a dolphi  a ha djob fo  scie ce. |
+| Hoes i  diffe e t a ea codes. |
+| Rubbi g chocolate puddi g all ove  Bill Cosby's  ipples. |
+| Steppi g o  a god dam  f iggi ' LEGO. |
+| What The Rock was  eally cooki g. |
+| A  immediately  eg ettable $9 hot dog f om the Bosto  Co ve tio  Ce te . |
+| Casti g Magic Missile at a bully. |
+| Fi efly: Seaso  2. |
+| Getti g bitch slapped by Dhalsim. |
 | Jiggle physics. |
-| Paying the iron price. |
-| Rotating shapes in mid-air so that they fit into other shapes when they fall. |
-| Running out of things to talk about. |
+| Payi g the i o  p ice. |
+| Rotati g shapes i  mid-ai  so that they fit i to othe  shapes whe  they fall. |
+| Ru i g out of thi gs to talk about. |
 
 |Total amount: 54|
 |---|

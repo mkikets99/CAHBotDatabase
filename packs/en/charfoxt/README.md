@@ -76,213 +76,213 @@ Answers amount: 205
 |---|
 
 ### Answers
-| Question |
+| Answers |
 |---|
-| $2 beer pitcher night at the base bowling alley. |
-| 16 years of service and my pay still sucks. |
-| A barracks bunny. |
-| A bitchy, stuck-up officer's wife. |
-| A bunker fart that is way louder than expected. |
-| A dangerous mistake to make. |
-| A Dependapotamus. |
-| A dirty fucking Jody. |
-| A dishonorably discharged Army Reservists. |
-| A Drill Sergeant without a combat patch. |
-| A fart so rancid it could clear a mess hall. |
-| A fat chick in the infantry barracks. |
-| A flock of aggressive, horny bald eagles. |
-| A freedom boner. |
-| A gang of E4s. |
-| A hefty spoonful of man the fuck up! |
-| A massive muffin top. |
-| A needy girlfriend who always asks if there is a military discount. |
-| A night of beer, blonde jokes, and genital mutilation. |
-| A Platoon Sergeant claiming 38 soldiers on his tax return. |
-| A private showing up to drill with two left boots, in different colors. |
-| A PVT tangled in C-Wire. |
-| A return without honor. |
-| A shit-ton of booze from the Class VI store. |
-| A squad of Marines breaking down the front door. |
+| $2 bee  pitche   ight at the base bowli g alley. |
+| 16 yea s of se vice a d my pay still sucks. |
+| A ba acks bu y. |
+| A bitchy, stuck-up office 's wife. |
+| A bu ke  fa t that is way loude  tha  expected. |
+| A da ge ous mistake to make. |
+| A Depe dapotamus. |
+| A di ty fucki g Jody. |
+| A disho o ably discha ged A my Rese vists. |
+| A D ill Se gea t without a combat patch. |
+| A fa t so  a cid it could clea  a mess hall. |
+| A fat chick i  the i fa t y ba acks. |
+| A flock of agg essive, ho y bald eagles. |
+| A f eedom bo e . |
+| A ga g of E4s. |
+| A hefty spoo ful of ma  the fuck up! |
+| A massive muffi  top. |
+| A  eedy gi lf ie d who always asks if the e is a milita y discou t. |
+| A  ight of bee , blo de jokes, a d ge ital mutilatio . |
+| A Platoo  Se gea t claimi g 38 soldie s o  his tax  etu . |
+| A p ivate showi g up to d ill with two left boots, i  diffe e t colo s. |
+| A PVT ta gled i  C-Wi e. |
+| A  etu  without ho o . |
+| A shit-to  of booze f om the Class VI sto e. |
+| A squad of Ma i es b eaki g dow  the f o t doo . |
 | A VA hospital. |
-| A vengeful but loving God. |
-| A verbally abusive Platoon Sergeant. |
-| A whole, hearty cup of shut the fuck up! |
-| Abortions for some, miniature American flags for others. |
-| Abusing your rank privileges. |
-| Accidentally punching yourself in the nuts. |
-| Accidentally sending a dick pic to your SGT. |
-| Accidentally taking a Valium before heading into combat. |
-| Amputee porn. |
-| An arms dealer with no arms. |
-| An E4 using a hoverboard while on cleaning detail. |
-| An erection lasting longer than 12 hours. |
-| An iPod filled with porn. |
-| Army wives. |
-| Barracks fist fights. |
-| Battle-hardened grannies. |
-| Be all you can be, unless you're gay. |
-| Beating the living shit out of protesting flag burners. |
-| Being an E4 for 8 years. |
-| Being back-to-back World War Champions! |
-| Being better than every other nation in the fucking world. |
-| Being deployed for so long the sheep start looking attractive. |
-| Being on hold with the VA office for 3 hours. |
-| Being operator as fuck! |
-| Blacking out and causing some serious fucking damage. |
-| Blowing shit up for the laugh. |
-| Blowing your entire paycheck on electronics from the PX. |
-| Brian Tamaki |
-| Brian Williams enlisting in the service. |
-| Bringing a penis to a sword fight. |
-| Calling a Senior NCO "Sir." |
-| Camel spiders. |
-| Carl of Duty. |
-| Changing your beneficiary so your spouse won't get shit. |
-| Chemical castration. |
-| Civilians dead set on bringing down ISIS. |
-| Cleaning the latrine with your toothbrush. |
-| Cleaning your kitchen with a gun. |
-| Collecting exhaust samples. |
-| Communist bastards. |
-| Conduct unbecoming of an officer. |
-| Cranking it in the portashitter. |
-| Cruising in your Black Cadillacs. |
-| Daisy-pulling hippies. |
-| Dancing in the middle of a circle of Marines. |
-| Dating someone within 30 miles of the base. |
-| Deploying to Bum Fuck Egypt. |
-| Driving a tank through a busy playground. |
-| Every inch of my love, supplied by my M9 pistol. |
-| Everyone having the same shitty haircut. |
-| Exercising the "don't ask, don't tell" policy. |
-| Faking an injury to get out of PT. |
-| Farting non-stop. |
-| Fat shaming obese soldiers. |
-| Five barrels of frothy, thick crude oil. |
-| Flying on the wing of the plane, old school style. |
+| A ve geful but lovi g God. |
+| A ve bally abusive Platoo  Se gea t. |
+| A whole, hea ty cup of shut the fuck up! |
+| Abo tio s fo  some, mi iatu e Ame ica  flags fo  othe s. |
+| Abusi g you   a k p ivileges. |
+| Accide tally pu chi g you self i  the  uts. |
+| Accide tally se di g a dick pic to you  SGT. |
+| Accide tally taki g a Valium befo e headi g i to combat. |
+| Amputee po . |
+| A  a ms deale  with  o a ms. |
+| A  E4 usi g a hove boa d while o  clea i g detail. |
+| A  e ectio  lasti g lo ge  tha  12 hou s. |
+| A  iPod filled with po . |
+| A my wives. |
+| Ba acks fist fights. |
+| Battle-ha de ed g a ies. |
+| Be all you ca  be, u less you' e gay. |
+| Beati g the livi g shit out of p otesti g flag bu e s. |
+| Bei g a  E4 fo  8 yea s. |
+| Bei g back-to-back Wo ld Wa  Champio s! |
+| Bei g bette  tha  eve y othe   atio  i  the fucki g wo ld. |
+| Bei g deployed fo  so lo g the sheep sta t looki g att active. |
+| Bei g o  hold with the VA office fo  3 hou s. |
+| Bei g ope ato  as fuck! |
+| Blacki g out a d causi g some se ious fucki g damage. |
+| Blowi g shit up fo  the laugh. |
+| Blowi g you  e ti e paycheck o  elect o ics f om the PX. |
+| B ia  Tamaki |
+| B ia  Williams e listi g i  the se vice. |
+| B i gi g a pe is to a swo d fight. |
+| Calli g a Se io  NCO "Si ." |
+| Camel spide s. |
+| Ca l of Duty. |
+| Cha gi g you  be eficia y so you  spouse wo 't get shit. |
+| Chemical cast atio . |
+| Civilia s dead set o  b i gi g dow  ISIS. |
+| Clea i g the lat i e with you  toothb ush. |
+| Clea i g you  kitche  with a gu . |
+| Collecti g exhaust samples. |
+| Commu ist basta ds. |
+| Co duct u becomi g of a  office . |
+| C a ki g it i  the po tashitte . |
+| C uisi g i  you  Black Cadillacs. |
+| Daisy-pulli g hippies. |
+| Da ci g i  the middle of a ci cle of Ma i es. |
+| Dati g someo e withi  30 miles of the base. |
+| Deployi g to Bum Fuck Egypt. |
+| D ivi g a ta k th ough a busy playg ou d. |
+| Eve y i ch of my love, supplied by my M9 pistol. |
+| Eve yo e havi g the same shitty hai cut. |
+| Exe cisi g the "do 't ask, do 't tell" policy. |
+| Faki g a  i ju y to get out of PT. |
+| Fa ti g  o -stop. |
+| Fat shami g obese soldie s. |
+| Five ba els of f othy, thick c ude oil. |
+| Flyi g o  the wi g of the pla e, old school style. |
 | Fobbits. |
-| Foreign civilians who don't speak English. |
-| Forever regretting the day you told your Platoon Sergeant you didn't have anything to do. |
-| Forgetting to rig the parachute on a M1151 and watching it crash into flames from the sky. |
-| Freshly commissioned Butterbars who think they are hot shit. |
-| Fucking up so bad you had to mop up the rain. |
-| Getting a really, really shitty tattoo. |
-| Getting catfished through Tinder. |
-| Getting divorced, while deployed, via email, on Valentine's Day. |
-| Getting excited to line up nut to butt. |
-| Getting off inches above a pile of collective shit from over 100 men. |
-| Getting really excited for a zombie apocalypse. |
-| Getting stoned, in the Biblical sense. |
-| Giving out Trojan Magnums to Afghan locals and telling them they are the smallest size in America. |
-| Giving war a chance. |
-| Goat Fuckers. |
-| God bless America. |
-| Going "Full Retard." |
-| Going apeshit waiting to begin your leave block. |
-| Going into maximum overdrive. |
-| Going to classes that teach you rape is bad. |
-| Growing a mustache to fit in. |
-| Grunt Life. |
-| Hand lotion. Lots and lots of hand lotion. |
-| Hand-to-gland combat. |
-| Hanging out with Saddam. |
-| Having an orgy in a Porta-Potty during a very hot summer day on Iraqi soil. |
-| Hemorrhoids the size of clementines. |
-| Hiding in a dumpster to get out of morning PT. |
-| Hitler's lost art school acceptance letter. |
-| Hot all consuming fire. |
-| Hours of mindless boredom combined with a room full of testosterone. |
-| Innocent pure love. |
-| Insulting morbidly obese people to make them chase you, then laughing when they suddenly pass out. |
-| JodyMingle.com |
-| Kilroy. Mother Fucking Kilroy. |
-| Learning to cope with thoughts of death and uncertainty. |
-| Libertarians. |
-| Making fun of the Air Force. |
-| Masturbating while on duty. |
-| Mexican food so authentic that Trump would build a wall around it. |
-| Misunderstanding a speech and starting a genocide. |
+| Fo eig  civilia s who do 't speak E glish. |
+| Fo eve   eg etti g the day you told you  Platoo  Se gea t you did 't have a ythi g to do. |
+| Fo getti g to  ig the pa achute o  a M1151 a d watchi g it c ash i to flames f om the sky. |
+| F eshly commissio ed Butte ba s who thi k they a e hot shit. |
+| Fucki g up so bad you had to mop up the  ai . |
+| Getti g a  eally,  eally shitty tattoo. |
+| Getti g catfished th ough Ti de . |
+| Getti g divo ced, while deployed, via email, o  Vale ti e's Day. |
+| Getti g excited to li e up  ut to butt. |
+| Getti g off i ches above a pile of collective shit f om ove  100 me . |
+| Getti g  eally excited fo  a zombie apocalypse. |
+| Getti g sto ed, i  the Biblical se se. |
+| Givi g out T oja  Mag ums to Afgha  locals a d telli g them they a e the smallest size i  Ame ica. |
+| Givi g wa  a cha ce. |
+| Goat Fucke s. |
+| God bless Ame ica. |
+| Goi g "Full Reta d." |
+| Goi g apeshit waiti g to begi  you  leave block. |
+| Goi g i to maximum ove d ive. |
+| Goi g to classes that teach you  ape is bad. |
+| G owi g a mustache to fit i . |
+| G u t Life. |
+| Ha d lotio . Lots a d lots of ha d lotio . |
+| Ha d-to-gla d combat. |
+| Ha gi g out with Saddam. |
+| Havi g a  o gy i  a Po ta-Potty du i g a ve y hot summe  day o  I aqi soil. |
+| Hemo hoids the size of cleme ti es. |
+| Hidi g i  a dumpste  to get out of mo i g PT. |
+| Hitle 's lost a t school accepta ce lette . |
+| Hot all co sumi g fi e. |
+| Hou s of mi dless bo edom combi ed with a  oom full of testoste o e. |
+| I oce t pu e love. |
+| I sulti g mo bidly obese people to make them chase you, the  laughi g whe  they sudde ly pass out. |
+| JodyMi gle.com |
+| Kil oy. Mothe  Fucki g Kil oy. |
+| Lea i g to cope with thoughts of death a d u ce tai ty. |
+| Libe ta ia s. |
+| Maki g fu  of the Ai  Fo ce. |
+| Mastu bati g while o  duty. |
+| Mexica  food so authe tic that T ump would build a wall a ou d it. |
+| Misu de sta di g a speech a d sta ti g a ge ocide. |
 | MRE Date Night. |
 | MURICA! |
-| My girlfriend, whose husband is fighting for your freedom. |
-| My sexual attraction to mashed potatoes. |
-| Nancies. |
-| NCO neglect. |
-| Needing a wheelbarrow to cart around your massive testicles. |
-| Nobody caring that you are airborne qualified. |
-| Officers who make the simplest shit hard AF. |
-| Painting racing stripes on the new tank. |
-| Passing out at the mere thought of live fire. |
-| PCSing to an even bigger shithole than the one where you are currently stationed. |
-| Positive pregnancy tests for sale in Fort Bragg. |
-| Powerlifting to the Backstreet Boys. |
-| PowerPoint Rangers. |
-| Pretending to be a dragon. |
-| Private Handler. |
-| Reenacting Cvil War battles with "Black Lives Matter" activists. |
-| Referring to the Marine Corps Ball as prom. |
-| Replacing the soap in the bathroom dispenser with human semen. |
-| Replacing the term "Battle Buddy" with "Warrior Companion." |
+| My gi lf ie d, whose husba d is fighti g fo  you  f eedom. |
+| My sexual att actio  to mashed potatoes. |
+| Na cies. |
+| NCO  eglect. |
+| Needi g a wheelba ow to ca t a ou d you  massive testicles. |
+| Nobody ca i g that you a e ai bo e qualified. |
+| Office s who make the simplest shit ha d AF. |
+| Pai ti g  aci g st ipes o  the  ew ta k. |
+| Passi g out at the me e thought of live fi e. |
+| PCSi g to a  eve  bigge  shithole tha  the o e whe e you a e cu e tly statio ed. |
+| Positive p eg a cy tests fo  sale i  Fo t B agg. |
+| Powe lifti g to the Backst eet Boys. |
+| Powe Poi t Ra ge s. |
+| P ete di g to be a d ago . |
+| P ivate Ha dle . |
+| Ree acti g Cvil Wa  battles with "Black Lives Matte " activists. |
+| Refe i g to the Ma i e Co ps Ball as p om. |
+| Replaci g the soap i  the bath oom dispe se  with huma  seme . |
+| Replaci g the te m "Battle Buddy" with "Wa io  Compa io ." |
 | Roid Rage. |
-| Settling disputes over the South China Sea with a heated game of tiddlywinks. |
-| Settling for Pepsi, when you really wanted cocaine. |
-| Several Fleshlights. |
+| Settli g disputes ove  the South Chi a Sea with a heated game of tiddlywi ks. |
+| Settli g fo  Pepsi, whe  you  eally wa ted cocai e. |
+| Seve al Fleshlights. |
 | Sheep a.k.a ISIS sex slaves. |
-| Shitting out 3 days of MRES. |
-| Shut your mouth and get in line! |
-| Spiking the punch at a company-sponsored picnic. |
-| Stabbing yourself to hit on the hot nurse at the field hospital. |
-| Stealing a rival company's guidon. |
-| Stolen valor around the holiday season. |
-| Stomping out a crotch fire. |
-| Strangling a hooker with a PT belt. |
-| Suicide Awareness Training. |
-| Taking a date to the PX food court in a sad attempt to get laid. |
-| Taking a shit while you are being observed during a drug test. |
-| Taking commands from the Situation Room. |
-| Tattooing a rank to your body. |
-| That one friend in your group who isn't quite right in the head. |
-| The 1st SGT straight lifting you! |
-| The ability known as "retardation." |
+| Shitti g out 3 days of MRES. |
+| Shut you  mouth a d get i  li e! |
+| Spiki g the pu ch at a compa y-spo so ed pic ic. |
+| Stabbi g you self to hit o  the hot  u se at the field hospital. |
+| Steali g a  ival compa y's guido . |
+| Stole  valo  a ou d the holiday seaso . |
+| Stompi g out a c otch fi e. |
+| St a gli g a hooke  with a PT belt. |
+| Suicide Awa e ess T ai i g. |
+| Taki g a date to the PX food cou t i  a sad attempt to get laid. |
+| Taki g a shit while you a e bei g obse ved du i g a d ug test. |
+| Taki g comma ds f om the Situatio  Room. |
+| Tattooi g a  a k to you  body. |
+| That o e f ie d i  you  g oup who is 't quite  ight i  the head. |
+| The 1st SGT st aight lifti g you! |
+| The ability k ow  as " eta datio ." |
 | The Battle of the Bulge. |
-| The face when you make when PTSD is triggering. |
-| The knife hand. |
-| The many uses of PT belts. |
-| The new generation of sissy bitches. |
-| The notion that greed is good. |
-| The payday loan shop right outside of base. |
-| The Sergeant Major's 15-year-old daughter with massive tits. |
-| The sexual thrill of terrorism. |
-| The sneaking suspicion you're in the wrong place. |
-| The sound of motherfucking FREEDOM! |
+| The face whe  you make whe  PTSD is t igge i g. |
+| The k ife ha d. |
+| The ma y uses of PT belts. |
+| The  ew ge e atio  of sissy bitches. |
+| The  otio  that g eed is good. |
+| The payday loa  shop  ight outside of base. |
+| The Se gea t Majo 's 15-yea -old daughte  with massive tits. |
+| The sexual th ill of te o ism. |
+| The s eaki g suspicio  you' e i  the w o g place. |
+| The sou d of mothe fucki g FREEDOM! |
 | The Soviet gulag. |
-| Those pussies that don't eat bacon. |
-| Threatening to skull fuck a new recruit. |
-| Three cans of chew and six 24 oz. energy drinks. |
-| Throwing hundreds of thousands of dollars at simple problems. |
-| Training soldiers not to marry prostitutes in an attempt to lower divorce rates. |
-| Two bottles of whiskey and a key to the armory. |
-| Unraveling 550 reels to look busy for a significant amount of time. |
-| Unrelenting drone attacks for freedom. |
-| Using a prosthetic limb as a weapon during the drunken brawl. |
-| Using a reflective PT belt to tuck in your boner. |
-| Using an insurgent to fill a pothole. |
-| Using castration as a form of birth control. |
-| Using every part of the animal. |
-| Using the Grindr app as a method to find recruits. |
-| Using your boner as a compass. |
-| Using your GI Bill to pay for culinary school. |
-| Vets who don't give a shit. |
-| Walking around without a PT belt. |
+| Those pussies that do 't eat baco . |
+| Th eate i g to skull fuck a  ew  ec uit. |
+| Th ee ca s of chew a d six 24 oz. e e gy d i ks. |
+| Th owi g hu d eds of thousa ds of dolla s at simple p oblems. |
+| T ai i g soldie s  ot to ma y p ostitutes i  a  attempt to lowe  divo ce  ates. |
+| Two bottles of whiskey a d a key to the a mo y. |
+| U aveli g 550  eels to look busy fo  a sig ifica t amou t of time. |
+| U ele ti g d o e attacks fo  f eedom. |
+| Usi g a p osthetic limb as a weapo  du i g the d u ke  b awl. |
+| Usi g a  eflective PT belt to tuck i  you  bo e . |
+| Usi g a  i su ge t to fill a pothole. |
+| Usi g cast atio  as a fo m of bi th co t ol. |
+| Usi g eve y pa t of the a imal. |
+| Usi g the G i d  app as a method to fi d  ec uits. |
+| Usi g you  bo e  as a compass. |
+| Usi g you  GI Bill to pay fo  culi a y school. |
+| Vets who do 't give a shit. |
+| Walki g a ou d without a PT belt. |
 | Way too much hummus. |
-| Wearing your BDUs in public in order to get things for free. |
-| Willy Wonka's war crimes against America. |
-| Wishing the South has won the war. |
-| Women in the Infantry. |
-| Woodrow "Woody" Wilson, America's Woodiest President. |
-| Yelling "CONTACT" as you empty a full magazine. |
+| Wea i g you  BDUs i  public i  o de  to get thi gs fo  f ee. |
+| Willy Wo ka's wa  c imes agai st Ame ica. |
+| Wishi g the South has wo  the wa . |
+| Wome  i  the I fa t y. |
+| Wood ow "Woody" Wilso , Ame ica's Woodiest P eside t. |
+| Yelli g "CONTACT" as you empty a full magazi e. |
 | YOU CAN'T HANDLE THE TRUTH!! |
-| Your brother impregnating your wife while you are deployed. |
+| You  b othe  imp eg ati g you  wife while you a e deployed. |
 
 |Total amount: 205|
 |---|

@@ -12,14 +12,14 @@ Answers amount: 6
 |---|
 
 ### Answers
-| Question |
+| Answers |
 |---|
-| A bizarre partnership with Cards Against Humanity. |
-| A quiet, poignant acoustic guitar ballad. |
+| A biza e pa t e ship with Ca ds Agai st Huma ity. |
+| A quiet, poig a t acoustic guita  ballad. |
 | Jack White. |
-| Jack White's collection of taxidermied animal heads. |
-| Jack White's mom coming on stage and dancing. |
-| Jack White's testosterone-fueled dementia. |
+| Jack White's collectio  of taxide mied a imal heads. |
+| Jack White's mom comi g o  stage a d da ci g. |
+| Jack White's testoste o e-fueled deme tia. |
 
 |Total amount: 6|
 |---|

@@ -31,71 +31,75 @@ Answers amount: 63
 |---|
 
 ### Answers
-| Question |
+| Answers |
 |---|
-| A giant squid in a wedding gown. |
-| A heart that is two sizes too small and that therefore cannot pump an adequate amount of blood. |
-| A sexy naked interactive theater thing. |
-| Asshole pomegranates that are hard to eat. |
-| Becoming so rich that you shed your body and turn to vapor. |
-| Carribbean Jesus. |
-| Cornhole 101: just drop it in the hole. |
-| Crayon-colored vomit |
-| Dividing by zero. |
-| Ejaculating a pound of tinsel. |
-| Faking a Mental Disorder |
+| A gia t squid i  a weddi g gow . |
+| A hea t that is two sizes too small a d that the efo e ca ot pump a  adequate amou t of blood. |
+| A sexy  aked i te active theate  thi g. |
+| Asshole pomeg a ates that a e ha d to eat. |
+| Becomi g so  ich that you shed you  body a d tu  to vapo . |
+| Ca ibbea  Jesus. |
+| Co hole 101: just d op it i  the hole. |
+| C ayo -colo ed vomit |
+| Dividi g by ze o. |
+| Ejaculati g a pou d of ti sel. |
+| Faki g a Me tal Diso de  |
 | Ladles. |
-| My dickhead roomate. |
-| Playing an ocarina to summon Ultra-Congress from the sea. |
-| Super yoga. |
-| The John D. and Catherine T. MacArthur Foundation. |
-| A dick so big and so black that not even light can escape its pull. |
-| A double murder suicide barbeque. |
-| A primordial soup and salad bar. |
-| A stack of bunnies in a trenchcoat. |
-| At least three ducks. |
-| Becoming engorged with social justice jelly and secreting a thinkpiece. |
-| Being the absolute worst. |
-| Discolored Puss |
-| Greg Kinnear's terrible lightning breath. |
-| Mitt Romney's eight sons Kip, Sam, Trot, Fergis, Toolshed, Grisham, Hawkeye, and Thorp. |
-| Mr. and Mrs. Tambourine Man's jingle-jangle morning sex. |
+| My dickhead  oomate. |
+| Playi g a  oca i a to summo  Ult a-Co g ess f om the sea. |
+| Supe  yoga. |
+| The Joh  D. a d Cathe i e T. MacA thu  Fou datio . |
+| A dick so big a d so black that  ot eve  light ca  escape its pull. |
+| A double mu de  suicide ba beque. |
+| A p imo dial soup a d salad ba . |
+| A stack of bu ies i  a t e chcoat. |
+| At least th ee ducks. |
+| Becomi g e go ged with social justice jelly a d sec eti g a thi kpiece. |
+| Bei g the absolute wo st. |
+| Discolo ed Puss |
+| G eg Ki ea 's te ible light i g b eath. |
+| Mitt Rom ey's eight so s Kip, Sam, T ot, Fe gis, Toolshed, G isham, Hawkeye, a d Tho p. |
+| M . a d M s. Tambou i e Ma 's ji gle-ja gle mo i g sex. |
 | Mushy tushy. |
-| Ringo Starr & His All-Starr Band. |
-| Sandy feet |
-| Saving the Rainforest Cafe. |
-| Sir Thomas More's Fruitopia™. |
-| Sweating it out on the streets of a runaway American Dream. |
-| That one leftover screw. |
-| That thing politicians do with their thumbs when they talk. |
-| The spooky skeleton under my skin. |
-| The token minority. |
-| These dolphins. |
-| Three hairs from the silver-golden head of Galadriel. |
-| Water so cold it turned into a rock. |
+| Ri go Sta  & His All-Sta  Ba d. |
+| Sa dy feet |
+| Savi g the Rai fo est Cafe. |
+| Si  Thomas Mo e's F uitopia™. |
+| Sweati g it out o  the st eets of a  u away Ame ica  D eam. |
+| That o e leftove  sc ew. |
+| That thi g politicia s do with thei  thumbs whe  they talk. |
+| The spooky skeleto  u de  my ski . |
+| The toke  mi o ity. |
+| These dolphi s. |
+| Th ee hai s f om the silve -golde  head of Galad iel. |
+| Wate  so cold it tu ed i to a  ock. |
 | A child's love of sticks. |
-| A man two times the size of a man half his size. |
-| Abandoning all concepts and categories and seeing the world as it truly is. |
-| Abort-tron, the abortion robot. |
-| Achieving total fitness and turning into a mental cube. |
-| Being blind but having super strength but having Alzheimer's Disease by being invisible. |
-| Collapsing into singularity. Twenty minutes fo foreplay, three minutes of coitus, five minutes of rest, back to the yards for some croquet. |
-| Computers. |
-| Cum, but it's ranch. |
-| Fashion... heard of if? |
-| Getting my mind boggled by a gang of mind bogglers. |
-| Letting these hoes know. |
-| Meatballs,meatballs,meatballs! |
-| Passing fart and making toilet. |
-| Running afoul of the Sultan's Janissaries. |
-| Sheboygan, Wisconsin. |
-| Struggling to swallow a live bat. |
-| Taking off my glasses and becoming beautiful. |
-| The tiny man who lives inside the ATM and hands out all the money. |
-| The tiny man who only eats coffee beans and diarrheas into my thermos every morning. |
-| Using electric eels to solve the world's energy crisis. |
-| Why, a hot air balloon of course! |
-| You there!French boy! |
+| A ma  two times the size of a ma  half his size. |
+| Aba do i g all co cepts a d catego ies a d seei g the wo ld as it t uly is. |
+| Abo t-t o , the abo tio   obot. |
+| Achievi g total fit ess a d tu i g i to a me tal cube. |
+| Bei g bli d but havi g supe  st e gth but havi g Alzheime 's Disease by bei g i visible. |
+| Collapsi g i to si gula ity. Twe ty mi utes fo fo eplay, th ee mi utes of coitus, five mi utes of  est, back to the ya ds fo  some c oquet. |
+| Compute s. |
+| Cum, but it's  a ch. |
+| Fashio ... 
+hea d of if? |
+| Getti g my mi d boggled by a ga g of mi d boggle s. |
+| Letti g these hoes k ow. |
+| Meatballs,
+meatballs,
+meatballs! |
+| Passi g fa t a d maki g toilet. |
+| Ru i g afoul of the Sulta 's Ja issa ies. |
+| Sheboyga , Wisco si . |
+| St uggli g to swallow a live bat. |
+| Taki g off my glasses a d becomi g beautiful. |
+| The ti y ma  who lives i side the ATM a d ha ds out all the mo ey. |
+| The ti y ma  who o ly eats coffee bea s a d dia heas i to my the mos eve y mo i g. |
+| Usi g elect ic eels to solve the wo ld's e e gy c isis. |
+| Why, a hot ai  balloo  of cou se! |
+| You the e!
+F e ch boy! |
 
 |Total amount: 63|
 |---|

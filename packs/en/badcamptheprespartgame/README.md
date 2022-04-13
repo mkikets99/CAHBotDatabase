@@ -101,458 +101,458 @@ Answers amount: 450
 |---|
 
 ### Answers
-| Question |
+| Answers |
 |---|
-| A cloud of joylessness that spreads across the Earth. |
-| A giant hole. |
-| A pegasus to Uranus. |
-| A Port-O-Potty on a sweltering August day. |
-| A punch in the fat. |
-| A stick in the eye. |
-| Abandoned ideals. |
+| A cloud of joyless ess that sp eads ac oss the Ea th. |
+| A gia t hole. |
+| A pegasus to U a us. |
+| A Po t-O-Potty o  a swelte i g August day. |
+| A pu ch i  the fat. |
+| A stick i  the eye. |
+| Aba do ed ideals. |
 | ABC gum. |
-| Adult diapers. |
-| Advice from carnies. |
-| Aggressive meditation. |
-| Al Gore riding a humpback whale. |
-| Al Sharpton. |
+| Adult diape s. |
+| Advice f om ca ies. |
+| Agg essive meditatio . |
+| Al Go e  idi g a humpback whale. |
+| Al Sha pto . |
 | Alf. |
-| Another crappy Steve Jobs biography. |
-| Anxiety meds. |
-| Apocalyptic Robot Wars. |
-| Armpit fart noises. |
-| Arson. |
+| A othe  c appy Steve Jobs biog aphy. |
+| A xiety meds. |
+| Apocalyptic Robot Wa s. |
+| A mpit fa t  oises. |
+| A so . |
 | Atomic wedgies. |
 | Awesome stuff. |
-| Awkward middle school dances. |
-| Baby back ribs. |
+| Awkwa d middle school da ces. |
+| Baby back  ibs. |
 | Bae. |
-| Banana hammocks. |
-| Barack's blond wig. |
+| Ba a a hammocks. |
+| Ba ack's blo d wig. |
 | Bats. |
-| Bedazzled boxer shorts. |
-| Beef Chow Mein. |
-| Beer Pong. |
-| Being a shill for extremist groups. |
-| Being chased by goblins. |
-| Being nice to chipmunks. |
-| Being thick with nectar. |
+| Bedazzled boxe  sho ts. |
+| Beef Chow Mei . |
+| Bee  Po g. |
+| Bei g a shill fo  ext emist g oups. |
+| Bei g chased by gobli s. |
+| Bei g  ice to chipmu ks. |
+| Bei g thick with  ecta . |
 | Belly flops. |
-| Belting out power ballads in the shower. |
-| Betrayal. |
-| Bicep rubdowns. |
-| Biden's IROC Camaro. |
-| Biden's rockin mullet. |
-| Big turd factories. |
-| Bile filled burps. |
-| Binge watching Golden Girls. |
-| Bingo at the senior center. |
-| Bitter hatred. |
-| Bloodthirsty dictators. |
-| Blowing chunks. |
-| Bobbing for guinea pigs. |
-| Boring weekends in Amish Country. |
-| Bouncing on a pogo stick. |
-| Bowing to my corporate masters. |
-| Boxed wine. |
-| Brazilian wax jobs. |
-| Breasts |
-| Breathing heavily on the phone and then quickly hanging up. |
-| Brown Toledo tap water. |
-| Bruce's Yams. |
-| Bruised bananas. |
-| Brushing a life size doll's hair all day. |
-| Brushing my teeth once a week. |
-| Buckets of fried chicken. |
-| Buldge revealing unitards. |
+| Belti g out powe  ballads i  the showe . |
+| Bet ayal. |
+| Bicep  ubdow s. |
+| Bide 's IROC Cama o. |
+| Bide 's  ocki  mullet. |
+| Big tu d facto ies. |
+| Bile filled bu ps. |
+| Bi ge watchi g Golde  Gi ls. |
+| Bi go at the se io  ce te . |
+| Bitte  hat ed. |
+| Bloodthi sty dictato s. |
+| Blowi g chu ks. |
+| Bobbi g fo  gui ea pigs. |
+| Bo i g weeke ds i  Amish Cou t y. |
+| Bou ci g o  a pogo stick. |
+| Bowi g to my co po ate maste s. |
+| Boxed wi e. |
+| B azilia  wax jobs. |
+| B easts |
+| B eathi g heavily o  the pho e a d the  quickly ha gi g up. |
+| B ow  Toledo tap wate . |
+| B uce's Yams. |
+| B uised ba a as. |
+| B ushi g a life size doll's hai  all day. |
+| B ushi g my teeth o ce a week. |
+| Buckets of f ied chicke . |
+| Buldge  eveali g u ita ds. |
 | Butt flu. |
 | Butt pimples. |
-| Canker sores. |
-| Captain Planet. |
-| Caroling with Yoda. |
+| Ca ke  so es. |
+| Captai  Pla et. |
+| Ca oli g with Yoda. |
 | Cats with gas. |
-| Chasing sheep across the hills. |
+| Chasi g sheep ac oss the hills. |
 | Cheap booze. |
 | Cheapskates. |
-| Chewing on handfulls of Mexican pharmacy drugs. |
-| Chili cheese fries. |
-| Chillin with my homies. |
-| Chinese food. |
-| Chris Christie's neck flab. |
+| Chewi g o  ha dfulls of Mexica  pha macy d ugs. |
+| Chili cheese f ies. |
+| Chilli  with my homies. |
+| Chi ese food. |
+| Ch is Ch istie's  eck flab. |
 | Cock fights. |
-| Coffins. |
-| Communism. |
-| Conversations with an indifferent moose. |
-| Cougars. |
-| Cow tipping. |
-| Crack houses. |
-| Crotch kicks. |
-| Crotch rockets. |
-| Crushing debt. |
-| Dance fights. |
-| Dancing the Macarena. |
-| Dangling hotdogs over a shark tank. |
-| Dating people with low self-esteem. |
-| Dead end jobs. |
-| Deep hamstring stretches with Donald Trump. |
-| Deez nuts. |
+| Coffi s. |
+| Commu ism. |
+| Co ve satio s with a  i diffe e t moose. |
+| Couga s. |
+| Cow tippi g. |
+| C ack houses. |
+| C otch kicks. |
+| C otch  ockets. |
+| C ushi g debt. |
+| Da ce fights. |
+| Da ci g the Maca e a. |
+| Da gli g hotdogs ove  a sha k ta k. |
+| Dati g people with low self-esteem. |
+| Dead e d jobs. |
+| Deep hamst i g st etches with Do ald T ump. |
+| Deez  uts. |
 | Deflated balls. |
-| Destroying the economy. |
-| Destroying the outdoors. |
-| Diamond studded grillz. |
-| Dick Cheney's glistening forehead. |
-| Digging out belly lint. |
+| Dest oyi g the eco omy. |
+| Dest oyi g the outdoo s. |
+| Diamo d studded g illz. |
+| Dick Che ey's gliste i g fo ehead. |
+| Diggi g out belly li t. |
 | Dimwitted Diplomats. |
-| Disco Inferno. |
-| Disney's cryogenically frozen head. |
-| Dolphins eating potato chips. |
-| Dork face. |
-| Double rainbows. |
-| Dropping my phone in the toilet. |
-| Drunk Secret Service Agents. |
-| Drunken selfies. |
-| Dry heaves. |
-| Dumpster fires. |
-| Eating a gallon of ice cream alone in the dark. |
-| Eating dirt. |
-| Embezzling. |
-| Endless invitations to play candy crush. |
-| Endless pleasure. |
-| Erotic haiku. |
-| Exceedingly low standards. |
-| Explosive diarrhoea |
-| Extra meat in burrito bowls. |
-| Extreme comb-overs. |
-| Extreme couponing. |
-| Facebook stalking. |
-| Failing inner city schools. |
-| Falling sleep on the toilet. |
-| Fat lobsters. |
-| Fat old Juan. |
-| Filthy liars. |
-| Finding a date on Craigslist. |
-| Fishnet stockings. |
+| Disco I fe o. |
+| Dis ey's c yoge ically f oze  head. |
+| Dolphi s eati g potato chips. |
+| Do k face. |
+| Double  ai bows. |
+| D oppi g my pho e i  the toilet. |
+| D u k Sec et Se vice Age ts. |
+| D u ke  selfies. |
+| D y heaves. |
+| Dumpste  fi es. |
+| Eati g a gallo  of ice c eam alo e i  the da k. |
+| Eati g di t. |
+| Embezzli g. |
+| E dless i vitatio s to play ca dy c ush. |
+| E dless pleasu e. |
+| E otic haiku. |
+| Exceedi gly low sta da ds. |
+| Explosive dia hoea |
+| Ext a meat i  bu ito bowls. |
+| Ext eme comb-ove s. |
+| Ext eme coupo i g. |
+| Facebook stalki g. |
+| Faili g i e  city schools. |
+| Falli g sleep o  the toilet. |
+| Fat lobste s. |
+| Fat old Jua . |
+| Filthy lia s. |
+| Fi di g a date o  C aigslist. |
+| Fish et stocki gs. |
 | Flabby bulge. |
 | Flapjacks. |
-| Flesh eating bacteria. |
+| Flesh eati g bacte ia. |
 | Floppy jowls. |
-| Flying squirrels. |
+| Flyi g squi els. |
 | Footie pajamas. |
-| Forbidden love. |
-| French kissing. |
-| Fresh coconuts. |
-| Fresh Prince reruns. |
-| Fried bologna. |
+| Fo bidde  love. |
+| F e ch kissi g. |
+| F esh coco uts. |
+| F esh P i ce  e u s. |
+| F ied bolog a. |
 | Fudge. |
-| Gas station sushi. |
-| Gator Wrasslin. |
-| Gently touching the boa constrictor. |
-| George Bush's jorts. |
-| George Bush's nude self portrait. |
-| Gerbils with leprosy. |
-| Gin. |
-| Gingivitis. |
-| Giraffe tongue. |
-| Giving the finger to lame hipsters with beards. |
-| Giving up. |
-| Glittery vampires. |
-| Gluing quarters to the sidewalk. |
-| Going commando. |
-| Going to the Inauguration Ball with my slow cousin. |
-| Government shutdowns. |
-| Granny panties. |
-| Grape soda. |
-| Greasy foreigners. |
-| Grizzly Bears. |
-| Guns. |
-| Ham sandwiches. |
-| Hemorrhoid cream. |
-| Hillary's chin hair. |
-| Hillary's leather whip. |
-| Hocking loogies on voters from the rooftop. |
-| Holding hands with my imaginary friend. |
-| Homemade chunky yogurt. |
-| Hopelessness. |
-| Hormonal hurricanes. |
+| Gas statio  sushi. |
+| Gato  W assli . |
+| Ge tly touchi g the boa co st icto . |
+| Geo ge Bush's jo ts. |
+| Geo ge Bush's  ude self po t ait. |
+| Ge bils with lep osy. |
+| Gi . |
+| Gi givitis. |
+| Gi affe to gue. |
+| Givi g the fi ge  to lame hipste s with bea ds. |
+| Givi g up. |
+| Glitte y vampi es. |
+| Glui g qua te s to the sidewalk. |
+| Goi g comma do. |
+| Goi g to the I augu atio  Ball with my slow cousi . |
+| Gove me t shutdow s. |
+| G a y pa ties. |
+| G ape soda. |
+| G easy fo eig e s. |
+| G izzly Bea s. |
+| Gu s. |
+| Ham sa dwiches. |
+| Hemo hoid c eam. |
+| Hilla y's chi  hai . |
+| Hilla y's leathe  whip. |
+| Hocki g loogies o  vote s f om the  ooftop. |
+| Holdi g ha ds with my imagi a y f ie d. |
+| Homemade chu ky yogu t. |
+| Hopeless ess. |
+| Ho mo al hu ica es. |
 | Hot beef. |
-| Hot wings. |
-| Humiliating our allies. |
-| Humiliating part time jobs. |
-| Hunting with Dick Cheney. |
-| Ice cold 40 oz. King Cobra. |
-| Ignoring the Constitution. |
-| Indian burns. |
-| Ineptitude. |
-| Inflaming religious groups. |
-| Inhaling helium before every speech. |
-| Insulting Santa Claus. |
-| IRS ice cream socials. |
+| Hot wi gs. |
+| Humiliati g ou  allies. |
+| Humiliati g pa t time jobs. |
+| Hu ti g with Dick Che ey. |
+| Ice cold 40 oz. Ki g Cob a. |
+| Ig o i g the Co stitutio . |
+| I dia  bu s. |
+| I eptitude. |
+| I flami g  eligious g oups. |
+| I hali g helium befo e eve y speech. |
+| I sulti g Sa ta Claus. |
+| IRS ice c eam socials. |
 | Jello shots. |
-| Jelly beans. |
-| John Kerry's beat box album. |
-| John Kerry's dream journal. |
-| Juicy bacon cheeseburgers. |
-| Kazoo lessons. |
-| Keg stands. |
-| Kicking a bodybuilder when he isn't looking and then running away. |
-| KISS coverbands. |
-| Lame pharmaceutical commercials. |
-| Languidly dancing in front of the bathroom mirror. |
-| Larry. |
-| Late night burritos. |
-| Laughing while people talk about their goals in life. |
-| Lawyers. |
-| Leprechaun traps. |
-| Licking the bathroom floor. |
-| Lightsabers. |
-| Limp handshakes. |
-| Lip injections. |
-| Liposuction. |
-| Losing faith in humanity. |
-| Lukewarm hot dogs. |
-| Lunch bags filled with glue. |
-| Lying nightly news anchors. |
-| Making Chinese diplomats pull my finger. |
-| Making fun of the Prime Minister's teeth. |
+| Jelly bea s. |
+| Joh  Ke y's beat box album. |
+| Joh  Ke y's d eam jou al. |
+| Juicy baco  cheesebu ge s. |
+| Kazoo lesso s. |
+| Keg sta ds. |
+| Kicki g a bodybuilde  whe  he is 't looki g a d the   u i g away. |
+| KISS cove ba ds. |
+| Lame pha maceutical comme cials. |
+| La guidly da ci g i  f o t of the bath oom mi o . |
+| La y. |
+| Late  ight bu itos. |
+| Laughi g while people talk about thei  goals i  life. |
+| Lawye s. |
+| Lep echau  t aps. |
+| Licki g the bath oom floo . |
+| Lightsabe s. |
+| Limp ha dshakes. |
+| Lip i jectio s. |
+| Liposuctio . |
+| Losi g faith i  huma ity. |
+| Lukewa m hot dogs. |
+| Lu ch bags filled with glue. |
+| Lyi g  ightly  ews a cho s. |
+| Maki g Chi ese diplomats pull my fi ge . |
+| Maki g fu  of the P ime Mi iste 's teeth. |
 | Mamma's boy. |
-| Marco Rubio's hair gel. |
-| Margarita night. |
+| Ma co Rubio's hai  gel. |
+| Ma ga ita  ight. |
 | Mashed potatoes. |
 | Medical waste. |
 | Meth labs. |
-| Mind numbing lectures. |
-| Mindless consumerism. |
-| Minimum wage. |
-| Money. |
-| Monster trucks. |
-| Mother Earth's goodness. |
-| Muffin tops. |
-| Murder. |
-| My beer gut. |
-| My candyass running mate. |
-| My coworkers boring vacation photos. |
-| My dickhead roomate. |
+| Mi d  umbi g lectu es. |
+| Mi dless co sume ism. |
+| Mi imum wage. |
+| Mo ey. |
+| Mo ste  t ucks. |
+| Mothe  Ea th's good ess. |
+| Muffi  tops. |
+| Mu de . |
+| My bee  gut. |
+| My ca dyass  u i g mate. |
+| My cowo ke s bo i g vacatio  photos. |
+| My dickhead  oomate. |
 | My happy place. |
 | My hillbilly family. |
 | My meat. |
 | My milkshake. |
-| My pants. |
+| My pa ts. |
 | My pet llama. |
 | My psycho ex. |
-| My soft eyes and pouty lips. |
-| My tight fitting, grease stained sweatshirt. |
-| Neck beards. |
-| Night terrors. |
-| Ninjas. |
-| North Korean bowling shoes. |
-| Not being able to button your pants. |
-| Not really caring about global warming. |
-| Obama's Portuguese water dog. |
+| My soft eyes a d pouty lips. |
+| My tight fitti g, g ease stai ed sweatshi t. |
+| Neck bea ds. |
+| Night te o s. |
+| Ni jas. |
+| No th Ko ea  bowli g shoes. |
+| Not bei g able to butto  you  pa ts. |
+| Not  eally ca i g about global wa mi g. |
+| Obama's Po tuguese wate  dog. |
 | Obama's swim cap. |
 | Obese sex. |
 | Olive loaf. |
-| Our Chinese Overlords. |
-| Our country's pathetic youth. |
-| Outlandish beliefs. |
-| Overly sensitive vegetarians. |
+| Ou  Chi ese Ove lo ds. |
+| Ou  cou t y's pathetic youth. |
+| Outla dish beliefs. |
+| Ove ly se sitive vegeta ia s. |
 | Patty cake with Rush Limbaugh. |
-| Percocet. |
-| Perfect hair. |
-| Performing a rain dance while wearing only chaps. |
-| Perusing farmersonly.com |
-| Petting a lobster. |
-| Picking bugs out of a hippies dreadlocks. |
-| Picking scabs. |
-| Pigeon droppings. |
-| Piles of nukes. |
+| Pe cocet. |
+| Pe fect hai . |
+| Pe fo mi g a  ai  da ce while wea i g o ly chaps. |
+| Pe usi g fa me so ly.com |
+| Petti g a lobste . |
+| Picki g bugs out of a hippies d eadlocks. |
+| Picki g scabs. |
+| Pigeo  d oppi gs. |
+| Piles of  ukes. |
 | Pillow fights. |
-| Pina Coladas. |
+| Pi a Coladas. |
 | Pit bulls. |
-| Pit stains. |
-| Pitching a tent. |
+| Pit stai s. |
+| Pitchi g a te t. |
 | Pizza bagels. |
-| Plantar warts. |
-| Playing tag with Jeb Bush. |
-| Playing with my Slinky. |
-| Plucking nipple hair. |
+| Pla ta  wa ts. |
+| Playi g tag with Jeb Bush. |
+| Playi g with my Sli ky. |
+| Plucki g  ipple hai . |
 | Pocket hockey. |
-| Pointing out other people's flaws. |
-| Pointy bras. |
-| Poison. |
-| Popping zits. |
-| Powdered donuts. |
-| Pretending I'm not dead on the inside. |
-| Prince Charles on a Slip'N Slide. |
-| Princess jammies. |
-| Pudding skin. |
-| Punching mimes. |
-| Purple nurples. |
+| Poi ti g out othe  people's flaws. |
+| Poi ty b as. |
+| Poiso . |
+| Poppi g zits. |
+| Powde ed do uts. |
+| P ete di g I'm  ot dead o  the i side. |
+| P i ce Cha les o  a Slip'N Slide. |
+| P i cess jammies. |
+| Puddi g ski . |
+| Pu chi g mimes. |
+| Pu ple  u ples. |
 | Pus. |
-| Putin's scalp cream. |
-| Questionable modern art. |
-| Quilting with Aunt Gertrude. |
-| Racing Hoveround Scooters. |
+| Puti 's scalp c eam. |
+| Questio able mode  a t. |
+| Quilti g with Au t Ge t ude. |
+| Raci g Hove ou d Scoote s. |
 | Radical socialism. |
-| Rainbow wigs. |
-| Rainbows and Unicorns. |
-| Random prescription side effects. |
-| Raving lunatics. |
-| Rectal thermometers. |
-| Repealing the First Amendment. |
-| Reptilian Senators. |
-| Riding a burro to a Taco Bell. |
-| Riding a unicycle. |
-| Riding the Loch Ness Monster while guzzling scotch. |
-| Ripe melons. |
+| Rai bow wigs. |
+| Rai bows a d U ico s. |
+| Ra dom p esc iptio  side effects. |
+| Ravi g lu atics. |
+| Rectal the momete s. |
+| Repeali g the Fi st Ame dme t. |
+| Reptilia  Se ato s. |
+| Ridi g a bu o to a Taco Bell. |
+| Ridi g a u icycle. |
+| Ridi g the Loch Ness Mo ste  while guzzli g scotch. |
+| Ripe melo s. |
 | Roach motels. |
-| Robbing dollar stores. |
-| Rolling Bubble Boy down a hill. |
-| Rubber duckies. |
-| Rubber nipples. |
-| Rubbing the Buddha. |
-| Rubbing the pot roast all over my chest. |
-| Running naked through sprinklers. |
-| Ruth Bader Ginsburg's hard core rap album. |
-| Salty nuts. |
-| Sarah Palin's crazy pills. |
-| Screaming at inanimate objects. |
-| Seated aerobics. |
-| Secular wickedness. |
-| Senators on performance enhancing drugs. |
-| Serial killers. |
-| Serving Riunite to the French delegation. |
-| Sexy Abe Lincoln. |
-| Shameless pandering. |
-| Sharp objects. |
-| Shaving a gorilla. |
-| Shoplifting. |
-| Shotgunning brewskies. |
+| Robbi g dolla  sto es. |
+| Rolli g Bubble Boy dow  a hill. |
+| Rubbe  duckies. |
+| Rubbe   ipples. |
+| Rubbi g the Buddha. |
+| Rubbi g the pot  oast all ove  my chest. |
+| Ru i g  aked th ough sp i kle s. |
+| Ruth Bade  Gi sbu g's ha d co e  ap album. |
+| Salty  uts. |
+| Sa ah Pali 's c azy pills. |
+| Sc eami g at i a imate objects. |
+| Seated ae obics. |
+| Secula  wicked ess. |
+| Se ato s o  pe fo ma ce e ha ci g d ugs. |
+| Se ial kille s. |
+| Se vi g Riu ite to the F e ch delegatio . |
+| Sexy Abe Li col . |
+| Shameless pa de i g. |
+| Sha p objects. |
+| Shavi g a go illa. |
+| Shoplifti g. |
+| Shotgu i g b ewskies. |
 | Sissies. |
 | Six pack abs. |
-| Slapping the monkey. |
+| Slappi g the mo key. |
 | Sloppy Joes. |
-| Smiles and hugs. |
-| Smoking crack. |
-| Smoking three packs a day. |
+| Smiles a d hugs. |
+| Smoki g c ack. |
+| Smoki g th ee packs a day. |
 | Smooth jazz. |
-| Snot rockets. |
-| Soccer moms. |
-| Soul Train reruns. |
+| S ot  ockets. |
+| Socce  moms. |
+| Soul T ai   e u s. |
 | Soupy coleslaw. |
 | Space zombies. |
-| Spanky time. |
-| Speaking gibberish and pretending its Spanish. |
-| Spider veins. |
-| Spontaneous breakdancing. |
-| Spray tans. |
-| Spreading joy throughout the land. |
-| Squeezing the Charmin. |
-| Stadium urinals. |
-| Stained motel pillows. |
-| Stained underwear. |
-| Stalking Britney Spears. |
-| Stanky breath. |
-| Stapling my pants to a chair. |
-| Star Trek nerds. |
-| Staring contests with Washington's portrait. |
-| Steaming bowls of beans. |
-| Stepping on a Lego. |
-| Stranger danger. |
-| Strechy pants. |
-| Strippers. |
-| Stroking the camel. |
-| Stuffing the ballot box with pepperoni. |
-| Sucking my thumb. |
-| Sucking on an exhaust pipe. |
-| Sweatin' to the Oldies. |
+| Spa ky time. |
+| Speaki g gibbe ish a d p ete di g its Spa ish. |
+| Spide  vei s. |
+| Spo ta eous b eakda ci g. |
+| Sp ay ta s. |
+| Sp eadi g joy th oughout the la d. |
+| Squeezi g the Cha mi . |
+| Stadium u i als. |
+| Stai ed motel pillows. |
+| Stai ed u de wea . |
+| Stalki g B it ey Spea s. |
+| Sta ky b eath. |
+| Stapli g my pa ts to a chai . |
+| Sta  T ek  e ds. |
+| Sta i g co tests with Washi gto 's po t ait. |
+| Steami g bowls of bea s. |
+| Steppi g o  a Lego. |
+| St a ge  da ge . |
+| St echy pa ts. |
+| St ippe s. |
+| St oki g the camel. |
+| Stuffi g the ballot box with peppe o i. |
+| Sucki g my thumb. |
+| Sucki g o  a  exhaust pipe. |
+| Sweati ' to the Oldies. |
 | Sweatshops. |
-| Sweaty Elvis impersonators. |
+| Sweaty Elvis impe so ato s. |
 | Swedish meatballs. |
-| Sweet cherry pie. |
+| Sweet che y pie. |
 | Sweet mixtapes. |
-| Talking baby movies. |
-| Tax seminars. |
-| Ted Cruz's bong pipe. |
-| Teen Wolf. |
-| Teepeeing the Veep's house. |
-| Telling Putin dirty jokes. |
-| Telling the same fart joke over and over. |
-| Tequila shooters. |
-| That Band-Aid I found in my burger. |
-| That creep in accounting. |
-| That cute Congressman. |
-| That idiot at Starbucks who sits there for hours using free Wifi. |
-| That jerk that over pronounces foreign words. |
-| That little hard bit you find in your chicken nuggets. |
-| That nerd who takes forever to order at Panera. |
-| That one freakishly long nose hair. |
-| That rank odor coming from the dog. |
-| That scary clown standing right behind you. |
-| The boogeyman. |
-| The darkness that lies deep within my soul. |
+| Talki g baby movies. |
+| Tax semi a s. |
+| Ted C uz's bo g pipe. |
+| Tee  Wolf. |
+| Teepeei g the Veep's house. |
+| Telli g Puti  di ty jokes. |
+| Telli g the same fa t joke ove  a d ove . |
+| Tequila shoote s. |
+| That Ba d-Aid I fou d i  my bu ge . |
+| That c eep i  accou ti g. |
+| That cute Co g essma . |
+| That idiot at Sta bucks who sits the e fo  hou s usi g f ee Wifi. |
+| That je k that ove  p o ou ces fo eig  wo ds. |
+| That little ha d bit you fi d i  you  chicke   uggets. |
+| That  e d who takes fo eve  to o de  at Pa e a. |
+| That o e f eakishly lo g  ose hai . |
+| That  a k odo  comi g f om the dog. |
+| That sca y clow  sta di g  ight behi d you. |
+| The boogeyma . |
+| The da k ess that lies deep withi  my soul. |
 | The Dump. |
-| The extra fries in the bottom of the bag. |
-| The gale force of a thousand seastorms. |
+| The ext a f ies i  the bottom of the bag. |
+| The gale fo ce of a thousa d seasto ms. |
 | The meat sweats. |
-| The poor and disenfranchised. |
-| The Pork Festival Pagent Queen. |
+| The poo  a d dise f a chised. |
+| The Po k Festival Page t Quee . |
 | The Rock. |
-| The Supreme Court Jazz Choir. |
-| The Supreme Court Swimsuit Calendar. |
+| The Sup eme Cou t Jazz Choi . |
+| The Sup eme Cou t Swimsuit Cale da . |
 | The thug life. |
-| The Truffle Shuffle. |
-| Thick arm hair. |
-| Those sleazeballs in Congress. |
-| Three martini lunches. |
-| Thumb wrestling. |
-| Tick infested hell holes. |
+| The T uffle Shuffle. |
+| Thick a m hai . |
+| Those sleazeballs i  Co g ess. |
+| Th ee ma ti i lu ches. |
+| Thumb w estli g. |
+| Tick i fested hell holes. |
 | Tighty whities. |
-| Tiptoeing through the tulips. |
-| Toenail fungus. |
-| Toga parties. |
+| Tiptoei g th ough the tulips. |
+| Toe ail fu gus. |
+| Toga pa ties. |
 | Tossed salad. |
-| Total and complete boredom. |
-| Trailer parks. |
-| Trampy Halloween costumes. |
-| Tripping elderly roller skaters. |
-| Trolling Twitter. |
-| Truck stop love. |
-| Twig and berries. |
-| Unbearable sadness. |
-| Uncomfortable staring. |
-| Uncontrollable public drooling. |
-| Uncontrollable weeping. |
-| Underfunding public schools. |
-| Underwater monsters. |
-| Unidentified burning crotch rash. |
-| Vanilla Ice. |
-| Verbally abusing the shift manager at Arby's. |
-| Vests for snakes. |
+| Total a d complete bo edom. |
+| T aile  pa ks. |
+| T ampy Hallowee  costumes. |
+| T ippi g elde ly  olle  skate s. |
+| T olli g Twitte . |
+| T uck stop love. |
+| Twig a d be ies. |
+| U bea able sad ess. |
+| U comfo table sta i g. |
+| U co t ollable public d ooli g. |
+| U co t ollable weepi g. |
+| U de fu di g public schools. |
+| U de wate  mo ste s. |
+| U ide tified bu i g c otch  ash. |
+| Va illa Ice. |
+| Ve bally abusi g the shift ma age  at A by's. |
+| Vests fo  s akes. |
 | Vicious attack ads. |
-| Visiting Snarlac the jungle planet of Alpha Centauri. |
-| Voodoo curses. |
-| Vote for Mob favors. |
-| Wasting the whole day eating churros. |
-| Water balloons filled with maple syrup. |
-| Waterslides. |
-| Weapons of mass destruction. |
-| Wearing a pink fedora. |
+| Visiti g S a lac the ju gle pla et of Alpha Ce tau i. |
+| Voodoo cu ses. |
+| Vote fo  Mob favo s. |
+| Wasti g the whole day eati g chu os. |
+| Wate  balloo s filled with maple sy up. |
+| Wate slides. |
+| Weapo s of mass dest uctio . |
+| Wea i g a pi k fedo a. |
 | Weed. |
-| Weenie roasts. |
+| Wee ie  oasts. |
 | Wet cheese. |
 | Wet willies. |
-| Whatever. |
-| Whiskey served in a dirty glass. |
+| Whateve . |
+| Whiskey se ved i  a di ty glass. |
 | Wiffle ball. |
-| Witchcraft. |
-| Wizard spells. |
-| Wooden teeth. |
+| Witchc aft. |
+| Wiza d spells. |
+| Woode  teeth. |
 | Yo Momma. |
 | Yo sista so dumb. |
-| Yoga pants. |
-| Your face. |
-| Zentos- King of the barbarian horde. |
-| Zero effort. |
+| Yoga pa ts. |
+| You  face. |
+| Ze tos- Ki g of the ba ba ia  ho de. |
+| Ze o effo t. |
 
 |Total amount: 450|
 |---|

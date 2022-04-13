@@ -17,34 +17,34 @@ Answers amount: 26
 |---|
 
 ### Answers
-| Question |
+| Answers |
 |---|
-| A CGI dragon. |
-| A dwarf who won't leave you alone until you compare penis sizes. |
-| A gay sorcerer who turns everyone gay. |
+| A CGI d ago . |
+| A dwa f who wo 't leave you alo e u til you compa e pe is sizes. |
+| A gay so ce e  who tu s eve yo e gay. |
 | A ghoul. |
-| A Hitachi Magic Wand. |
-| A magical kingdom with dragons and elves and no black people. |
-| A mysterious, floating orb. |
-| A weed elemental who gets everyone high. |
-| Accidentally conjuring a legless horse that can't stop ejaculating. |
-| Bathing naked in a moonlit grove. |
-| Dinosaurs who wear armor and you ride them and they kick ass. |
-| Eternal darkness. |
-| Freaky, pan-dimensional sex with a demigod. |
-| Gender equality. |
-| Going on an epic adventure and learning a valuable lesson about friendship. |
-| Handcuffing a wizard to a radiator and dousing him with kerosene. |
-| Hodor. |
-| How hot Orlando Bloom was in Lord of the Rings. |
-| Kneeing a wizard in the balls. |
-| Make-believe stories for autistic white men. |
-| Reading The Hobbit under the covers while mom and dad scream at each other downstairs. |
-| Shitting in a wizard's spell book and jizzing in his hat. |
-| Shooting a wizard with a gun. |
-| The all-seeing Eye of Sauron. |
-| The card Neil Gaiman wrote: "Three elves at a time." |
-| True love's kiss. |
+| A Hitachi Magic Wa d. |
+| A magical ki gdom with d ago s a d elves a d  o black people. |
+| A myste ious, floati g o b. |
+| A weed eleme tal who gets eve yo e high. |
+| Accide tally co ju i g a legless ho se that ca 't stop ejaculati g. |
+| Bathi g  aked i  a moo lit g ove. |
+| Di osau s who wea  a mo  a d you  ide them a d they kick ass. |
+| Ete al da k ess. |
+| F eaky, pa -dime sio al sex with a demigod. |
+| Ge de  equality. |
+| Goi g o  a  epic adve tu e a d lea i g a valuable lesso  about f ie dship. |
+| Ha dcuffi g a wiza d to a  adiato  a d dousi g him with ke ose e. |
+| Hodo . |
+| How hot O la do Bloom was i  Lo d of the Ri gs. |
+| K eei g a wiza d i  the balls. |
+| Make-believe sto ies fo  autistic white me . |
+| Readi g The Hobbit u de  the cove s while mom a d dad sc eam at each othe  dow stai s. |
+| Shitti g i  a wiza d's spell book a d jizzi g i  his hat. |
+| Shooti g a wiza d with a gu . |
+| The all-seei g Eye of Sau o . |
+| The ca d Neil Gaima  w ote: "Th ee elves at a time." |
+| T ue love's kiss. |
 
 |Total amount: 26|
 |---|

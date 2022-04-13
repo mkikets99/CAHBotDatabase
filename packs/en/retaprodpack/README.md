@@ -12,27 +12,27 @@ Answers amount: 19
 |---|
 
 ### Answers
-| Question |
+| Answers |
 |---|
-| A framed photocopy of an oil painting of Paris, France. |
-| A Pringle.® |
-| A Pringles® can full of screams. |
-| An 89-year-old woman with time and gravity-affected breast implants jumping rope. |
-| An exclusive partnership with Taylor Swift. |
-| Blood Pringles.® |
-| Buying and returning clothes just to have someone to talk to. |
-| Buying the right toothbrush cup for my lifestyle. |
-| Confusing possessions with accomplishments. |
-| Crunchy snacks for my big flappy mouth. |
-| Extracting the maximum amount of money from naive consumers. |
-| Gender-neutral toys that make children feel no emotions whatsoever. |
-| Getting eaten out in the family fitting room. |
-| How fun it is to eat Pringles.® |
-| Refusing to go up a size. |
-| Saving 20% or more on khakis. |
-| Shiny gadgets for sadness distraction. |
-| Subsisting on tiny pizzas. |
-| The obscene amount of money Cards Against Humanity is making by selling this game at Target.® |
+| A f amed photocopy of a  oil pai ti g of Pa is, F a ce. |
+| A P i gle.® |
+| A P i gles® ca  full of sc eams. |
+| A  89-yea -old woma  with time a d g avity-affected b east impla ts jumpi g  ope. |
+| A  exclusive pa t e ship with Taylo  Swift. |
+| Blood P i gles.® |
+| Buyi g a d  etu i g clothes just to have someo e to talk to. |
+| Buyi g the  ight toothb ush cup fo  my lifestyle. |
+| Co fusi g possessio s with accomplishme ts. |
+| C u chy s acks fo  my big flappy mouth. |
+| Ext acti g the maximum amou t of mo ey f om  aive co sume s. |
+| Ge de - eut al toys that make child e  feel  o emotio s whatsoeve . |
+| Getti g eate  out i  the family fitti g  oom. |
+| How fu  it is to eat P i gles.® |
+| Refusi g to go up a size. |
+| Savi g 20% o  mo e o  khakis. |
+| Shi y gadgets fo  sad ess dist actio . |
+| Subsisti g o  ti y pizzas. |
+| The obsce e amou t of mo ey Ca ds Agai st Huma ity is maki g by selli g this game at Ta get.® |
 
 |Total amount: 19|
 |---|

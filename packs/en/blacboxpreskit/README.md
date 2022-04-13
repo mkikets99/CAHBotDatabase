@@ -11,9 +11,9 @@ Answers amount: 1
 |---|
 
 ### Answers
-| Question |
+| Answers |
 |---|
-| Lighting a circle of black candles and trying every flavor of Doritos®. |
+| Lighti g a ci cle of black ca dles a d t yi g eve y flavo  of Do itos®. |
 
 |Total amount: 1|
 |---|

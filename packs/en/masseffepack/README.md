@@ -15,18 +15,18 @@ Answers amount: 10
 |---|
 
 ### Answers
-| Question |
+| Answers |
 |---|
-| An armored Krogan war-clitoris. |
-| An emergency induction port. |
-| An extremely long elevator ride. |
-| Bone-shattering sex with a metal woman. |
-| Falling I actual love with a video game character. |
-| My complicated backstory that you will soon learn about. |
-| Running a few errands before saving the galaxy. |
-| Space racism. |
-| The Genophage. |
-| Totally fuckable aliens. |
+| A  a mo ed K oga  wa -clito is. |
+| A  eme ge cy i ductio  po t. |
+| A  ext emely lo g elevato   ide. |
+| Bo e-shatte i g sex with a metal woma . |
+| Falli g I actual love with a video game cha acte . |
+| My complicated backsto y that you will soo  lea  about. |
+| Ru i g a few e a ds befo e savi g the galaxy. |
+| Space  acism. |
+| The Ge ophage. |
+| Totally fuckable alie s. |
 
 |Total amount: 10|
 |---|
