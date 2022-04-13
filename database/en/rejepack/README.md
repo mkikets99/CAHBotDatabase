@@ -30,7 +30,7 @@ Answers amount: 63
 |Total amount: 20|
 |---|
 
-###Answers
+### Answers
 | Question |
 |---|
 | A giant squid in a wedding gown. |

@@ -30,7 +30,7 @@ It's _. | 1 |
 |Total amount: 19|
 |---|
 
-###Answers
+### Answers
 | Question |
 |---|
 | 70,000 gamers sweating and farting inside an airtight steel dome. |

@@ -50,7 +50,7 @@ Answers amount: 259
 |Total amount: 40|
 |---|
 
-###Answers
+### Answers
 | Question |
 |---|
 | A 103° fever. |

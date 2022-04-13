@@ -35,7 +35,7 @@ Answers amount: 75
 |Total amount: 25|
 |---|
 
-###Answers
+### Answers
 | Question |
 |---|
 | [Player to your left]'s reproductive organ. |

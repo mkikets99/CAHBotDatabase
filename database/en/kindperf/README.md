@@ -84,7 +84,7 @@ Answers amount: 225
 |Total amount: 74|
 |---|
 
-###Answers
+### Answers
 | Question |
 |---|
 | A dead battery in the noisy toy |

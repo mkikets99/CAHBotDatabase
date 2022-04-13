@@ -42,7 +42,7 @@ Answers amount: 80
 |Total amount: 32|
 |---|
 
-###Answers
+### Answers
 | Question |
 |---|
 | A bag of hammers. |

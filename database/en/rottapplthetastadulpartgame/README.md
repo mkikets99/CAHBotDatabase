@@ -140,7 +140,7 @@ Answers amount: 454
 |Total amount: 130|
 |---|
 
-###Answers
+### Answers
 | Question |
 |---|
 | (Sleeping Beauty's curse) A magical prick |

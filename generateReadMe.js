@@ -60,7 +60,7 @@ head += "\n"+tableBuilder({
     "name","type","qcount","acount"
 ]);
 
-let packhead = "## {name}\nKey: `{key}`  \nType: {type}  \nQuestion amount: {quest}  \nAnswers amount: {ans}\n### Questions\n{tquest}\n\n###Answers\n{tans}"
+let packhead = "## {name}\nKey: `{key}`  \nType: {type}  \nQuestion amount: {quest}  \nAnswers amount: {ans}\n### Questions\n{tquest}\n\n### Answers\n{tans}"
 
 let ffn = fs.readdirSync(path.join(__dirname,"database","en"),{withFileTypes:true});
 

@@ -286,7 +286,7 @@ This summer, "_". | 1 |
 |Total amount: 228|
 |---|
 
-###Answers
+### Answers
 | Question |
 |---|
 | A $50 cup of coffee literally made from cat shit. |

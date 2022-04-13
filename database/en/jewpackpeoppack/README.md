@@ -15,7 +15,7 @@ Answers amount: 25
 |Total amount: 5|
 |---|
 
-###Answers
+### Answers
 | Question |
 |---|
 | A big brain full of facts and sadness. |

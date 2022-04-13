@@ -80,7 +80,7 @@ Answers amount: 468
 |Total amount: 70|
 |---|
 
-###Answers
+### Answers
 | Question |
 |---|
 | #occupy or #octopi, whichever |

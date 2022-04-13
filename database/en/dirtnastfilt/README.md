@@ -152,7 +152,7 @@ Answers amount: 303
 |Total amount: 142|
 |---|
 
-###Answers
+### Answers
 | Question |
 |---|
 | 69 |

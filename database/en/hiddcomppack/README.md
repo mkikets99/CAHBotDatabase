@@ -10,7 +10,7 @@ Answers amount: 15
 |Total amount: 0|
 |---|
 
-###Answers
+### Answers
 | Question |
 |---|
 | A blind, quadriplegic AIDS survivor with face cancer and diarrhea. |

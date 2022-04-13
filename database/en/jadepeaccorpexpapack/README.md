@@ -20,7 +20,7 @@ Answers amount: 46
 |Total amount: 10|
 |---|
 
-###Answers
+### Answers
 | Question |
 |---|
 | A conveniently timed coup d'etat |

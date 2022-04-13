@@ -23,7 +23,7 @@ Answers amount: 54
 |Total amount: 13|
 |---|
 
-###Answers
+### Answers
 | Question |
 |---|
 | Getting inside the Horadric Cube with a hot babe and pressing the transmute button. |

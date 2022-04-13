@@ -13,7 +13,7 @@ Answers amount: 12
 |Total amount: 3|
 |---|
 
-###Answers
+### Answers
 | Question |
 |---|
 | A disappointing season of Tabletop that's just about tables. |

@@ -28,7 +28,7 @@ Answers amount: 54
 |Total amount: 18|
 |---|
 
-###Answers
+### Answers
 | Question |
 |---|
 | 10 feet of snow in 2 days. |

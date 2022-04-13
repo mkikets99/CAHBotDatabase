@@ -35,7 +35,7 @@ EXECUTING PROGRAM. | 1 |
 |Total amount: 23|
 |---|
 
-###Answers
+### Answers
 | Question |
 |---|
 | A Christmas stocking full of coleslaw. |

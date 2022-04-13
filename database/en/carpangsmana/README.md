@@ -77,7 +77,7 @@ Answers amount: 380
 |Total amount: 67|
 |---|
 
-###Answers
+### Answers
 | Question |
 |---|
 | A 30 thousand dollar millionaire. |

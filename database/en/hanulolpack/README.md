@@ -10,7 +10,7 @@ Answers amount: 7
 |Total amount: 0|
 |---|
 
-###Answers
+### Answers
 | Question |
 |---|
 | A smile or just a nod. |

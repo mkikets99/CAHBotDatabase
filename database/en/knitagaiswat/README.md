@@ -26,7 +26,7 @@ Step 3: A cozy new sweater! | 2 |
 |Total amount: 14|
 |---|
 
-###Answers
+### Answers
 | Question |
 |---|
 | 50 skeins of acrylic yarn. |

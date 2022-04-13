@@ -12,7 +12,7 @@ Answers amount: 16
 |Total amount: 2|
 |---|
 
-###Answers
+### Answers
 | Question |
 |---|
 | 41 million Americans living in poverty. |

@@ -60,7 +60,7 @@ Answers amount: 200
 |Total amount: 50|
 |---|
 
-###Answers
+### Answers
 | Question |
 |---|
 | A bald eagle named Small Government. |

@@ -14,7 +14,7 @@ Answers amount: 11
 |Total amount: 4|
 |---|
 
-###Answers
+### Answers
 | Question |
 |---|
 | Bank bailouts |

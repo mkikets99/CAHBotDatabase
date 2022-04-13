@@ -11,7 +11,7 @@ Answers amount: 19
 |Total amount: 1|
 |---|
 
-###Answers
+### Answers
 | Question |
 |---|
 | A framed photocopy of an oil painting of Paris, France. |

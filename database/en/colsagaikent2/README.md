@@ -19,7 +19,7 @@ Answers amount: 27
 |Total amount: 9|
 |---|
 
-###Answers
+### Answers
 | Question |
 |---|
 | [image of eastern gray squirrel] |

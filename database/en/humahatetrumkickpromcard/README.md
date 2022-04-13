@@ -10,7 +10,7 @@ Answers amount: 5
 |Total amount: 0|
 |---|
 
-###Answers
+### Answers
 | Question |
 |---|
 | Accidentally referring to "the gays". |
