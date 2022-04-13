@@ -1,8 +1,8 @@
 const fs = require('fs');
 const path = require('path');
 
-let head = "# CAHBotDatabase\n\
-Database For Card Against Humanity Bot in Telegram\n\
+let head = "# CAHBotpacks\n\
+packs For Card Against Humanity Bot in Telegram\n\
 ## English Packs\n\
 Packs used on english language\n\
 ### Packs\n";
@@ -43,7 +43,10 @@ function tableBuilder(header,data,order,withTotal="pack") {
 
     return out
 }
-let enPack = JSON.parse(fs.readFileSync(path.join(__dirname,"database","en","packs.json")))
+/**
+ * @type {any[]}
+ */
+let enPack = JSON.parse(fs.readFileSync(path.join(__dirname,"packs","en","packs.json")))
 enPack = enPack.sort((a,b)=>{
     if(a.name===b.name) return 0;
     return a.name<b.name ? -1 : 1;
@@ -56,20 +59,22 @@ head += "\n"+tableBuilder({
     "type": "Type of pack",
     "qcount": "Questions count",
     "acount": "Answers count",
-},enPack,[
+},enPack.map(el=>{
+    return {...el,name:`[${el.name}](${el.pathTo})`}
+}),[
     "name","type","qcount","acount"
 ]);
 
 let packhead = "## {name}\nKey: `{key}`  \nType: {type}  \nQuestion amount: {quest}  \nAnswers amount: {ans}\n### Questions\n{tquest}\n\n### Answers\n{tans}"
 
-let ffn = fs.readdirSync(path.join(__dirname,"database","en"),{withFileTypes:true});
+let ffn = fs.readdirSync(path.join(__dirname,"packs","en"),{withFileTypes:true});
 
 ffn.forEach(el=>{
     if(el.isDirectory()){
-        let pack = JSON.parse(fs.readFileSync(path.join(__dirname,"database","en",el.name,"pack.json")))
-        let packa = JSON.parse(fs.readFileSync(path.join(__dirname,"database","en",el.name,"answers.json")))
-        let packq = JSON.parse(fs.readFileSync(path.join(__dirname,"database","en",el.name,"questions.json")))
-        fs.writeFileSync(path.join(__dirname,"database","en",el.name,"README.md"),
+        let pack = JSON.parse(fs.readFileSync(path.join(__dirname,"packs","en",el.name,"pack.json")))
+        let packa = JSON.parse(fs.readFileSync(path.join(__dirname,"packs","en",el.name,"answers.json")))
+        let packq = JSON.parse(fs.readFileSync(path.join(__dirname,"packs","en",el.name,"questions.json")))
+        fs.writeFileSync(path.join(__dirname,"packs","en",el.name,"README.md"),
             packhead.replace("{name}",pack.name)
                     .replace("{key}",pack.key)
                     .replace("{type}",pack.type)
@@ -81,12 +86,14 @@ ffn.forEach(el=>{
     }
 })
 
-fs.writeFileSync(path.join(__dirname,"database","en","README.md"),"### Packs\n"+tableBuilder({
+fs.writeFileSync(path.join(__dirname,"packs","en","README.md"),"### Packs\n"+tableBuilder({
     "name": "Name of pack",
     "type": "Type of pack",
     "qcount": "Questions count",
     "acount": "Answers count",
-},enPack,[
+},enPack.map(el=>{
+    return {...el,name:`[${el.name}](${path.basename(el.pathTo)})`}
+}),[
     "name","type","qcount","acount"
 ]));
 
