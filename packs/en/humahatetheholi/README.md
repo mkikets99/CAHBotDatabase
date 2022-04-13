@@ -143,8 +143,7 @@ with you. | 1 |
 | The disappointment of a Jewish child on the 25th. |
 | The sense of holiday spirit you feel while buried to the hilt in the cold, uncooked guts of your Thanksgiving Day turkey. |
 | The Star Wars prequels |
-| The Ultimate Yule LogPlay this card and win the round.
-The gift that keeps on giving. |
+| The Ultimate Yule LogPlay this card and win the round.The gift that keeps on giving. |
 | Unwrapping Go-Bots® because you're poor. |
 | Unwrapping Justin Timberlake's dick in a box. |
 | Using child labor to make toys for the first world. |

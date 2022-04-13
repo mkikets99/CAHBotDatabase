@@ -236,8 +236,7 @@ PS, Give Hillary _. | 2 |
 | The thing I'm hiding in my basement. |
 | The ugly Olsen twin. |
 | The Ultimate TRUMP Card |
-| The Ultimate Yule LogPlay this card and win the round.
-The gift that keeps on giving. |
+| The Ultimate Yule LogPlay this card and win the round.The gift that keeps on giving. |
 | The United States, a dumping ground for everyone else's problems. |
 | The voices inside my head. |
 | The world's biggest publicity stunt ever. |

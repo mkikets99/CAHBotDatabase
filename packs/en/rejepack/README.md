@@ -85,8 +85,7 @@ Answers amount: 63
 | Fashion... heard of if? |
 | Getting my mind boggled by a gang of mind bogglers. |
 | Letting these hoes know. |
-| Meatballs,meatballs,
-meatballs! |
+| Meatballs,meatballs,meatballs! |
 | Passing fart and making toilet. |
 | Running afoul of the Sultan's Janissaries. |
 | Sheboygan, Wisconsin. |

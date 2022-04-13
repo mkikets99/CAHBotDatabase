@@ -37,17 +37,7 @@ Answers amount: 27
 | Munkustrap. |
 | Old Deuteronomy. |
 | Peter, Augustus, Alonzo, or James. |
-| Practical cats,dramatical cats,
-oratical cats,
-sceptical cats,
-romantical cats,
-parasitical cats,
-statistical cats,
-political cats,
-hypocritical cats,
-clerical cats,
-cynical cats,
-rabbinical cats. |
+| Practical cats,dramatical cats,oratical cats,sceptical cats,romantical cats,parasitical cats,statistical cats,political cats,hypocritical cats,clerical cats,cynical cats,rabbinical cats. |
 | Rum Tum Tugger. |
 | Shimbleshanks. |
 | Sir Andrew Lloyd Webber. |

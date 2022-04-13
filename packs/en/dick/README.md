@@ -139,10 +139,8 @@ Your answer: | 1 |
 ### Answers
 | Question |
 |---|
-| "Jerk him, Tahiti!
-Jerk him off" |
-| "Partners!
-I must have Partners!" |
+| "Jerk him, Tahiti!Jerk him off" |
+| "Partners!I must have Partners!" |
 | 10,800 barrels of beer |
 | 144,000 lbs. of cheese |
 | a bed, a hammock, a hearse, a sentry box, a pulpit, a coach, or any other of those small and snug contrivances in which men temporarily isolate themselves |
@@ -166,11 +164,7 @@ I must have Partners!" |
 | a faint stream of perfume, which flowed through the tide of bad smells without being absorbed by it |
 | a few porpoises a-piece |
 | a frightful roll and vomit |
-| a funny,sporty,
-gamy,
-jesty,
-joky,
-hoky-poky lad |
+| a funny,sporty,gamy,jesty,joky,hoky-poky lad |
 | a gigantic coal-black negro-savage |
 | a glistening white membrane |
 | a gush of scalding vapor |
@@ -371,9 +365,7 @@ hoky-poky lad |
 | red-cheeked dancing girls |
 | rejecting Heaven's good gifts |
 | rich mottled old cheese |
-| rig it,dig it,
-stig it,
-quig it |
+| rig it,dig it,stig it,quig it |
 | ripe, bursting grapes |
 | roly-poly old coach-horses |
 | rubbing their flanks |
@@ -405,8 +397,7 @@ quig it |
 | something in this slippery world that can hold, man |
 | something queer |
 | spermy heaps |
-| squeeze!squeeze!
-squeeze! |
+| squeeze!squeeze!squeeze! |
 | squeezing that sperm forever |
 | standing sideways |
 | strips of blubber for infants |

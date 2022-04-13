@@ -1185,8 +1185,7 @@ Not with a bang but with _. | 1 |
 | Rectangles. |
 | Rehab. |
 | Repression. |
-| reputation,reputation,
-reputation |
+| reputation,reputation,reputation |
 | Reverse gentrification. |
 | Rich people. |
 | Riding off into the sunset. |

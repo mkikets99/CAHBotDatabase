@@ -125,8 +125,7 @@ Answers amount: 155
 | Giving birth to a centaur |
 | Growing a third boob |
 | Having your every decision examined by every single person on Earth |
-| Heteropaternal superfecundation
-(Google it) |
+| Heteropaternal superfecundation(Google it) |
 | Hot, hot pregnant lady sex |
 | In utero SAT prep class |
 | Inconvenient ovulation |
@@ -143,8 +142,7 @@ Answers amount: 155
 | Mustachifiers |
 | Nanny sharing in more ways than one |
 | NASA-level baby monitoring technology |
-| Never, ever, ever, ever, ever going out again.
-Ever. |
+| Never, ever, ever, ever, ever going out again.Ever. |
 | New lows in personal hygiene |
 | Nipple electrocution |
 | Opium-flavored formula |

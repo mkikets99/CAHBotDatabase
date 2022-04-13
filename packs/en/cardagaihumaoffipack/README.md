@@ -2378,8 +2378,7 @@ not a creature was stirring, not even _. | 1 |
 | The EDL. |
 | The entire Mormon Tabernacle Chior. |
 | The Flying Spaghetti Monster. |
-| the four,or the three,
-or the two |
+| the four,or the three,or the two |
 | The gun lobby |
 | The harsh light of day. |
 | The harsh reality that all horses are people in horse costumes. |

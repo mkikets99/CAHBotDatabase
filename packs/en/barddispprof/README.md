@@ -135,8 +135,7 @@ Your answer: | 1 |
 | a baboon's blood |
 | a barber's chair that fits all buttocks |
 | a barren sister |
-| a boil,a plague-sore,
-an embossed carbuncle |
+| a boil,a plague-sore,an embossed carbuncle |
 | a bolt of nothing, shot at nothing |
 | a butter-woman's mouth |
 | a care-crazed mother of many children |
@@ -151,8 +150,7 @@ an embossed carbuncle |
 | a dog as big as ten of yours |
 | a double tongue; there's two tongues |
 | a dumb innocent |
-| a Dutchman today,
-a Frenchman to-morrow |
+| a Dutchman today,a Frenchman to-morrow |
 | a Dutchman's beard |
 | a fat tripe finely broiled |
 | a father cruel, and a step-dame false |
@@ -171,9 +169,7 @@ a Frenchman to-morrow |
 | a kind of excellent dumb discourse |
 | a kind of yesty collection |
 | a king transformed to a gnat |
-| a knack,a toy,
-a trick,
-a baby's cap |
+| a knack,a toy,a trick,a baby's cap |
 | a lewd day-bed |
 | a liberal rewarder of his friends |
 | a mess of Russians |
@@ -183,8 +179,7 @@ a baby's cap |
 | a pair of reechy kisses |
 | a pair of stainless maidenhoods |
 | a piece of beef and mustard |
-| a plentiful lack of wit,
-together with most weak hams |
+| a plentiful lack of wit,together with most weak hams |
 | a poor, bare, forked animal |
 | a pretty piece of flesh |
 | a puppy greyhound |
@@ -208,8 +203,7 @@ together with most weak hams |
 | a whole school of tongues in this belly of mine |
 | a wonder, if you talk of a wonder |
 | a wood woman |
-| Adam,Ralph,
-and Gregory |
+| Adam,Ralph,and Gregory |
 | Alexander the Pig |
 | all kinds of sores and shames on my bare hand |
 | all the hot bloods |
@@ -223,13 +217,11 @@ and Gregory |
 | an unstanched wench |
 | anunauthorized kiss |
 | asaucy stranger |
-| bastard Normans,
-Norman bastards! |
+| bastard Normans,Norman bastards! |
 | bellowing like bulls |
 | blasting in the bud |
 | blowing him down again |
-| blubbering and weeping,
-weeping and blubbering |
+| blubbering and weeping,weeping and blubbering |
 | bold and saucy |
 | both the Blunts |
 | Bottom's Dream |
@@ -243,9 +235,7 @@ weeping and blubbering |
 | cracking nuts |
 | Cupid's butt-shaft |
 | dismal thinkings |
-| drinking,fencing,
-swearing,
-quarrelling |
+| drinking,fencing,swearing,quarrelling |
 | dumb jewels |
 | eahc actor on his ass |
 | eat a crocodile? |
@@ -271,15 +261,11 @@ quarrelling |
 | he that hath killed my king and whored my mother |
 | head, and butt! |
 | headstrong women |
-| her C's,her U's,
-and her T's |
-| her fine foot, straight leg, and quivering thigh
-and the demesnes that there adjacent lie |
+| her C's,her U's,and her T's |
+| her fine foot, straight leg, and quivering thighand the demesnes that there adjacent lie |
 | her lamb when it baes |
 | her virgin-knot |
-| here, sir!here, sir!
-here, sir!
-here, sir! |
+| here, sir!here, sir!here, sir!here, sir! |
 | hiding the grossness |
 | his beaver |
 | his dog-heartefd daughters |
@@ -321,13 +307,7 @@ here, sir! |
 | my bastardizing |
 | my familiar sin with maids |
 | my father with his bleeding rings |
-| my house,my household
-stuff, my field,
-my barn,
-my horse,
-my ox,
-my ass,
-my any thing |
+| my house,my householdstuff, my field,my barn,my horse,my ox,my ass,my any thing |
 | my Jewish gaberdine |
 | my knife in your mouldy chaps |
 | my little body |
@@ -339,12 +319,7 @@ my any thing |
 | my wedding sheets |
 | my well-known body |
 | my wife's liver |
-| Nathaniel,Joseph,
-Nicholas,
-Philip,
-Walter,
-Sugarsop
-and the rest |
+| Nathaniel,Joseph,Nicholas,Philip,Walter,Sugarsopand the rest |
 | nine years a-killing |
 | no bottom, none |
 | no cock of mine |
@@ -371,8 +346,7 @@ and the rest |
 | quaffing and drinking |
 | rank and not-to-be-endured riots |
 | ratsbane in my mouth |
-| reputation,reputation,
-reputation |
+| reputation,reputation,reputation |
 | ridiculous smiling |
 | rings and things |
 | rustling in unpaid-for silk |
@@ -381,9 +355,7 @@ reputation |
 | seventy senators that died |
 | sighs and groans and shrieks |
 | Sir Smile |
-| sisters!sisters!
-shame of ladies!
-sisters! |
+| sisters!sisters!shame of ladies!sisters! |
 | sitting in my Dolphin-chamber |
 | sitting on a close-stool |
 | so troublesome a bedfellow |
@@ -428,8 +400,7 @@ sisters! |
 | the first cock |
 | the flower that's like thy face |
 | the foot of a flea |
-| the four,or the three,
-or the two |
+| the four,or the three,or the two |
 | the French lord, Monsieur Le Bon |
 | the frozen bosom of the north |
 | the green-eyed monster |
@@ -462,12 +433,7 @@ or the two |
 | the overscutched huswives |
 | the owner of a foul disease |
 | the pillow, there the bolster, this way the coverlet, another way the sheets |
-| the pin-buttock,
-the quatch-buttock,
-
-the brawn buttock,
-
-or any buttock |
+| the pin-buttock,the quatch-buttock,the brawn buttock,or any buttock |
 | the posterior of the day |
 | the pregnant hinges of the knee |
 | the prettier fellow of the two |
@@ -520,8 +486,7 @@ or any buttock |
 | wars with the women |
 | waxen thighs |
 | Welcome, ass. |
-| what have we here?
-a man or a fish? |
+| what have we here?a man or a fish? |
 | what o' clock I say it is |
 | what these dastard Frenchman dare |
 | what woman is, yea |

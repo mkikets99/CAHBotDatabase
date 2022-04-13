@@ -87,7 +87,7 @@ ffn.forEach(el=>{
                     .replace("{quest}",pack.qcount)
                     .replace("{ans}",pack.acount)
                     .replace("{tquest}",tableBuilder({text:"Question",pick:"Amount of answers"},packq.map(el=>{return{...el,text:el.text.replace('\n','')}}),["text","pick"],"amount"))
-                    .replace("{tans}",tableBuilder({text:"Question"},packa.map(el=>{return{...el,text:el.text.replace('\n','')}}),["text"],"amount"))
+                    .replace("{tans}",tableBuilder({text:"Question"},packa.map(el=>{return{...el,text:el.text.replace(/\n/g,'')}}),["text"],"amount"))
         )
     }
 })

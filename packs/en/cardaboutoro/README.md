@@ -217,8 +217,7 @@ Answers amount: 198
 | Street meat |
 | Streetcar short turns |
 | Strippers who work the day shift |
-| Subways!Subways!
-Subways! |
+| Subways!Subways!Subways! |
 | Taking Jack Layton's name in vain |
 | Taking out payday loans to pay off other payday loans |
 | Taking the TTC to Scarborough |
