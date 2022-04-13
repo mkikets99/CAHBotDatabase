@@ -83,6 +83,7 @@ Answers amount: 225
 
 |Total amount: 74|
 |---|
+
 ###Answers
 | Question |
 |---|

@@ -99,6 +99,7 @@ Answers amount: 450
 
 |Total amount: 90|
 |---|
+
 ###Answers
 | Question |
 |---|

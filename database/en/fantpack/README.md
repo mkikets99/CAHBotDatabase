@@ -15,6 +15,7 @@ Answers amount: 26
 
 |Total amount: 6|
 |---|
+
 ###Answers
 | Question |
 |---|

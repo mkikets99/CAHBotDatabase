@@ -39,6 +39,7 @@ Answers amount: 90
 
 |Total amount: 30|
 |---|
+
 ###Answers
 | Question |
 |---|

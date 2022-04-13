@@ -105,6 +105,7 @@ Answers amount: 103
 
 |Total amount: 96|
 |---|
+
 ###Answers
 | Question |
 |---|

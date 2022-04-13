@@ -110,6 +110,7 @@ Answers amount: 480
 
 |Total amount: 101|
 |---|
+
 ###Answers
 | Question |
 |---|

@@ -117,6 +117,7 @@ Answers amount: 360
 
 |Total amount: 108|
 |---|
+
 ###Answers
 | Question |
 |---|

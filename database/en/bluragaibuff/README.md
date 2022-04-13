@@ -27,6 +27,7 @@ Answers amount: 54
 
 |Total amount: 18|
 |---|
+
 ###Answers
 | Question |
 |---|

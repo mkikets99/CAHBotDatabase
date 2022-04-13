@@ -74,6 +74,7 @@ Answers amount: 205
 
 |Total amount: 65|
 |---|
+
 ###Answers
 | Question |
 |---|

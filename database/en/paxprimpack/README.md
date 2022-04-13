@@ -29,6 +29,7 @@ It's _. | 1 |
 
 |Total amount: 19|
 |---|
+
 ###Answers
 | Question |
 |---|

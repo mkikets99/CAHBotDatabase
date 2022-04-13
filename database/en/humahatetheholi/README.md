@@ -72,6 +72,7 @@ with you. | 1 |
 
 |Total amount: 60|
 |---|
+
 ###Answers
 | Question |
 |---|

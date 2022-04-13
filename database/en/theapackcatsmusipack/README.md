@@ -12,6 +12,7 @@ Answers amount: 27
 
 |Total amount: 3|
 |---|
+
 ###Answers
 | Question |
 |---|

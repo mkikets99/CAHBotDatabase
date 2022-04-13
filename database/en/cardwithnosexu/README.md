@@ -34,6 +34,7 @@ Answers amount: 75
 
 |Total amount: 25|
 |---|
+
 ###Answers
 | Question |
 |---|

@@ -34,6 +34,7 @@ EXECUTING PROGRAM. | 1 |
 
 |Total amount: 23|
 |---|
+
 ###Answers
 | Question |
 |---|

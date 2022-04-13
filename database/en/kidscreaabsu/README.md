@@ -115,6 +115,7 @@ Who's there? | 1 |
 
 |Total amount: 100|
 |---|
+
 ###Answers
 | Question |
 |---|

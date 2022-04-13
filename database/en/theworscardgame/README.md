@@ -63,6 +63,7 @@ Answers amount: 161
 
 |Total amount: 54|
 |---|
+
 ###Answers
 | Question |
 |---|

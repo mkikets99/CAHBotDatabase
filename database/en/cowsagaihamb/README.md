@@ -81,6 +81,7 @@ Answers amount: 205
 
 |Total amount: 72|
 |---|
+
 ###Answers
 | Question |
 |---|

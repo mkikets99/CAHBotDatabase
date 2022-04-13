@@ -73,6 +73,7 @@ Answers amount: 186
 
 |Total amount: 64|
 |---|
+
 ###Answers
 | Question |
 |---|

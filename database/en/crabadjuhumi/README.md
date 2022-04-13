@@ -285,6 +285,7 @@ This summer, "_". | 1 |
 
 |Total amount: 228|
 |---|
+
 ###Answers
 | Question |
 |---|

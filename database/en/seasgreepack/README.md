@@ -18,6 +18,7 @@ In: _. | 2 |
 
 |Total amount: 7|
 |---|
+
 ###Answers
 | Question |
 |---|

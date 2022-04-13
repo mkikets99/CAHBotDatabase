@@ -25,6 +25,7 @@ Step 3: A cozy new sweater! | 2 |
 
 |Total amount: 14|
 |---|
+
 ###Answers
 | Question |
 |---|

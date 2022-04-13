@@ -48,6 +48,7 @@ I'm Connor's dad, but you can call me Mr. _. | 1 |
 
 |Total amount: 36|
 |---|
+
 ###Answers
 | Question |
 |---|

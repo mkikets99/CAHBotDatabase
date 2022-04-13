@@ -9,6 +9,7 @@ Answers amount: 1
 
 |Total amount: 0|
 |---|
+
 ###Answers
 | Question |
 |---|

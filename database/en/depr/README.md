@@ -108,6 +108,7 @@ Answers amount: 432
 
 |Total amount: 99|
 |---|
+
 ###Answers
 | Question |
 |---|

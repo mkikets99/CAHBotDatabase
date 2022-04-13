@@ -57,6 +57,7 @@ Conclusion: _ | 3 |
 
 |Total amount: 46|
 |---|
+
 ###Answers
 | Question |
 |---|

@@ -159,6 +159,7 @@ Answers amount: 359
 
 |Total amount: 150|
 |---|
+
 ###Answers
 | Question |
 |---|

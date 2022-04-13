@@ -540,6 +540,7 @@ not a creature was stirring, not even _. | 1 |
 
 |Total amount: 500|
 |---|
+
 ###Answers
 | Question |
 |---|

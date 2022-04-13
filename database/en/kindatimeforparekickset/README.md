@@ -31,6 +31,7 @@ Answers amount: 172
 
 |Total amount: 22|
 |---|
+
 ###Answers
 | Question |
 |---|

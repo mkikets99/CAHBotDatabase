@@ -84,6 +84,7 @@ you see? | 1 |
 
 |Total amount: 70|
 |---|
+
 ###Answers
 | Question |
 |---|
