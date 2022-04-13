@@ -29,8 +29,7 @@ Answers amount: 84
 | _, the newest My Little Pony character. | 1 |
 | Ah, High School. A place for _ and _. | 2 |
 | Hello! Do you have a moment to talk about our lord and savior _. | 1 |
-| Hypothesis: _
-Experiment: _
+| Hypothesis: _Experiment: _
 Conclusion: _ | 3 |
 | I get to pick a porn name? Then I want to be called _. | 1 |
 | I was chilling with Snoop Dogg when he rolled a joint and said _ | 1 |

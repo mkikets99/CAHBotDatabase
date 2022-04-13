@@ -9,12 +9,10 @@ Answers amount: 583
 | _: Just sayin'. | 1 |
 | _: not even once. | 1 |
 | A wild _ appears!
-
 You used _! It's super effective! | 2 |
 | According to a new UN treaty, _ now qualifies as a weapon of mass destruction. | 1 |
 | Ever since "the incident," every time I close my eyes, I still see _. | 1 |
 | Gentleman, I'm sure you're wondering why I asked you here this evening.
-
 It's a long story, but it all began with _. | 1 |
 | How did I get this restraining order? | 1 |
 | How did I hurt my back? | 1 |
@@ -29,12 +27,10 @@ It's a long story, but it all began with _. | 1 |
 | In my opinion, _ is grounds for justifiable homicide. | 1 |
 | It took seven years in a remote Tibetan monastery, but I finally learned the art of _. | 1 |
 | Like Midas reborn, everything she touches turns to _. | 1 |
-| Oh my God!
-They killed _!
+| Oh my God!They killed _!
 You bastards! | 1 |
 | PornHub.com's single most popular video features _ and _. | 2 |
 | So then he says, "If you want to make this relationship work, you need to give up _ and _."
-
 As.  If. | 2 |
 | Thanks to _, I now have a crippling fear of _. | 2 |
 | The best part of waking up is _. | 1 |
@@ -43,7 +39,6 @@ As.  If. | 2 |
 | Tonight on "My Super Sweet 16," Stephani's parents give her _. | 1 |
 | Tonight on "Supernatural," Sam and Dean are forced to confront _ using only _. | 2 |
 | What do we want?  _!
-
 When do we want it?  Now! | 1 |
 | What was one of the rejected flavors for Bertie Bott's Every Flavour Beans™? | 1 |
 | When I'm dating somebody, I can overlook _ and _, but _ is a deal-breaker. | 3 |
@@ -51,10 +46,8 @@ When do we want it?  Now! | 1 |
 | William Shatner's shocking new autobiography is titled "_: The Final Frontier." | 1 |
 | _: it's magically delicious. | 1 |
 | _?
-
 That's what she said. | 1 |
 | "You have my sword."
-
 "And you have my bow."
 
 "And my _!" | 1 |
@@ -65,7 +58,6 @@ That's what she said. | 1 |
 | Bentley's® latest ultra-high-end luxury sedan comes complete with _, _ and _. | 3 |
 | Dear Dan Savage, Please help.  I am unable to achieve orgasm without _. | 1 |
 | Dear, your father and I found _ and _ in your bedroom.
-
 I'm shocked, and frankly just a little disappointed. | 2 |
 | Experts say that without careful management and conservation, _ will disappear within our lifetimes. | 1 |
 | From the people who brought you Sharktopus and Sharknado, Syfy's® next horror film combines sharks with _. | 1 |
@@ -134,12 +126,10 @@ I'm shocked, and frankly just a little disappointed. | 2 |
 | Coming soon from Pixar: "_" | 1 |
 | During the lunch meeting, we were shocked to hear the boss reveal her obsession with _. | 1 |
 | From the producers of Shark Week...
-
 Coming this fall, _ Week. | 1 |
 | Fuddruckers® is secretly testing a burger made with _. | 1 |
 | Go-Go-Gadget _! | 1 |
-| I am _.
-I speak for _. | 2 |
+| I am _.I speak for _. | 2 |
 | If laughter is the best medicine, the second best is _. | 1 |
 | If you wanna be my lover, you gotta get with _. | 1 |
 | In a groundbreaking experiment, _ has given birth to _. | 2 |
@@ -147,7 +137,6 @@ I speak for _. | 2 |
 | In his final interview, Robin Williams discussed his private battle with _. | 1 |
 | My psychic warns that my future is filled with _. | 1 |
 | Ooooooohh yeah, baby you know what I like.
-
 Gimmie _. | 1 |
 | Scientists have discovered the true cause of autism: _. | 1 |
 | Sweet, I just got a Groupon for _. | 1 |
@@ -172,19 +161,16 @@ Gimmie _. | 1 |
 | As a staunch libertarian, I believe the only role for government is _. | 1 |
 | Back in college, my nickname was _. | 1 |
 | Code Three, request backup!
-
 I'm surrounded by _! | 1 |
 | Cover my eyes with _ and then pleasure me with _. | 2 |
 | Forget Fifty Shades of Grey...
-
 Give me Fifty Shades of _! | 1 |
 | I never karaoke, because I always end up getting drunk and singing a song about _. | 1 |
 | I'm definitely going to hell for _. | 1 |
 | I'm finally writing that book, it's titled "Zen and the Art of _." | 1 |
 | Instructions unclear: dick stuck in _. | 1 |
 | It's all about _ - no _. | 2 |
-| Let it go!
-Let it go!
+| Let it go!Let it go!
 
 _ never bothered me anyway... | 1 |
 | My therapist says I have an unhealthy attitude about _. | 1 |
@@ -199,18 +185,15 @@ _ never bothered me anyway... | 1 |
 | Why is Jon Stewart really retiring? | 1 |
 | Why so salty? | 1 |
 | Yo bro, you tried _?
-
 Shit's straight fire. | 1 |
 | You kids with your fancy degrees...
-
 They don't teach ya' nothin' 'bout _ in school. | 1 |
 | _: not only, like, super gross? But like, from a feminist standpoint? Totallyproblematic. | 1 |
 | _? Thanks Obama. | 1 |
 | "The time has come," the Walrus said, "To talk of many things: Of shoes, and ships, and sealing-wax. Of cabbages, and _." | 1 |
 | Although _ provided excellent results, the ethics committee has decided that the practice can no longer continue. | 1 |
 | Amazon Prime membership now includes _. | 1 |
-| Chilean Seabass: $29
-Caribbean Spiny Lobster: $38
+| Chilean Seabass: $29Caribbean Spiny Lobster: $38
 _: Market Price | 1 |
 | Citing demographics, Playboy has replaced nudity with _. | 1 |
 | Come with me on an adventure to the land of _. | 1 |
@@ -246,19 +229,15 @@ _: Market Price | 1 |
 | General, it appears that instead of brains, these zombies want _. | 1 |
 | Hear my words, _ will rise again! | 1 |
 | Hey, perverts!
-
 It's "Adam and Eve," not "_ and _". | 2 |
-| I see London,
-I see France,
+| I see London,I see France,
 I see _. | 1 |
 | I struggle to maintain a healthy weight, but my problem isn't glandular, it's _. | 1 |
 | If the eyes are the windows to the soul, then why are mine filled with _? | 1 |
 | In the days before her death, Maya Angelou wrote a moving essay about _. | 1 |
 | It is pitch black.
-
 You are likely to be eaten by _. | 1 |
 | Mother, Father: today I am a man.
-
 Fetch me _. | 1 |
 | New from DC Comics®: Batman vs. _. | 1 |
 | New to the 2020 Summer Olympics, _. | 1 |
@@ -268,7 +247,6 @@ Fetch me _. | 1 |
 | Soylent Pink is _! | 1 |
 | The CIA reports that Russia is spending billions to influence _. | 1 |
 | The curse!
-
 The child has been born with the mark of _! | 1 |
 | The hills are alive, with the sound of _! | 1 |
 | There's nothing to worry about, the doctor said, "it's just a simple, routine check for _." | 1 |
@@ -280,7 +258,6 @@ The child has been born with the mark of _! | 1 |
 | What's Barron Trump googling at this very moment? | 1 |
 | Why don't I date online anymore? | 1 |
 | You've never seen Adam Sandler like this before!
-
 This summer, "_". | 1 |
 
 |Total amount: 228|
@@ -316,8 +293,7 @@ This summer, "_". | 1 |
 | Being punk in drublic. |
 | Being raped to sleep by dickwolves. |
 | Belching out the lyrics to "Hey Jude." |
-| Bono.
-Just... Bono. |
+| Bono.Just... Bono. |
 | Bronies. |
 | Cockasaurus rex: the horniest dinosaur of them all. |
 | Cocktimus Prime: the laser-guided dildo rocket. |
@@ -327,8 +303,7 @@ Just... Bono. |
 | Enrolling in clown school. |
 | Erotic balloon animals. |
 | Explaining how I got the nickname "Nibbleberries." |
-| Ezekiel 23:20
-"There she lusted after her lovers, whose genitals were like those of donkeys and whose emission was like that of horses." |
+| Ezekiel 23:20"There she lusted after her lovers, whose genitals were like those of donkeys and whose emission was like that of horses." |
 | Flop sweat. |
 | Gilbert Gottfried's voice. |
 | Giving Anne Frank a drum kit for her birthday. |

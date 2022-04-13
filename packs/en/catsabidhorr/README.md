@@ -141,16 +141,14 @@ Answers amount: 370
 | I will vote for any politician that promises me an unlimited supply of _. | 1 |
 | If you were the Grand Mufti of Saudia Arabia, who or what would you issue a fatwa against? | 1 |
 | In ancient Sparta, boys became men only after killing and eating _. | 1 |
-| It's a bird!
-It's a plane!
+| It's a bird!It's a plane!
 No, it's _! | 1 |
 | Me a racist? I don't think so. You know how many of my friends are _? | 1 |
 | My addcition was so out of control, there was nothing I wouldn't do for just a whiff of _. | 1 |
 | My vacation to the Amazon ended with me sucking out venom from _. | 1 |
 | One of Prince's lesser known names was "_ formerly known as _" | 2 |
 | People always see me as this successful, happy-go-lucky guy who has everything he wants. What they don't know is that deep down, I feel like _. | 1 |
-| Princess, there is no more food left in the kingdom, the peasants are starving and a revolt is imminent. What should we do?
- 
+| Princess, there is no more food left in the kingdom, the peasants are starving and a revolt is imminent. What should we do? 
 Let them eat _. | 1 |
 | SHOCKING! Undercover report reveals how refugee Syrian children are exposed to _, supposedly to calm them down. | 1 |
 | Spiderman senses danger with his spider sense. I have a similar ability, except I sense _ wherever I go. | 1 |

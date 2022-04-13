@@ -14,20 +14,17 @@ Answers amount: 375
 | After a long day, nothing feels as good as _. | 1 |
 | As everyone knows, after shooting Lincoln, John Wilkes Booth jumped onto the stage and yelled "_." | 1 |
 | At first I was afraid, I was petrified /
-
 kept thinking I could never live without _. | 1 |
 | Back in college, my nickname was _. | 1 |
 | Business idea: like Uber, but for _. | 1 |
 | By the third date, most people expect _. | 1 |
 | Ca-li-for-nia girls, we're unforgettable /
-
 _, bikinis on top. | 1 |
 | Classic summer camp prank: while someone is asleep, put his hand in _. | 1 |
 | Crikey! I've never seen _ like this before! Let's get a bit closer. | 1 |
 | Dearly beloved friends, we are gathered  here to join together these two persons in _. | 1 |
 | Despite overwhelmning scientific evidence to the contrary, some people still believe that vaccines cause _. | 1 |
-| DOCTOR:
-What seems to be the problem?
+| DOCTOR:What seems to be the problem?
 
 YOU: 
 _. | 1 |
@@ -39,7 +36,6 @@ _. | 1 |
 | Global warming could lead to _ across much of North America. | 1 |
 | Got me lookin' so crazy right now, _'s got me lookin' crazy right now. | 1 |
 | Have yourself a merry little Christmas /
-
 let your heart be light / 
 
 from now on _ will be out of sight. | 1 |
@@ -62,7 +58,6 @@ from now on _ will be out of sight. | 1 |
 | Ill-advised Halloween costume concept: | 1 |
 | Key to healthy marriage: _. | 1 |
 | Knock, knock.
-
 (Who's there?)
 
 _. | 1 |
@@ -80,8 +75,7 @@ _. | 1 |
 | Oh yeah? Well I graduated from the Univeristy of _! | 1 |
 | Oh--My--God, Becky. Look at _. | 1 |
 | Our perfect date night ended with an argument over _. | 1 |
-| POLICE OFFICER:
-Step out of the car.
+| POLICE OFFICER:Step out of the car.
 
 YOU:
 Why?
@@ -113,7 +107,6 @@ Is it because I'm _? | 1 |
 | We'll be loading you in an isolation chamber until we can rule out _ Syndrome. | 1 |
 | Well, shit. My spouse looked at my browser history and saw how much time I'd been spenidng on www._.com | 1 |
 | What do we want?
-
 _!
 
 When do we want it?
@@ -131,13 +124,11 @@ Now! | 1 |
 | Yes, it is I, the world's most dangerous supervillain: Baron Von _! | 1 |
 | You scared the crap out of me! For a second I thought you were _. | 1 |
 | You Wil Cry When You See This Kid Tell His Parents That He Is _. #ItGetsBetter | 1 |
-| YOU:
-Play Miles Davis
+| YOU:Play Miles Davis
 
 SIRI:
 Sorry. I don't know what "_" means. | 1 |
 | You're seeing a therapist for the first time.
-
 The therapist asks you why you've come. 
 
 Your answer: | 1 |
@@ -149,17 +140,14 @@ Your answer: | 1 |
 | Question |
 |---|
 | "Jerk him, Tahiti!
-
 Jerk him off" |
 | "Partners!
-
 I must have Partners!" |
 | 10,800 barrels of beer |
 | 144,000 lbs. of cheese |
 | a bed, a hammock, a hearse, a sentry box, a pulpit, a coach, or any other of those small and snug contrivances in which men temporarily isolate themselves |
 | a bird's nest in its crotch |
-| a black!
-and crazy! |
+| a black!and crazy! |
 | a bloody battle in Affghanistan |
 | a bosom friend |
 | a butchering sort of business |
@@ -178,8 +166,7 @@ and crazy! |
 | a faint stream of perfume, which flowed through the tide of bad smells without being absorbed by it |
 | a few porpoises a-piece |
 | a frightful roll and vomit |
-| a funny,
-sporty,
+| a funny,sporty,
 gamy,
 jesty,
 joky,
@@ -276,8 +263,7 @@ hoky-poky lad |
 | being paid |
 | being surpassingly excellent |
 | better jokes, and brighter repartees |
-| Bible leaves!
-Bible leaves! |
+| Bible leaves!Bible leaves! |
 | big generous hands |
 | bosky beards |
 | braiding something very carefully |
@@ -385,8 +371,7 @@ Bible leaves! |
 | red-cheeked dancing girls |
 | rejecting Heaven's good gifts |
 | rich mottled old cheese |
-| rig it,
-dig it,
+| rig it,dig it,
 stig it,
 quig it |
 | ripe, bursting grapes |
@@ -420,8 +405,7 @@ quig it |
 | something in this slippery world that can hold, man |
 | something queer |
 | spermy heaps |
-| squeeze!
-squeeze!
+| squeeze!squeeze!
 squeeze! |
 | squeezing that sperm forever |
 | standing sideways |
@@ -447,8 +431,7 @@ squeeze! |
 | the best hemp |
 | the breaking-up of the icebound stream of Time |
 | the butterfly cheeks of young girls |
-| the chica!
-the chica! |
+| the chica!the chica! |
 | the Chinese Society for the Suppression of Meddling with other People's Business |
 | the contracted hole |
 | the endlessness, yea, the intolerableness of all earthly effort |

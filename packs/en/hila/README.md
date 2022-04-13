@@ -92,8 +92,7 @@ Answers amount: 540
 | They said that we were insane to try mixing _ with _. They thought wrong! | 2 |
 | This is an absolutely hilarious video. Please share it! #_ | 1 |
 | Today's Special: _ with an extra measure of _. | 2 |
-| Today's to-do list:
-1) Bake muffins.
+| Today's to-do list:1) Bake muffins.
 2) Wipe off the counters.
 3) Clean up that _ stain. | 1 |
 | Try this fun tip: when your man asks for _, give him some _ instead. | 2 |

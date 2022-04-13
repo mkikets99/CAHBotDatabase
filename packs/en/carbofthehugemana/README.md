@@ -317,8 +317,7 @@ Answers amount: 547
 | Yelling into the void.* |
 | Your date declaring their undying love in the first 45 minutes |
 | Your date explaining that he's a masculinist and a member of the men's rights movement. |
-| Your date surprising you by coming out of your bedroom wearing one of your button-down shirts.
-And nothing else. |
+| Your date surprising you by coming out of your bedroom wearing one of your button-down shirts.And nothing else. |
 | "Platonic" cuddle buddies. |
 | (wub)(wub)(wub) |
 | A dance board with "new ideas." |

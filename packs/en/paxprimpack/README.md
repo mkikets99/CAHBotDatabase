@@ -20,8 +20,7 @@ Answers amount: 171
 | The Discovery Channel presents: _ week. | 1 |
 | What's the weirdest thing that AdMagic has printed? | 1 |
 | I'm Bobby Flay, and if you can't stand _, get out of the kitchen! | 1 |
-| It's not delivery.
-It's _. | 1 |
+| It's not delivery.It's _. | 1 |
 | Aw babe, your burps smell like _! | 1 |
 | Don't miss Rachel Ray's hit new show, Cooking with _. | 1 |
 | Excuse me, waiter. Could take this back? This soup tastes like _. | 1 |

@@ -143,8 +143,7 @@ Answers amount: 184
 | The Oral Office. |
 | The other Bush. |
 | The Rwandan Genocide. |
-| The Ultimate Yule Log
-Play this card and win the round.
+| The Ultimate Yule LogPlay this card and win the round.
 The gift that keeps on giving. |
 | The War on Drugs. |
 | Thinly veiled Hitler quotes. |

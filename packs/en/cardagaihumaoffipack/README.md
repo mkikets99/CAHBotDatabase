@@ -100,7 +100,6 @@ Answers amount: 2227
 | In an attempt to reach a wider audience, the Royal Ontario Museum has opened an interactive exhibit on _. | 1 |
 | Next season on Celebrity Apprentice: _. | 1 |
 | O say, does _ yet wave
-
 o'er the land of the fre and the home of the brave? | 1 |
 | The Royal Ontario Museum has just opened an interactive exhibit on _. | 1 |
 | What's the crustiest? | 1 |
@@ -138,8 +137,7 @@ o'er the land of the fre and the home of the brave? | 1 |
 | I have invented a new sport. I call it "_ ball." | 1 |
 | I lost my arm in a _ accident. | 1 |
 | Isn't this great, honey? Just you, me, the kids, and _. | 1 |
-| It's BIG.
-It's SCARY.
+| It's BIG.It's SCARY.
 It's _! | 1 |
 | James Bond will return in "No Time for _." | 1 |
 | Joey, look out behind you! It's _! | 1 |
@@ -190,8 +188,7 @@ It's _! | 1 |
 | Having tired of poetry and music, the immortal elves now fill their days with _. | 1 |
 | Hell hath no fury like _. | 1 |
 | HELP WANTED: Need assistance with _. No experience necessary. | 1 |
-| Here is the church
-Here is the steeple
+| Here is the churchHere is the steeple
 Open the doors
 And there is _. | 1 |
 | Hi, this is Jim from accounting. We noticed a $1,200 charge labeled "_." Can you explain? | 1 |
@@ -213,8 +210,7 @@ And there is _. | 1 |
 | And I would have gotten away with it, too, if it hadn't been for _! | 1 |
 | Awww, sick! I just saw this skater do a 720 kickflip into _! | 1 |
 | Dear Substitute Teacher, could you please stop _? | 1 |
-| DOCTOR:
-What seems to be the problem?
+| DOCTOR:What seems to be the problem?
 
 YOU: 
 _. | 1 |
@@ -252,7 +248,6 @@ _. | 1 |
 | Do not go gentle into that good night. Rage, rage against _? | 1 |
 | Every Sunday "Insert Name" goes to market to sell _, and every time comes home with Magic Beans. | 1 |
 | Forget Fifty Shades of Grey...
-
 Give me Fifty Shades of _! | 1 |
 | Honey, I have good news, and bad news.  The good news is that I'm _.  The bad news is that I'm _. | 2 |
 | How am I going to kill myself? | 1 |
@@ -267,11 +262,9 @@ Give me Fifty Shades of _! | 1 |
 | Other parents worry about _ but I stress over _. | 2 |
 | She's a lady in the streets, _ in the sheets. | 1 |
 | The Juice is loose.  And by Juice I mean _. | 1 |
-| This is the way the world ends
-This is the way the world ends
+| This is the way the world endsThis is the way the world ends
 Not with a bang but with _. | 1 |
 | This year's trendiest card game:
-
 "_ Against _." | 2 |
 | We played baseball with _. | 1 |
 | Wes Anderson's new movie is a whimsical look at _ starring _. | 2 |
@@ -302,8 +295,7 @@ Not with a bang but with _. | 1 |
 | If at first you don't succeed, try _. | 1 |
 | In the 1950s, psychologists prescribed _ as a cure for homosexually. | 1 |
 | LSD + _ = really bad time. | 1 |
-| Mom's to-do list:
- * Buy Groceries
+| Mom's to-do list: * Buy Groceries
  * Clean up _.
  * Soccer Practice. | 1 |
 | Most Americans would not vote for a candidate who is openly _. | 1 |
@@ -317,8 +309,7 @@ Not with a bang but with _. | 1 |
 | She's just one of the guys, you know? She likes beer, and football, and _. | 1 |
 | Son, take it from someone who's been around the block a few times. Nothin' puts her in the mood like _. | 1 |
 | Summer lovin', had me a blast. _, happened so fast. | 1 |
-| The top Google auto-complete results for "Barack Obama":
-Barack Obama Height.
+| The top Google auto-complete results for "Barack Obama":Barack Obama Height.
 Barack Obama net worth.
 Barack Obama _. | 1 |
 | Then the princess kissed the frog, and all of a sudden the frog was _! | 1 |
@@ -366,8 +357,7 @@ Barack Obama _. | 1 |
 | Call the law offices of Goldstein & Goldstein, because no one should have to tolerate _ in the workplace. | 1 |
 | Charlie and the chocolate _. | 1 |
 | Dear Substitute Teacher, could you please stop _? | 1 |
-| DOCTOR:
-What seems to be the problem?
+| DOCTOR:What seems to be the problem?
 
 YOU: 
 _. | 1 |
@@ -416,7 +406,6 @@ _. | 1 |
 | To prepare for his upcoming role, Daniel Day-Lewis immersed himself in the world of _. | 1 |
 | Tonight on Police 10 7 we're chasing _, rumoured to be responsible for _. | 2 |
 | Twas the night before Christmas, and all through the house,
-
 not a creature was stirring, not even _. | 1 |
 | Welcome to Senor Frog's! Would you like to try our signature cocktail, "_ on the Beach"? | 1 |
 | What came in the mail today? | 1 |
@@ -505,7 +494,6 @@ not a creature was stirring, not even _. | 1 |
 | The Blues have as much chance of winning as _ has at getting laid. | 1 |
 | To protect the integrity of our democracy, voting booths in 2020 will be monitored by _. | 1 |
 | Twas the night before Christmas, and all through the house,
-
 not a creature was stirring, not even _. | 1 |
 | What made me this way? | 1 |
 | When you go to the polls on Tuesday, remember:  a vote for me is a vote for _. | 1 |
@@ -2390,8 +2378,7 @@ not a creature was stirring, not even _. | 1 |
 | The EDL. |
 | The entire Mormon Tabernacle Chior. |
 | The Flying Spaghetti Monster. |
-| the four,
-or the three,
+| the four,or the three,
 or the two |
 | The gun lobby |
 | The harsh light of day. |

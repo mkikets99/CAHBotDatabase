@@ -16,8 +16,7 @@ Answers amount: 68
 | Because they are forbidden from masturbating, Mormons channel their repressed sexual energy into _. | 1 |
 | Blessed are you, Lord our God, creator of the universe, who has granted us _. | 1 |
 | But wait, there's more! If you order _ in the next 15 minutes, we'll throw in _ absolutely free! | 2 |
-| GREETINGS HUMANS
-I AM _ BOT
+| GREETINGS HUMANSI AM _ BOT
 EXECUTING PROGRAM. | 1 |
 | Heroin: a proud supporter of _. | 1 |
 | I really hope my grandma doesn't ask me to explain _ again. | 1 |

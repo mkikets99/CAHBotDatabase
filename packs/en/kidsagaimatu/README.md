@@ -70,8 +70,7 @@ Answers amount: 272
 | It's a bird! It's a plane! No it's _! | 1 |
 | Just a spoon full of _ helps the medicine go down. | 1 |
 | Kill two birds with one _. | 1 |
-| Knock, knock.
-Whos there?
+| Knock, knock.Whos there?
 _. | 1 |
 | Lady and the _. | 1 |
 | Last night I found _ in my bed. | 1 |

@@ -87,8 +87,7 @@ Answers amount: 636
 | It`s been revealed that Disney`s latest animated film will be called - _. | 1 |
 | Just because you're married doesn't mean you have to give up _. | 1 |
 | Leading marriage experts suggest _ to improve your intimacy. | 1 |
-| Love is patient.
-Love is kind.
+| Love is patient.Love is kind.
 Love is _. | 1 |
 | Making love to the person reading this card is like _. | 1 |
 | Marriage is like _: it's alawys over sooner than you think. | 1 |
@@ -214,7 +213,6 @@ Love is _. | 1 |
 | A little too much glitter. |
 | A long, awkward pause before she says "I do." |
 | A maid of honor with no shame.
-
 No. Shame. |
 | A mediocre dominatrix. |
 | A misunderstanding involving a strap-on. |
@@ -359,7 +357,6 @@ No. Shame. |
 | Sexercise. |
 | Sharing a bank account. |
 | Sharing all your most embarrassing secrets.
-
 Except one. |
 | Skinny dipping in a vat of bubble solution. |
 | Sleeping only with virgins because your penis is so small, you want to make sure they have nothing to compare it to. |

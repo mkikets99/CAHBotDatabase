@@ -130,7 +130,6 @@ Answers amount: 691
 | Setting _ on fire at the Hyde Street keg party. | 1 |
 | Sharron with the bright pink comb over just bowled in here asking to speak to _. | 1 |
 | So then he says, "If you want to make this relationship work, you need to give up _ and _."
-
 As.  If. | 2 |
 | Susan Paul, is famous for her glowing _. | 1 |
 | Tauranga is full of Christians, old people and _. | 1 |

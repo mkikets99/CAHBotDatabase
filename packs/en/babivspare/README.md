@@ -68,8 +68,7 @@ Answers amount: 186
 | People thought I was bat-shit crazy when I said I was gonna _. | 1 |
 | Pregnant moms are really into _ these days. | 1 |
 | Rumor has it that my doctor really loves _. Especially when it comes with _. | 2 |
-| Step 1: _.
-Step 2: _.
+| Step 1: _.Step 2: _.
 The End. | 2 |
 | Stop! I really need to _! | 1 |
 | Studies show that babies are most cloesly related to _. | 1 |

@@ -9,10 +9,8 @@ Answers amount: 1328
 | _ is no stranger to an AGE Ranger! | 1 |
 | _! the SecAF exclaimed ass he shape-shifted into a lizard person and scurried through the Pentagon. | 1 |
 | "I want you for _!"
-
 -- Uncle Sam | 1 |
 | "What flight are you on?!?"
-
 "Flight _, Sir!" | 1 |
 | A commissary bagger gives you the death stare. Tip them with _ and get the hell out of there! | 1 |
 | A dorm party isn't a dorm party without _! | 1 |
@@ -64,7 +62,6 @@ Answers amount: 1328
 | So you're saying you have a PT waiver for _? Niiiice... | 1 |
 | Standing at attention, the trainees yel, "Off we go, into _!" | 1 |
 | Step 1: Request any DSD except MTI.
-
 Step 2: _.
 
 Step 3: You're an MTI now. | 1 |
@@ -156,8 +153,7 @@ Step 3: You're an MTI now. | 1 |
 | Sing: "When my granny was 95, she did _ just to stay alive!" | 1 |
 | Sir, why are you crying? | 1 |
 | Soldiers have created a new religion, where _ is held sacred above all else. | 1 |
-| Step 1: Deploy.
-Step 2: _
+| Step 1: Deploy.Step 2: _
 Step 3: Receive Bronze Star. | 1 |
 | The Army is using virtual reality to prepare for combat, which forces Soldiers to endure hours of _. | 1 |
 | The curious lieutenant found _ on the other side of the latrine gloryhole. | 1 |
@@ -268,8 +264,7 @@ Step 3: Receive Bronze Star. | 1 |
 | Hey, boot! What happened to your fucking face?!? | 1 |
 | Honor those lost at sea. Seriously, pause the game and raise your glasses for those who unknowingly made their final voyage. | 1 |
 | Honor, Courage, Commitment, and _: The Newest Marine Corps Value. | 1 |
-| How to be a Marine Recruiter:
-- Lie to dumb kids;
+| How to be a Marine Recruiter:- Lie to dumb kids;
 - Have sex with dumb kids;
 - _. | 1 |
 | I don't care what your team leader says, _ is not an excuse for being drunk on duty! | 1 |
@@ -285,8 +280,7 @@ Step 3: Receive Bronze Star. | 1 |
 | Instead of using wax to buff the deck, the E-5 and below are forced to use _. | 1 |
 | Interrogators are now using _ and _ as their new go-to torture methods. | 2 |
 | June is LGBT Pride Month. What is the Marine Corps doing to celebrate? | 1 |
-| Look, over there!
-It's a bomb crater!
+| Look, over there!It's a bomb crater!
 It's a mass grave!
 No, it's _! | 1 |
 | Marine Corps coloring books filled with pictures of _ and _ are now being issued to all Recruits. | 2 |
@@ -299,16 +293,14 @@ No, it's _! | 1 |
 | Semper Fidelis has been replaced with "_ and _," the new Marine Corps motto. | 2 |
 | Smug Naval Academy grads believe they're the best at _. | 1 |
 | So you can give _ to Jesus, but your ass belongs to the Corps! | 1 |
-| Step 1: Ship to boot camp.
-Step 2: _.
+| Step 1: Ship to boot camp.Step 2: _.
 Step 3: NJP'd. | 1 |
 | Terminal Lance comics need more _! | 1 |
 | That dumb shit new boot got a moto tattoo across his back that says _. | 1 |
 | The "new" Marine Corps is now kinder, gentler, and more focused on _. | 1 |
 | The deplorable state of morale in the Corps can be attributed to a combination of _ and _. | 2 |
 | The Few, the Proud, _. | 1 |
-| The Grunt Diet:
-- 1 part _;
+| The Grunt Diet:- 1 part _;
 - 2 parts _;
 - And a dash of _. | 3 |
 | The key to being the ideal Marine is _. | 1 |
@@ -341,7 +333,6 @@ Step 3: NJP'd. | 1 |
 | _ will attempt to destroy the Navy. _ will ensure that threat is defeated. | 2 |
 | _: it's what Academy grads do best! | 1 |
 | *Read this in your best tranny voice*
-
 Hey, Sailor! Come over here and let me show you _! | 1 |
 | According to the international best seller Breaking Up With Your Boat Boo, _ is the #1 way to cope with your loss. | 1 |
 | Admit it, Seaman! You've always suspected your LPO of _. | 1 |
@@ -379,8 +370,7 @@ Hey, Sailor! Come over here and let me show you _! | 1 |
 | Instead of "Hooyah!" the new Navy catch phrase should be "_!" | 1 |
 | ISIS is now demanding _ in exchange for hostages. | 1 |
 | It's the Navy's birthday! What are you doing to celebrate? | 1 |
-| IYAOYAS.
-Translation: _. | 1 |
+| IYAOYAS.Translation: _. | 1 |
 | Locking your coffin rack prevents berthing rats from pilfering your secret stash of _. | 1 |
 | Loose lips sink ships. Don't ever discuss _ or _. | 2 |
 | Need to get revenge on a jacket-wearing OS? Try cramming their freshly polished boots inside of _. | 1 |
@@ -392,7 +382,6 @@ Translation: _. | 1 |
 | Rip Its® and _ destroyed this Sailor's life! | 1 |
 | Some chuckle fuck got busted for _ and now we have to stay late for ORM training. | 1 |
 | Step 1: Liberty in Thailand.
-
 Step 2: Captain's Mast for _.
 
 Step 3: Die of antibiotic-resistant dick rot. | 1 |

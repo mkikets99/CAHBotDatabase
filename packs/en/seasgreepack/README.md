@@ -8,8 +8,7 @@ Answers amount: 23
 |---|---|
 | Blood is thicker than _. | 1 |
 | Donna, pick up my dry cleaning and get my wife something for Christmas. I think she likes _. | 1 |
-| Here's what you can expect for the new year.
-Out: _.
+| Here's what you can expect for the new year.Out: _.
 In: _. | 2 |
 | It's beginning to look a lot like _. | 1 |
 | Jesus performed the miracle of _ but it was never recorded. | 1 |

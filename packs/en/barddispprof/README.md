@@ -9,24 +9,18 @@ Answers amount: 375
 | _ is the new _. | 2 |
 | _ guaranteed, or your money back! | 1 |
 | [POINT TO ANY PLAYER.]
-
 My friendship with this person is based entirely on _. | 1 |
 | [POINT TO THE PERSON TO YOUR LEFT.]
-
 I have this person to thank for introducing me to _. | 1 |
 | [POINT TO THE PERSON TO YOUR LEFT.]
-
 What is this person's guilty pleasure? | 1 |
 | [POINT TO THE PERSON TO YOUR RIGHT.]
-
 What does this person prefer in the bedroom? | 1 |
 | A bird in the hand is worth _. | 1 |
 | A euphemism for the sex act that you would least like to discuss with your parents: | 1 |
-| A horse!
-a horse!
+| A horse!a horse!
 _ for a horse! | 1 |
-| A million dollars isn't cool.
-You know what's cool? _. | 1 |
+| A million dollars isn't cool.You know what's cool? _. | 1 |
 | A rabbi, _, and _ walk into a bar. | 2 |
 | A vote for Donald Trump is a vote to Make America _ Again. | 1 |
 | Absence makes the heart grow _. | 1 |
@@ -40,8 +34,7 @@ You know what's cool? _. | 1 |
 | By the age of four, male children already display a preference for _. | 1 |
 | Cowards die many times before their deaths; the valiant never taste _. | 1 |
 | Creepiest ride ever: my Uber driver was _. | 1 |
-| DRILL SERGEANT:
-What the hell are you doing, private?
+| DRILL SERGEANT:What the hell are you doing, private?
 
 PRIVATE:
 Sir, _, sir! | 1 |
@@ -55,8 +48,7 @@ Sir, _, sir! | 1 |
 | I believe it was Winston Churchill who said: "Never in the field of human conflict was so much owed by so many to _." | 1 |
 | I could never marry someone who supports banning _. | 1 |
 | I don't consider myself religious, but I do believe in _. | 1 |
-| I got my dog from a shelter.
-She was rescued from _. | 1 |
+| I got my dog from a shelter.She was rescued from _. | 1 |
 | I have a dream that one day this nation wil rise up and live out the true meaning of _. | 1 |
 | I love the smell of _ in the morning | 1 |
 | I majored in business, but I minored in _. | 1 |
@@ -77,7 +69,6 @@ She was rescued from _. | 1 |
 | My high school diary has a BUNCH of entries about _. | 1 |
 | My road rage really gets out of control when the other driver is _. | 1 |
 | O say, does _ yet wave
-
 o'er the land of the fre and the home of the brave? | 1 |
 | Oh yeah? Well I graduated from the University of _! | 1 |
 | On the twelfth day of Christmas, my true love gave to me _. | 1 |
@@ -87,34 +78,29 @@ o'er the land of the fre and the home of the brave? | 1 |
 | Plot twist: they were _ the whole time! | 1 |
 | PRINCE HARRY CAUGHT IN _ SCANDAL | 1 |
 | Romeo, Romeo! Wherefore art thou _? | 1 |
-| SCARLETT:
-Where shall I go? What shall I do?
+| SCARLETT:Where shall I go? What shall I do?
 
 RHETT:
 Frankly, my dear, I don't give _. | 1 |
 | Scholars have discovered a previously unknown Sherlock Holmes story called "The Adventure of _." | 1 |
 | Some are born great, some achieve greatness, and some have _. | 1 |
 | Some conspiracists belive that Shakespeare's plays were actually written by _. | 1 |
-| Thanks, everyone, for coming out tonight.
-This next song is called "_." | 1 |
+| Thanks, everyone, for coming out tonight.This next song is called "_." | 1 |
 | The course of _ never did run smooth. | 1 |
 | The eyes are windows to _. | 1 |
 | The latest Westboro Baptist Church sign:
-
 GOD HATES _. | 1 |
 | The pen is mightier than _. | 1 |
 | The sign of true adult maturity: | 1 |
 | There's a theory that Shakespeare was actually _. | 1 |
 | These days the kids are calling it "_." | 1 |
 | This year's trendiest card game:
-
 "_ Against _." | 2 |
 | Throw _ in the air like you just don't care! | 1 |
 | Title of a bestselling memoir later revealed to be fabricated: | 1 |
 | Title of a film that's trying to win an Oscar: | 1 |
 | To be, or not to be: that is _. | 1 |
 | Twas the night before Christmas, and all through the house,
-
 not a creature was stirring, not even _. | 1 |
 | Ugh, I just sat through this dude mansplaining _ to me for a half hour. | 1 |
 | We'll be holding you in an isolation chamber until we can rule out _ Syndrome. | 1 |
@@ -132,13 +118,11 @@ not a creature was stirring, not even _. | 1 |
 | When told that the people had no bread to eat, Marie Antoinette is said to have suggested: "Let them eat _." | 1 |
 | With my skills in _, and your knowledge in _, we could rule the world! | 2 |
 | Yes, I have a question. Well, not so much a question as _. | 1 |
-| You:
-Play Rediohead.
+| You:Play Rediohead.
 
 Siri:
 Sorry. I don't know what "_" means. | 1 |
 | You're seeing a therapist for the first time. The therapist asks why you've come.
-
 Your answer: | 1 |
 | Your call is very important to us. Please stay on the line and we'll be _. | 1 |
 
@@ -151,8 +135,7 @@ Your answer: | 1 |
 | a baboon's blood |
 | a barber's chair that fits all buttocks |
 | a barren sister |
-| a boil,
-a plague-sore,
+| a boil,a plague-sore,
 an embossed carbuncle |
 | a bolt of nothing, shot at nothing |
 | a butter-woman's mouth |
@@ -169,7 +152,6 @@ an embossed carbuncle |
 | a double tongue; there's two tongues |
 | a dumb innocent |
 | a Dutchman today,
-
 a Frenchman to-morrow |
 | a Dutchman's beard |
 | a fat tripe finely broiled |
@@ -189,8 +171,7 @@ a Frenchman to-morrow |
 | a kind of excellent dumb discourse |
 | a kind of yesty collection |
 | a king transformed to a gnat |
-| a knack,
-a toy,
+| a knack,a toy,
 a trick,
 a baby's cap |
 | a lewd day-bed |
@@ -203,7 +184,6 @@ a baby's cap |
 | a pair of stainless maidenhoods |
 | a piece of beef and mustard |
 | a plentiful lack of wit,
-
 together with most weak hams |
 | a poor, bare, forked animal |
 | a pretty piece of flesh |
@@ -228,8 +208,7 @@ together with most weak hams |
 | a whole school of tongues in this belly of mine |
 | a wonder, if you talk of a wonder |
 | a wood woman |
-| Adam,
-Ralph,
+| Adam,Ralph,
 and Gregory |
 | Alexander the Pig |
 | all kinds of sores and shames on my bare hand |
@@ -245,13 +224,11 @@ and Gregory |
 | anunauthorized kiss |
 | asaucy stranger |
 | bastard Normans,
-
 Norman bastards! |
 | bellowing like bulls |
 | blasting in the bud |
 | blowing him down again |
 | blubbering and weeping,
-
 weeping and blubbering |
 | bold and saucy |
 | both the Blunts |
@@ -266,8 +243,7 @@ weeping and blubbering |
 | cracking nuts |
 | Cupid's butt-shaft |
 | dismal thinkings |
-| drinking,
-fencing,
+| drinking,fencing,
 swearing,
 quarrelling |
 | dumb jewels |
@@ -295,16 +271,13 @@ quarrelling |
 | he that hath killed my king and whored my mother |
 | head, and butt! |
 | headstrong women |
-| her C's,
-her U's,
+| her C's,her U's,
 and her T's |
 | her fine foot, straight leg, and quivering thigh
-
 and the demesnes that there adjacent lie |
 | her lamb when it baes |
 | her virgin-knot |
-| here, sir!
-here, sir!
+| here, sir!here, sir!
 here, sir!
 here, sir! |
 | hiding the grossness |
@@ -348,8 +321,7 @@ here, sir! |
 | my bastardizing |
 | my familiar sin with maids |
 | my father with his bleeding rings |
-| my house,
-my household
+| my house,my household
 stuff, my field,
 my barn,
 my horse,
@@ -367,8 +339,7 @@ my any thing |
 | my wedding sheets |
 | my well-known body |
 | my wife's liver |
-| Nathaniel,
-Joseph,
+| Nathaniel,Joseph,
 Nicholas,
 Philip,
 Walter,
@@ -400,8 +371,7 @@ and the rest |
 | quaffing and drinking |
 | rank and not-to-be-endured riots |
 | ratsbane in my mouth |
-| reputation,
-reputation,
+| reputation,reputation,
 reputation |
 | ridiculous smiling |
 | rings and things |
@@ -411,8 +381,7 @@ reputation |
 | seventy senators that died |
 | sighs and groans and shrieks |
 | Sir Smile |
-| sisters!
-sisters!
+| sisters!sisters!
 shame of ladies!
 sisters! |
 | sitting in my Dolphin-chamber |
@@ -459,8 +428,7 @@ sisters! |
 | the first cock |
 | the flower that's like thy face |
 | the foot of a flea |
-| the four,
-or the three,
+| the four,or the three,
 or the two |
 | the French lord, Monsieur Le Bon |
 | the frozen bosom of the north |
@@ -480,8 +448,7 @@ or the two |
 | the lascivious pleasing of a lute |
 | the little hangman |
 | the loose encounters of lascivious men |
-| the maiden's organ,
-shrill and sound |
+| the maiden's organ,shrill and sound |
 | the meaning, pretty ingenious? |
 | the mere effusion of thy proper loins |
 | the moist star |
@@ -496,7 +463,6 @@ shrill and sound |
 | the owner of a foul disease |
 | the pillow, there the bolster, this way the coverlet, another way the sheets |
 | the pin-buttock,
-
 the quatch-buttock,
 
 the brawn buttock,
@@ -555,14 +521,12 @@ or any buttock |
 | waxen thighs |
 | Welcome, ass. |
 | what have we here?
-
 a man or a fish? |
 | what o' clock I say it is |
 | what these dastard Frenchman dare |
 | what woman is, yea |
 | What, Jessica! |
-| what's this?
-mutton? |
+| what's this?mutton? |
 | when I wash my brain |
 | where air comes out |
 | where the bee sucks |

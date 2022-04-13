@@ -6,12 +6,10 @@ Answers amount: 25
 ### Questions
 | Question | Amount of answers |
 |---|---|
-| Alright everybody, HOLD!
-Kelly, why is there _ on my stage? | 1 |
+| Alright everybody, HOLD!Kelly, why is there _ on my stage? | 1 |
 | Comedy = Tragedy + _. | 1 |
 | Let's take it from the top, and remember, you are _. Show me  _(SAME CARD AGAIN)_. | 3 |
-| Match-maker,
-match-maker,
+| Match-maker,match-maker,
 make me a match.
 Find me _. | 1 |
 | This season at Manhattan Theatre Club: "Who's afraid of _?" | 1 |

@@ -37,8 +37,7 @@ Answers amount: 27
 | Munkustrap. |
 | Old Deuteronomy. |
 | Peter, Augustus, Alonzo, or James. |
-| Practical cats,
-dramatical cats,
+| Practical cats,dramatical cats,
 oratical cats,
 sceptical cats,
 romantical cats,

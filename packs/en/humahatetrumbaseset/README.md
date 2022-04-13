@@ -14,8 +14,7 @@ Answers amount: 200
 | All women flirt with me, consciously or unconsciously, thinking about _. | 1 |
 | Ariana Huffington is unattractive, both inside and out. I fully understand why her former husband left her for (a) _. He made a good decision. | 1 |
 | Being President is easy. You just need _. | 1 |
-| Dear Santa, All I want for Christmas is _. Love, Don
- 
+| Dear Santa, All I want for Christmas is _. Love, Don 
 PS, Give Hillary _. | 2 |
 | Ever since _, my life has gotten so much busier. | 1 |
 | Everything is negotiable except _. | 1 |
@@ -237,8 +236,7 @@ PS, Give Hillary _. | 2 |
 | The thing I'm hiding in my basement. |
 | The ugly Olsen twin. |
 | The Ultimate TRUMP Card |
-| The Ultimate Yule Log
-Play this card and win the round.
+| The Ultimate Yule LogPlay this card and win the round.
 The gift that keeps on giving. |
 | The United States, a dumping ground for everyone else's problems. |
 | The voices inside my head. |

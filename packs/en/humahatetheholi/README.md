@@ -55,8 +55,7 @@ Answers amount: 160
 | Only you can prevent _. | 1 |
 | Our waitress at Hooters™ showed us her _. | 1 |
 | Our wedding night consisted of _ and _. | 2 |
-| Roses are red,
-Violets are blue,
+| Roses are red,Violets are blue,
 I am going to _
 with you. | 1 |
 | Sex: Making _ great again. | 1 |
@@ -144,8 +143,7 @@ with you. | 1 |
 | The disappointment of a Jewish child on the 25th. |
 | The sense of holiday spirit you feel while buried to the hilt in the cold, uncooked guts of your Thanksgiving Day turkey. |
 | The Star Wars prequels |
-| The Ultimate Yule Log
-Play this card and win the round.
+| The Ultimate Yule LogPlay this card and win the round.
 The gift that keeps on giving. |
 | Unwrapping Go-Bots® because you're poor. |
 | Unwrapping Justin Timberlake's dick in a box. |

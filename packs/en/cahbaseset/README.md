@@ -46,7 +46,6 @@ Answers amount: 1275
 | Anthropologists have recently discovered a primitive tribe that worships _. | 1 |
 | Arby's: We Have _. | 1 |
 | Are you thinking what I'm thinking, B1?
-
 I think I am, B2: it's _ time! | 1 |
 | As my New Year's resolution, I vow to give up _. | 1 |
 | As the mom of five rambunctious boys, I'm no stranger to _. | 1 |
@@ -88,8 +87,7 @@ I think I am, B2: it's _ time! | 1 |
 | Fun tip! When your man asks you to go down on him, try surprising him with _ instead. | 1 |
 | Future historians will agree that _ marked the beginning of America's decline. | 1 |
 | Having problems with _? Try _! | 2 |
-| Here is the church
-Here is the steeple
+| Here is the churchHere is the steeple
 Open the doors
 And there is _. | 1 |
 | Hey guys, welcome to Boston Pizza! Would you like to start the night off right with _? | 1 |
@@ -187,8 +185,7 @@ And there is _. | 1 |
 | Science will never explain _. | 1 |
 | Skidamarink a dink a dink, skidamarink a doo, I love _. | 1 |
 | Sorry everyone, I just _. | 1 |
-| Step 1: _.
-Step 2: _.
+| Step 1: _.Step 2: _.
 Step 3: Profit. | 2 |
 | Studies show that lab rats navigate mazes 50% faster after being exposed to _. | 1 |
 | Thank God for alcohol and _. | 1 |
@@ -208,8 +205,7 @@ Step 3: Profit. | 2 |
 | The theme for next year's Eurovision Song Contest is "We are _." | 1 |
 | The U.S. has begun airdropping _ to the children of Afghanistan. | 1 |
 | They said we were crazy. They said we couldn't put _ inside of _. They were wrong. | 2 |
-| This is the way the world ends
-This is the way the world ends
+| This is the way the world endsThis is the way the world ends
 Not with a bang but with _. | 1 |
 | This is your pilot speaking. Please prepare for _. | 1 |
 | This season at Steppenwolf, Samuel Beckett's classic existential play: Waitng for _. | 1 |
@@ -1189,8 +1185,7 @@ Not with a bang but with _. | 1 |
 | Rectangles. |
 | Rehab. |
 | Repression. |
-| reputation,
-reputation,
+| reputation,reputation,
 reputation |
 | Reverse gentrification. |
 | Rich people. |

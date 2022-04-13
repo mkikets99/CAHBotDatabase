@@ -8,8 +8,7 @@ Answers amount: 58
 |---|---|
 | _, it's what happens at SNB. | 1 |
 | Next up in my Ravelry queue _. | 1 |
-| Step 1: _
-Step 2: _
+| Step 1: _Step 2: _
 Step 3: A cozy new sweater! | 2 |
 | Stitch marker? Who needs a stitch marker when you have _? | 1 |
 | What's keeping me from knitting? | 1 |

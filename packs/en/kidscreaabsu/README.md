@@ -6,16 +6,11 @@ Answers amount: 350
 ### Questions
 | Question | Amount of answers |
 |---|---|
-| *RANDOM*
-Hand this card to another player and have them: MAKE A LOUD FART NOISE | 1 |
-| *RANDOM*
-Hand this card to another player and have them: MAKE SILLY FACES FOR THIRTY SECONDS | 1 |
-| *RANDOM*
-Hand this card to another player and have them: SING A SONG | 1 |
-| *RANDOM*
-Hand this card to another player and have them: TELL A FUNNY STORY | 1 |
-| *RANDOM*
-Hand this card to another player and have them: TELL A JOKE | 1 |
+| *RANDOM*Hand this card to another player and have them: MAKE A LOUD FART NOISE | 1 |
+| *RANDOM*Hand this card to another player and have them: MAKE SILLY FACES FOR THIRTY SECONDS | 1 |
+| *RANDOM*Hand this card to another player and have them: SING A SONG | 1 |
+| *RANDOM*Hand this card to another player and have them: TELL A FUNNY STORY | 1 |
+| *RANDOM*Hand this card to another player and have them: TELL A JOKE | 1 |
 | Did you hear about the new boy band? They are called _ on the Block. | 1 |
 | Eating _ makes me stronger. | 1 |
 | Eenie, meenie, miney, mo. Catch a tiger by _. | 1 |
@@ -66,8 +61,7 @@ Hand this card to another player and have them: TELL A JOKE | 1 |
 | Instead of turkey this year, my family is going to eat _ for Thanksgiving. | 1 |
 | It's raining cats and _. | 1 |
 | Kids Create Absurdity makes me want to _. | 1 |
-| Knock, knock.
-Who's there? | 1 |
+| Knock, knock.Who's there? | 1 |
 | Last night I dreamt about _. | 1 |
 | Look up at the sky and wish upon a _. | 1 |
 | My babysitter says I can't have a snack until I clean up all of my _. | 1 |

@@ -82,12 +82,10 @@ Answers amount: 63
 | Collapsing into singularity. Twenty minutes fo foreplay, three minutes of coitus, five minutes of rest, back to the yards for some croquet. |
 | Computers. |
 | Cum, but it's ranch. |
-| Fashion... 
-heard of if? |
+| Fashion... heard of if? |
 | Getting my mind boggled by a gang of mind bogglers. |
 | Letting these hoes know. |
-| Meatballs,
-meatballs,
+| Meatballs,meatballs,
 meatballs! |
 | Passing fart and making toilet. |
 | Running afoul of the Sultan's Janissaries. |
@@ -98,8 +96,7 @@ meatballs! |
 | The tiny man who only eats coffee beans and diarrheas into my thermos every morning. |
 | Using electric eels to solve the world's energy crisis. |
 | Why, a hot air balloon of course! |
-| You there!
-French boy! |
+| You there!French boy! |
 
 |Total amount: 63|
 |---|

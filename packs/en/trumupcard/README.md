@@ -11,8 +11,7 @@ Answers amount: 580
 | As Abraham Lincoln famously declared, "The first casualty in the War on the Media is the truth.  The second is _." | 1 |
 | Step one:  Move on the Constitution like a bitch.  Step two: _. | 1 |
 | To protect the integrity of our democracy, voting booths in 2020 will be monitored by _. | 1 |
-| Use two White Cards to compose a Trump-like tweet:
-_,
+| Use two White Cards to compose a Trump-like tweet:_,
 _.
 Not nice! | 2 |
 | What does the Russians' kompromat on President Trump consist of? | 1 |
@@ -80,11 +79,9 @@ Not nice! | 2 |
 | On Thanksgiving, President Trump will only pardon turkeys with U.S. citizenship. All other turkeys, including anchor chicks, will be deported to _. | 1 |
 | Our current nuclear arsenal is old and disgusting! Under President Trump, we'll have young, firm, beautiful warheads equipped with _. | 1 |
 | Sadly, the Statue of Liberty is no longer a 10. She really needs _. | 1 |
-| Step 1: _.
-Step 2: _.
+| Step 1: _.Step 2: _.
 Step 3: Caucus! | 2 |
-| Step 1: Fit all your ideas onto a baseball cap.
-Step 2: _. | 1 |
+| Step 1: Fit all your ideas onto a baseball cap.Step 2: _. | 1 |
 | The Pentagon? That's a very low-energy building. Our fabulous new Department of Ass-Kicking is going to have _. | 1 |
 | The Presidental line of succession under Trump: Gary Busey. Omarosa. _. | 1 |
 | The Trump Gitmo revamp? Fantastic waterboarding grotto, beautiful cultural humiliation lounge, and _. | 1 |
@@ -104,8 +101,7 @@ Step 2: _. | 1 |
 | Trump's concealed carry permit allows him to legally weaponize himself with guns, Trump cologne, and _. | 1 |
 | Trump's cure for income inequality? _. | 1 |
 | Trump's favorite book: The Bible. The subject of his favorite Biblical verse: _. | 1 |
-| Trump's first pick to replace Justice Scalia?
-Ivanka.
+| Trump's first pick to replace Justice Scalia?Ivanka.
 
 His second: _. | 1 |
 | Trump's foundation gave $1000 to a Scientology-linked program that helps detoxify 9/11 rescue workers via "jogging, oil ingestion, sauna and _." | 1 |

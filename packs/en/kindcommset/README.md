@@ -14,11 +14,9 @@ Answers amount: 324
 | _ is worse than stepping on a Lego. | 1 |
 | All I want for Christmas is a day without _. | 1 |
 | Before kids, I never thought about _. | 1 |
-| Box of diapers: $40.
-Food for the week: $200.
+| Box of diapers: $40.Food for the week: $200.
 _: priceless. | 1 |
-| Brown bear,
-brown bear,
+| Brown bear,brown bear,
 what do
 you see? | 1 |
 | Caution! _ leads to _. | 2 |

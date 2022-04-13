@@ -8,41 +8,34 @@ Answers amount: 257
 |---|---|
 | Ain't it nifty? Barb and Bob hit 50! So get off your ass and raise a glass to 50 years of _. | 1 |
 | Duuuuuuude. You have got to go to space. _ is awesome in space. | 1 |
-| Five,
-four,
+| Five,four,
 three,
 two,
 one....
 _! | 1 |
 | For hunting in the King's forest, I hereby sentence you to death by _. | 1 |
 | Give me ten good men and 48 hours. I'll get you _. | 1 |
-| Goldfinger!
-He's the man,
+| Goldfinger!He's the man,
 the man with _. | 1 |
 | Goodbye, _, hello _! | 2 |
 | Here's a little something I learned in business school: The customer is always _. | 1 |
-| Hey, honey.
-For the bedroom, were you thinking, "Robin's Egg Blue" or _Pink?" | 1 |
-| I hate this job.
-I hate this place.
+| Hey, honey.For the bedroom, were you thinking, "Robin's Egg Blue" or _Pink?" | 1 |
+| I hate this job.I hate this place.
 Most of all, I hate _.
 I quit. | 1 |
-| I have solved politics.
-My solution is _. | 1 |
+| I have solved politics.My solution is _. | 1 |
 | I so drunk I _. | 1 |
 | I swear to God I'm gonna murder my husband if he doesn't shut the fuck up about _. | 1 |
 | In bookstores now: "From _ to _: A memoir." | 2 |
 | In Radiohead's new single, Thom Yorke repeats the phrase "_" dozens of times over a skittering drum beat. | 1 |
 | It's finally happening! I'm finally doing it! Yes! It's time for _! | 1 |
 | It's late at night. You're in bed with your lover, Patrick Stewart. He leans over with a twinkle in his eye and asks "How about _?" | 1 |
-| It's the 21st century.
-A woman shouldn't have to apologize for _. | 1 |
+| It's the 21st century.A woman shouldn't have to apologize for _. | 1 |
 | Ladies and gentlemen, I propose a two-pronged plan. The first prong will be _, and the second prong will be _. | 2 |
 | Live from Universal Studios, it's America's favorite game show! "_ or _?" | 2 |
 | Millions of copies sold! Donald Trump's "The Art of _." | 1 |
 | New at TGI Fridays! It's what you've been waiting for: The _ Burger. | 1 |
-| Oh no!
-Here it comes!
+| Oh no!Here it comes!
 Ohhhhh god!
 It's _. | 1 |
 | Oh you haaaaaaave to see this new documentary on Netflix. I don't want to give anything away, but let's just say it will change the way you look at _. | 1 |
@@ -61,12 +54,10 @@ It's _. | 1 |
 | What sounds great after four margaritas? | 1 |
 | What's hot, smelly, and about to die? | 1 |
 | What's secretly a Russian plot to destabilize the West? | 1 |
-| What's up, YouTube?
-User DanTheMan wanted to see _, so here we go. | 1 |
+| What's up, YouTube?User DanTheMan wanted to see _, so here we go. | 1 |
 | Why did the chicken cross the road? | 1 |
 | Why my mustache smell so bad? | 1 |
-| Yeah that's so hot.
-I'm so close.
+| Yeah that's so hot.I'm so close.
 Talk about _ again!
 OH I'M CUMMING! | 1 |
 | You can call me David Copperfield, because I'm about to make _ disappear. | 1 |
@@ -231,8 +222,7 @@ OH I'M CUMMING! | 1 |
 | My secret butt. |
 | My son's dipshit friends. |
 | My son's husband's huge cock. |
-| My wife.
-(in Borat voice) |
+| My wife.(in Borat voice) |
 | Naked Dad. |
 | Netflix. |
 | New DNA evidence exonerating OJ Simpson. |

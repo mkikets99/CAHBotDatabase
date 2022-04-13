@@ -72,7 +72,13 @@ let ffn = fs.readdirSync(path.join(__dirname,"packs","en"),{withFileTypes:true})
 ffn.forEach(el=>{
     if(el.isDirectory()){
         let pack = JSON.parse(fs.readFileSync(path.join(__dirname,"packs","en",el.name,"pack.json")))
+        /**
+         * @type {any[]}
+         */
         let packa = JSON.parse(fs.readFileSync(path.join(__dirname,"packs","en",el.name,"answers.json")))
+        /**
+         * @type {any[]}
+         */
         let packq = JSON.parse(fs.readFileSync(path.join(__dirname,"packs","en",el.name,"questions.json")))
         fs.writeFileSync(path.join(__dirname,"packs","en",el.name,"README.md"),
             packhead.replace("{name}",pack.name)
@@ -80,8 +86,8 @@ ffn.forEach(el=>{
                     .replace("{type}",pack.type)
                     .replace("{quest}",pack.qcount)
                     .replace("{ans}",pack.acount)
-                    .replace("{tquest}",tableBuilder({text:"Question",pick:"Amount of answers"},packq,["text","pick"],"amount"))
-                    .replace("{tans}",tableBuilder({text:"Question"},packa,["text"],"amount"))
+                    .replace("{tquest}",tableBuilder({text:"Question",pick:"Amount of answers"},packq.map(el=>{return{...el,text:el.text.replace('\n','')}}),["text","pick"],"amount"))
+                    .replace("{tans}",tableBuilder({text:"Question"},packa.map(el=>{return{...el,text:el.text.replace('\n','')}}),["text"],"amount"))
         )
     }
 })

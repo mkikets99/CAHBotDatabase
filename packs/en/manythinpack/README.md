@@ -6,12 +6,9 @@ Answers amount: 144
 ### Questions
 | Question | Amount of answers |
 |---|---|
-| Coming up on Turner Classic Movies:
-Sean Connery and Alec Baldwin star in "The Hunt for _." | 1 |
-| FW: re:
-FBI WARNING!!! VIOLENT GANGS USING _ TO RECRUIT CHILDREN! | 1 |
-| Hey, kids.
-I'm Connor's dad, but you can call me Mr. _. | 1 |
+| Coming up on Turner Classic Movies:Sean Connery and Alec Baldwin star in "The Hunt for _." | 1 |
+| FW: re:FBI WARNING!!! VIOLENT GANGS USING _ TO RECRUIT CHILDREN! | 1 |
+| Hey, kids.I'm Connor's dad, but you can call me Mr. _. | 1 |
 | So apparently Dad was searching Pornhub for "hot milf _." | 1 |
 | Whaddya think, money grows on trees? I'm not paying for _! | 1 |
 | Young lady, you better knock it off with _ or you're grounded! | 1 |
